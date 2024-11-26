@@ -1,7 +1,7 @@
-import { convertHtmlToMarkdown } from '../lib/html2md.mjs';
+import TurndownService from 'turndown';
+const turndownService = new TurndownService({ headingStyle: 'atx' });
 
 // Example usage
 const htmlContent = '<strong>bold text</strong>';
-convertHtmlToMarkdown(htmlContent).then(markdown => {
-  console.log('Converted Markdown:', markdown);
-});
+const markdown = turndownService.turndown(htmlContent);
+console.log('Converted Markdown:', markdown);
