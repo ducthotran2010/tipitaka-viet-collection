@@ -1,7 +1,7 @@
 {
-  "name": "pali-canon-md",
+  "name": "suttacentral-md",
   "version": "1.0.0",
-  "main": "index.js",
+  "main": "bin/convert-html2md.mjs",
   "author": "Duc Tho Tran <ducthotran2010@gmail.com>",
   "license": "MIT",
   "scripts": {
