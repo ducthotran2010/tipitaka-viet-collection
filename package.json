@@ -1,0 +1,14 @@
+{
+  "name": "pali-canon-md",
+  "version": "1.0.0",
+  "main": "index.js",
+  "author": "Duc Tho Tran <ducthotran2010@gmail.com>",
+  "license": "MIT",
+  "scripts": {
+    "start:html2md": "node bin/convert-html2md.mjs"
+  },
+  "dependencies": {
+    "axios": "^1.7.8",
+    "dotenv": "^16.4.5"
+  }
+}
