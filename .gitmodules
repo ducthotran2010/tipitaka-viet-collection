@@ -1,0 +1,3 @@
+[submodule "sources/legacy-suttacentral-data"]
+	path = sources/legacy-suttacentral-data
+	url = https://github.com/suttacentral/legacy-suttacentral-data/
