@@ -5,7 +5,7 @@
   "author": "Duc Tho Tran <ducthotran2010@gmail.com>",
   "license": "MIT",
   "scripts": {
-    "run:html2md": "node bin/convert-html2md.mjs legacy-suttacentral-data/text/vn/pi/su/",
+    "run:html2md": "node bin/convert-html2md.mjs legacy-suttacentral-data/text/vn/pi/",
     "test:html2md": "node bin/test-html2md.mjs"
   },
   "dependencies": {

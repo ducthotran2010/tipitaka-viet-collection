@@ -1,0 +1,31 @@
+ 
+
+Aṅguttara Nikāya
+
+II. Phẩm Cần Phải Nhớ
+
+# (VI) (16) Cha Mẹ Của NakuLa (1)
+
+Một thời, Thế Tôn trú ở giữa dân chúng Bhagga, tại núi Cá Sấu, rừng Bhesakàla, vườn Lộc Uyển. Lúc bấy giờ, gia chủ, cha của Nakula bị bệnh, khổ đau, bị trọng bệnh. Rồi nữ gia chủ, mẹ của Nakula nói với cha của Nakula như sau:
+
+—Thưa Gia chủ, chớ có mạng chung với tâm còn mong cầu ái luyến. Thưa Gia chủ, đau khổ là người khi mệnh chung tâm còn mong cầu ái luyến. Thế Tôn quở trách người khi mệnh chung còn mong cấu ái luyến. Thưa Gia chủ, Gia chủ có thể suy nghĩ: “Nữ gia chủ, mẹ của Nakula, sau khi ta mệnh chung, không có thể nuôi dưỡng các con và duy trì nhà cửa”. Thưa Gia chủ, chớ có nghĩ như vậy! Thưa Gia chủ, tôi khéo léo dệt vải và chải lông cừu. Thưa Gia chủ, sau khi Gia chủ mệnh chung, tôi có thể nuôi dưỡng các con và duy trì nhà cửa. Do vậy, thưa Gia chủ, chớ có mệnh chung với tâm còn mong cầu ái luyến! Ðau khổ, này Gia chủ, là người khi mệnh chung tâm còn mong cầu ái luyến. Thế Tôn quở trách người khi mệnh chung tâm còn mong cấu ái luyến.
+
+Thưa Gia chủ, Gia chủ có thể suy nghĩ như sau: “Nữ Gia chủ, mẹ của Nakula, sau khi ta mệnh chung, sẽ đi đến một gia đình khác”. Thưa Gia chủ, chớ có suy nghĩ như vậy! Thưa Gia chủ, Gia chủ cũng đã biết, trong mười sáu năm chúng ta sống làm người gia chủ, tôi đã sống thực hành Phạm hạnh như thế nào. Do vậy, thưa Gia chủ, chớ có mệnh chung với tâm còn mong cầu ái luyến! Ðau khổ, thưa Gia chủ, là người khi mệnh chung còn mong cầu ái luyến. Thế Tôn quở trách người khi mệnh chung còn mong cầu ái luyến.
+
+Thưa Gia chủ, Gia chủ có thể suy nghĩ như sau: “Nữ gia chủ, mẹ của Nakula, sau khi ta mệnh chung, sẽ không còn muốn yết kiến Thế Tôn, sẽ không còn muốn yết kiến chúng Tăng”. Thưa Gia chủ, chớ có suy nghĩ như vậy! Sau khi gia chủ mệnh chung, tôi sẽ muốn yết kiến Thế Tôn nhiều hơn, sẽ muốn yết kiến chúng Tăng nhiều hơn. Do vậy, thưa Gia chủ, chớ có mệnh chung với tâm còn mong cầu ái luyến! Ðau khổ, này Gia chủ, là người khi mệnh chung, còn mong cầu ái luyến. Thế Tôn quở trách người khi mệnh chung tâm còn mong cầu ái luyến.
+
+Thưa Gia chủ, Gia chủ có thể suy nghĩ như sau: “Nữ gia chủ, mẹ của Nakula, sau khi ta mệnh chung, sẽ không giữ giới một cách đầy đủ”. Thưa Gia chủ, chớ có suy nghĩ như vậy! Thưa Gia chủ, cho đến khi nào, các nữ đệ tử gia chủ mặc áo trắng của Thế Tôn còn giữ Giới Luật một cách đầy đủ, tôi là một trong những người ấy. Nếu ai có nghi ngờ hay phân vân, hiện nay, Thế Tôn đang ở giữa dân chúng Bhagga, tại núi Cá Sấu, rừng Bhesakàla, vườn Lộc Uyển, người ấy hãy đi đến Thế Tôn và hỏi. Do vậy, thưa Gia chủ, chớ có mệnh chung với tâm còn mong cầu ái luyến! Ðau khổ, thưa Gia chủ, là người khi mệnh chung tâm còn mong cầu ái luyến. Thế Tôn quở trách người khi mệnh chung tâm còn mong cầu ái luyến.
+
+Thưa Gia chủ, Gia chủ có thể suy nghĩ như sau: “Nữ gia chủ, mẹ của Nakula không có chứng được nội tâm tịnh chỉ”. Thưa Gia chủ, chớ có suy nghĩ như vậy! Thưa Gia chủ, cho đến khi nào, các nữ đệ tử gia chủ mặc áo trắng của Thế Tôn còn chứng được nội tâm tịnh chỉ, tôi sẽ là một trong những vị ấy. Nếu ai có nghi ngờ hay phân vân, hiện nay Thế Tôn đang ở giữa dân chúng Bhagga, tại núi Cá Sấu, rừng Bhesakàla, vườn Lộc Uyển, người ấy hãy đi đến Thế Tôn và hỏi. Do vậy, thưa Gia chủ, chớ có mệnh chung với tâm còn mong cầu ái luyến! Ðau khổ, thưa Gia chủ, là người khi mệnh chung, tâm còn mong cầu ái luyến. Thế Tôn quở trách người khi mệnh chung tâm còn mong cầu ái luyến.
+
+Thưa Gia chủ, Gia chủ có thể suy nghĩ như sau: “Nữ gia chủ, mẹ của Nakula, trong Pháp và Luật này không đạt được thể nhập, không đạt được an trú, không đạt được thoải mái, không vượt khỏi nghi hoặc, không rời được do dự, không đạt được vô úy, còn phải nhờ người khác sống trong lời dạy đức Bổn Sư”. Thưa Gia chủ, chớ có suy nghĩ như vậy! Thưa Gia chủ, cho đến khi nào, các nữ đệ tử gia chủ mặc áo trắng của Thế Tôn, trong Pháp và Luật này đạt được thể nhập, đạt được an trú, đạt được thoải mái, vượt khỏi nghi hoặc, rời được do dự, đạt được vô úy, không phải nhờ người khác sống trong lời dạy đức Bổn Sư, tôi sẽ là một trong những người ấy. Nếu có ai có nghi ngờ hay phân vân, hiện nay Thế Tôn đang ở giữa dân chúng Bhagga, tại núi Cá Sấu, rừng Bhesakàla, vườn Lộc Uyển, người ấy hãy đi đến Thế Tôn và hỏi. Do vậy, thưa Gia chủ, chớ có mệnh chung với tâm còn mong cầu ái luyến! Ðau khổ, thưa Gia chủ, là người khi mệnh chung, tâm còn mong cầu ái luyến. Thế Tôn quở trách người khi mệnh chung tâm còn mong cầu ái luyến.
+
+Rồi cha của Nakula được nữ gia chủ, mẹ của Nakula giáo giới với lời giáo giới này, bệnh hoạn liền khi ấy được khinh an và gia chủ, cha của Nakula thoát khỏi bệnh ấy. Ðược đoạn tận như vậy là bệnh ấy của gia chủ, cha của Nakula. Rồi gia chủ, cha của Nakula được lành bệnh, sau khi lành bệnh không bao lâu, chống gậy đi đến Thế Tôn; sau khi đến, đảnh lễ Thế Tôn rồi ngồi xuống một bên. Thế Tôn nói với gia chủ, cha của Nakula đang ngồi xuống một bên:
+
+—Thật lợi ích thay cho Ông, này Gia chủ! Thật khéo lợi ích thay cho Ông, này Gia chủ! Ðược nữ gia chủ, mẹ của Nakula với lòng từ mẫn, vì muốn hạnh phúc, đã giáo giới, đã khuyên dạy Ông. Cho đến khi nào, này Gia chủ, Ta còn có những đệ tử gia chủ mặc áo trắng gìn giữ Giới Luật viên mãn, nữ gia chủ, mẹ của Nakula là một trong những vị ấy. Cho đến khi nào, này Gia chủ, Ta còn có những đệ tử gia chủ mặc áo trắng chứng được nội tâm tịnh chỉ, nữ gia chủ, mẹ của Nakula là một trong những vị ấy. Cho đến khi nào, này Gia chủ, Ta còn có những đệ tử gia chủ mặc áo trắng, trong Pháp và Luật này đạt được thể nhập, đạt được an trú, đạt được thoải mái, vượt khỏi nghi hoặc, rời được do dự, đạt được vô úy, không còn phải nhờ người khác sống trong lời dạy đức Bổn Sư, nữ gia chủ, mẹ của Nakula là một trong những vị ấy. Thật lợi ích thay cho Ông, này Gia chủ! Thật khéo lợi ích thay cho Ông, này Gia chủ, được nữ gia chủ, mẹ của Nakula với lòng từ mẫn, vì muốn hạnh phúc, đã giáo giới, đã khuyên dạy Ông.
+
+Translated by: Hòa thượng Thích Minh Châu dịch Việt
+
+These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
+
+Prepared for SuttaCentral by Ayya Vimala.
