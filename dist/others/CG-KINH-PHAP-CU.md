@@ -252,7 +252,6 @@ tám muôn bên họ nội).
 
 Thế mà, tại Đại Tự Kỳ Viên của ông Cấp Cô Độc, Ngài đã an cư mùa mưa tất cả là mười chín hạ,
 và tại Đông Phương Tự (Pubbārāma) của bà Visākhā, xây cất với phí tổn là hai trăm bảy mươi triệu
-
 tiền vàng (27 koṭi), Ngài cũng đã an cư mùa mưa sáu hạ. Đó là nhờ công đức lớn lao của hai gia tộc
 nầy mà Đức Giáo Chủ đã ngự an cư trong khoảng thời gian hai mươi lăm năm gần thành Sāvatthī.
 
@@ -291,8 +290,9 @@ hương hoa, bèn hỏi: “Hàng đại chúng đi đâu mà đông vậy?”, 
 pháp”.
 
 - Tôi cũng đi nữa.
-  Nói xong, Trưởng giả nhập theo đoàn người đi chùa. Đến nơi đảnh lễ Đức Bổn Sư, rồi ngồi
-  xuống một nơi sau cùng ngoài vòng cử tọa.
+
+Nói xong, Trưởng giả nhập theo đoàn người đi chùa. Đến nơi đảnh lễ Đức Bổn Sư, rồi ngồi
+xuống một nơi sau cùng ngoài vòng cử tọa.
 
 Trước khi thuyết pháp, Chư Phật luôn luôn quán xét căn cơ và trình độ của thính chúng rồi mới
 tùy nhân duyên mà giảng giải về pháp thọ trì Qui giới, hoặc pháp xuất gia chẳng hạn. Bởi thế, ngày
@@ -312,8 +312,9 @@ Khi ấy Đức Phật bèn hỏi:
 - Bạch Ngài! Con còn có đứa em trai.
 - Vậy ông hãy về hỏi lại ý kiến của em ông đi.
 - Dạ vâng.
-  Sau khi đảnh lễ tạm biệt Đức Phật, Trưởng giả Đại Hộ trở về nhà, cho mời Trưởng giả Tiểu Hộ
-  đến và bảo:
+
+Sau khi đảnh lễ tạm biệt Đức Phật, Trưởng giả Đại Hộ trở về nhà, cho mời Trưởng giả Tiểu Hộ
+đến và bảo:
 
 - Em à! Tất cả tài sản hữu thức và vô thức (gồm có tôi tớ, súc vật, động sản, và bất động sản)
   trong nhà này anh giao hết cho em trọn quyền làm chủ.
@@ -342,11 +343,13 @@ Tuổi già làm suy yếu,
 Tay chân khó dạy biểu,
 Người lực kiệt sức cùng,
 Lấy chi hành pháp diệu.
+
 Sau bài kệ, Trưởng giả Đại Hộ nói tiếp:
 
 - Nầy em! Chí anh đã quyết, dầu em có can gián cách nào, anh cũng định xuất gia mà thôi.
-  Thế rồi, bỏ mặc người em kêu gào than khóc, Trưởng giả Đại Hộ dứt tình ra đi, đến chỗ Đức
-  Bổn Sư đang ngự và xin xuất gia nhập đạo nơi Ngài.
+
+Thế rồi, bỏ mặc người em kêu gào than khóc, Trưởng giả Đại Hộ dứt tình ra đi, đến chỗ Đức
+Bổn Sư đang ngự và xin xuất gia nhập đạo nơi Ngài.
 
 Thọ Cụ túc giới xong, vị Tỳ Khưu mới phải ở chung cùng với các vị Trưởng Lão Tăng để học tập
 thu thúc trong thời gian năm hạ. Đến mãn hạ thứ năm, làm lễ Tự Tứ xong, Tỳ Khưu Đại Hộ tìm đến
@@ -358,11 +361,10 @@ thu thúc trong thời gian năm hạ. Đến mãn hạ thứ năm, làm lễ T�
 - Tùy theo trí tuệ của mình, học hỏi ôn nhuần một hay hai bộ kinh (Nikāya) hoặc toàn hộ Tam
   Tạng (Tipiṭaka) ghi chép Phật Ngôn, sau khi đã thành thuộc đem ra đọc tụng thuyết giảng để giáo
   hóa chúng sanh, đó gọi là Pháp học (Ganthadhura).
-
-Còn như cam chịu sống cảnh thanh bần đạm bạc (Sallabukavutti) vui thích ở nơi vắng vẻ hẻo
-lánh (Pantase-nāsanabhirata), ngày đêm hằng nhớ tưởng đến tánh chất Vô thường dị diệt của bản
-ngã (attabha-vekkhayaviya), rồi bền chí kiên gan, hành thiền đắc Tuệ Minh Sát để dứt trừ phiền não,
-để chứng bậc Vô sanh (Arahattagahana), đó gọi là Pháp hành (Vipassanādhura) vậy.
+  Còn như cam chịu sống cảnh thanh bần đạm bạc (Sallabukavutti) vui thích ở nơi vắng vẻ hẻo
+  lánh (Pantase-nāsanabhirata), ngày đêm hằng nhớ tưởng đến tánh chất Vô thường dị diệt của bản
+  ngã (attabha-vekkhayaviya), rồi bền chí kiên gan, hành thiền đắc Tuệ Minh Sát để dứt trừ phiền não,
+  để chứng bậc Vô sanh (Arahattagahana), đó gọi là Pháp hành (Vipassanādhura) vậy.
 
 - Bạch hóa Tôn Sư! Đệ tử nay là kẻ cao niên xuất gia (Mahāllakakālepabbajita) không kham
   theo đuổi Pháp học cho đến ngày thành tựu hoàn toàn, còn Pháp hành thì đệ tử còn có thể làm cho
@@ -382,8 +384,10 @@ rằng:
 
 - Bạch chư Trưởng Lão, chẳng hay các Ngài định đi đâu vậy?
 - Nầy chư Thiện nam! Chúng tôi đi tìm một chỗ tiện nghi thuận cảnh.
-  Nghe đáp như vậy, những vị trí thức trong nhóm người ấy tự nhiên là hiểu biết Chư Tăng đang
-  cần có chỗ để kiết hạ an cư, họ bèn thỉnh khéo rằng:
+
+Nghe đáp như vậy, những vị trí thức trong nhóm người ấy tự nhiên là hiểu biết Chư Tăng đang
+cần có chỗ để kiết hạ an cư, họ bèn thỉnh khéo rằng:
+
 - Bạch Trưởng Lão Tăng, nếu quí Ngài có thể lưu lại nơi đây nhập hạ ba tháng nầy, thì rất tiện
   bề cho chúng tôi là có được chỗ nương nhờ vững chắc để thọ trì Tam qui và Ngũ giới.
 
@@ -509,6 +513,7 @@ Trong thân tất cả cơ quan,
 Dầu tiêu tán hết há màng chi sao!
 Hộ ơi! Đừng vịn cớ nào?
 Buông lơi mối đạo, lãng xao Pháp hành._
+
 Ngâm bài kệ dài ba kệ khúc để tự huấn dụ lấy mình xong. Trưởng Lão Đại Hộ vẫn giữ oai nghi
 ngồi như trước, lấy thuốc nhỏ lên mũi, rồi đi vào làng khất thực. Vị y sĩ trông thấy Ngài bèn hỏi:
 
@@ -517,17 +522,19 @@ ngồi như trước, lấy thuốc nhỏ lên mũi, rồi đi vào làng khất
 - Vậy bây giờ Trưởng Lão thấy hai mắt thế nào?
 - Vẫn còn đau nhức như cũ, ông Thiện nam.
 - Sao thế? Trưởng Lão nằm xuống hay cũng vẫn ngồi mà nhỏ thuốc?
-  Đến đây, Trưởng Lão Đại Hộ làm thinh, dầu cho vị y sĩ có hỏi đi hỏi lại nhiều lần, Ngài cũng
-  chẳng thốt ra một lời để đối đáp. Khi ấy, vị y sĩ nói: “Trưởng Lão đã không cần làm cho mình được
-  tiện nghi thoải mái thì thôi, nhưng tôi yêu cầu Trưởng Lão từ nay về sau đừng nói với ai là: “Có ông
-  thầy đó đã chế thuốc trị bịnh cho ta, và tôi cũng chẳng nhìn nhận là đã chế thuốc trị bệnh cho
-  Trưởng Lão”.
+
+Đến đây, Trưởng Lão Đại Hộ làm thinh, dầu cho vị y sĩ có hỏi đi hỏi lại nhiều lần, Ngài cũng
+chẳng thốt ra một lời để đối đáp. Khi ấy, vị y sĩ nói: “Trưởng Lão đã không cần làm cho mình được
+tiện nghi thoải mái thì thôi, nhưng tôi yêu cầu Trưởng Lão từ nay về sau đừng nói với ai là: “Có ông
+thầy đó đã chế thuốc trị bịnh cho ta, và tôi cũng chẳng nhìn nhận là đã chế thuốc trị bệnh cho
+Trưởng Lão”.
 
 Trưởng Lão bèn đáp:
 
 - Ta sẽ không nói thế đâu.
-  Bị vị y sĩ chạy bịnh không chịu cứu chữa, Trưởng Lão trở về Tịnh xá, lòng tự nhủ lòng: “Nầy ông
-  Sa Môn ơi! Thầy thuốc đó bỏ rơi ông thì bỏ, chứ ông đừng bỏ rơi hạnh nguyện của mình đa nhé”.
+
+Bị vị y sĩ chạy bịnh không chịu cứu chữa, Trưởng Lão trở về Tịnh xá, lòng tự nhủ lòng: “Nầy ông
+Sa Môn ơi! Thầy thuốc đó bỏ rơi ông thì bỏ, chứ ông đừng bỏ rơi hạnh nguyện của mình đa nhé”.
 
 Ngài lại xướng lên bốn câu kệ:
 
@@ -540,9 +547,9 @@ _“Diệu dược vô phương chữa trị rồi,
 Lương y bất lực cũng đành lui,
 Giờ đây có nước chờ Diêm Chúa,
 Hộ hỡi làm sao dám dễ duôi?”._
+
 Sau bài kệ tự huấn ấy, Trưởng Lão thu thúc hành Sa Môn pháp một cách rốt ráo. Đến cuối canh
 giữa đêm ấy không trước không sau, thì hai mắt của Ngài vĩnh biệt ánh sáng, nhưng đồng thời tâm
-
 của Ngài cũng đoạn ly tất cả tiềm miên phiền não. Ngài hưởng thụ nguồn an vui tự tại trong sự giác
 ngộ nội tâm của quả vị A La Hán, rồi vào ngồi trong tịnh thất.
 
@@ -554,9 +561,10 @@ ngộ nội tâm của quả vị A La Hán, rồi vào ngồi trong tịnh th�
 - Nếu vậy chư hiền hữu hãy đi đi.
 - Dạ! Còn Ngài thì sao? Bạch Ngài.
 - Mắt ta (hỏng mất) hết thấy đường rồi chư hiền hữu.
-  Các Tỳ Khưu sau khi nhìn thấy đôi mắt mù của Trưởng Lão Đại Hộ, cả thảy đều động lòng,
-  quanh tròng lệ ứa, đồng tỏ lời an ủi rằng: “Bạch Ngài! Xin Ngài đừng bận tâm lo nghĩ chi nhiều, đã
-  có chúng tôi chăm lo cho Ngài đàng hoàng tử tế”.
+
+Các Tỳ Khưu sau khi nhìn thấy đôi mắt mù của Trưởng Lão Đại Hộ, cả thảy đều động lòng,
+quanh tròng lệ ứa, đồng tỏ lời an ủi rằng: “Bạch Ngài! Xin Ngài đừng bận tâm lo nghĩ chi nhiều, đã
+có chúng tôi chăm lo cho Ngài đàng hoàng tử tế”.
 
 Kế đó, sau khi thi hành mọi việc cần thiết thuộc về phận sự của mình, Chư Tăng vào làng đi
 bát, không trông thấy vị Trưởng Lão nhiều người bèn hỏi Chư Tăng: “Bạch chư Trưởng Lão! Ngài Cả
@@ -577,10 +585,11 @@ Tự Tứ sau đó, tất cả sáu mươi vị Thiền Sư cũng đều đắc 
 Sau lễ ra hạ, chư Tỳ Khưu muốn về hội kiến với Đức Bổn Sư, nên bạch xin với Trưởng Lão:
 
 - Bạch Ngài! Chúng tôi muốn về yết kiến Đức Thế Tôn.
-  Khi nghe Chư Tăng ngỏ ý như vậy, Trưởng Lão Đại Hộ suy nghĩ: “Ta nay mù lòa yếu đuối,
-  đường xá lại trắc trở gian nan, phải xuyên qua truông rậm rừng hoang đầy dẫy phi nhơn ác quỉ. Nếu
-  Ta đi chung với Chư Tăng thì cả đoàn đều khó mỏi, còn e một nỗi không thể đi bát kiếm được món
-  ăn. Chi bằng Ta hãy để cho Chư Tăng đi về trước là hơn”.
+
+Khi nghe Chư Tăng ngỏ ý như vậy, Trưởng Lão Đại Hộ suy nghĩ: “Ta nay mù lòa yếu đuối,
+đường xá lại trắc trở gian nan, phải xuyên qua truông rậm rừng hoang đầy dẫy phi nhơn ác quỉ. Nếu
+Ta đi chung với Chư Tăng thì cả đoàn đều khó mỏi, còn e một nỗi không thể đi bát kiếm được món
+ăn. Chi bằng Ta hãy để cho Chư Tăng đi về trước là hơn”.
 
 Trưởng Lão ứng tiếng bảo chư Tỳ Khưu:
 
@@ -624,9 +633,10 @@ mời thỉnh Chư Tăng an tọa, xong mới hỏi rằng:
 - Cho đi như thế không được đâu? Vì lộ trình nguy khổ lắm, phải cho nó xuất gia trước rồi hãy
   sai nó đi.
 - Bạch quí Sư huynh! Xin quí Sư huynh hãy làm như vậy rồi sai nó đi.
-  Khi ấy, Chư Tăng làm lễ Sa Di cho Tế Hộ, giữ ông lại trong nửa tháng để kềm tập những oai
-  nghi thường thức, nhất là tập cách đắp y cho đàng hoàng, xong rồi chỉ vẽ đường đi nước bước và cầu
-  chúc cho vị tu sĩ thiếu niên thượng lộ bình an.
+
+Khi ấy, Chư Tăng làm lễ Sa Di cho Tế Hộ, giữ ông lại trong nửa tháng để kềm tập những oai
+nghi thường thức, nhất là tập cách đắp y cho đàng hoàng, xong rồi chỉ vẽ đường đi nước bước và cầu
+chúc cho vị tu sĩ thiếu niên thượng lộ bình an.
 
 Sa Di Tế Hộ ra đi một mình, lần hồi đến nơi thị trấn nhỏ ở sát biên giới. Tại cổng làng, Tế Hộ
 gặp một vị bô lão, bèn đón lại hỏi thăm:
@@ -638,18 +648,23 @@ gặp một vị bô lão, bèn đón lại hỏi thăm:
 - Xin lão trượng hoan hỷ chỉ đường cho tôi đến đó.
 - Bạch Sư, Sư là ai?
 - Thưa lão trượng! Tôi là cháu ruột kêu vị Trưởng Lão đó bằng cậu.
-  Khi ấy, vị bô lão dẫn đường đưa vị Sư trẻ đến nơi Tịnh xá.
-  Sau khi đảnh lễ vấn an Trưởng Lão Đại Hộ, Sa Di Tế Hộ ở luôn nơi Tịnh xá nửa tháng, chăm lo
-  quán xuyến các việc lớn nhỏ, giúp đỡ tay chân cho vị Sư mù, hết lòng phụng dưỡng người cậu tật
-  nguyền của mình một cách chu đáo, sau đó ông bạch với Trưởng Lão: “Bạch Sư cửu. Cậu Tiểu Hộ ở
-  nhà, hiện đang mong chờ Sư cửu! Xin thỉnh Sư cửu đi về với con”.
+
+Khi ấy, vị bô lão dẫn đường đưa vị Sư trẻ đến nơi Tịnh xá.
+Sau khi đảnh lễ vấn an Trưởng Lão Đại Hộ, Sa Di Tế Hộ ở luôn nơi Tịnh xá nửa tháng, chăm lo
+quán xuyến các việc lớn nhỏ, giúp đỡ tay chân cho vị Sư mù, hết lòng phụng dưỡng người cậu tật
+nguyền của mình một cách chu đáo, sau đó ông bạch với Trưởng Lão: “Bạch Sư cửu. Cậu Tiểu Hộ ở
+nhà, hiện đang mong chờ Sư cửu! Xin thỉnh Sư cửu đi về với con”.
+
 - Thế thì con hãy cầm gậy dắt ta đi.
-  Vị Sư trẻ nắm lấy một đầu gậy, cùng vị Trưởng Lão đi vào trung tâm thị trấn nhỏ, nhóm Thiện
-  tín đón rước, mời ngồi đoạn hỏi Trưởng Lão: “Bạch Trưởng Lão! Trưởng Lão sửa soạn đi đâu, có thể
-  cho chúng tôi biết được chăng?”.
+
+Vị Sư trẻ nắm lấy một đầu gậy, cùng vị Trưởng Lão đi vào trung tâm thị trấn nhỏ, nhóm Thiện
+tín đón rước, mời ngồi đoạn hỏi Trưởng Lão: “Bạch Trưởng Lão! Trưởng Lão sửa soạn đi đâu, có thể
+cho chúng tôi biết được chăng?”.
+
 - Được lắm. Nầy chư Thiện tín, Ta hôm nay đi về đảnh lễ Đức Tôn Sư.
-  Chư Thiện tín thỉnh cầu Trưởng Lão ở lại, đến năm lần bảy lượt cũng không được.Họ bèn theo
-  tiễn chân, đưa một đỗi đường, đến lúc cáo từ lui gót, họ còn ngậm ngùi lưu luyến, mắt lệ chứa chan.
+
+Chư Thiện tín thỉnh cầu Trưởng Lão ở lại, đến năm lần bảy lượt cũng không được.Họ bèn theo
+tiễn chân, đưa một đỗi đường, đến lúc cáo từ lui gót, họ còn ngậm ngùi lưu luyến, mắt lệ chứa chan.
 
 Vị Sa Di tay vẫn không rời gậy, dắt vị Trưởng Lão tiếp tục cuộc hành trình. Đi đến một thôn
 trang ở ven rừng, tên là Mộc Thanh (Katthanagara), gần nơi đó Ngài có tịnh cư một lúc trước.
@@ -713,10 +728,10 @@ Natthi bāle sahāyatā”._
 Thà nằm giữa chốn mông lung,
 Quyết không kết bạn, đi cùng đứa ngu”.
 “Than ôi mắt đã bị mù!
-
 _Đường còn xa vắng, âm u lạnh lùng.
 Đành liều thân, chịu mạng chung,
 Quyết không kết bạn, đi cùng đứa ngu”._
+
 Nghe qua bài kệ, Tế Hộ càng thêm kinh hoàng, hối hận kêu lớn mấy tiếng: “Hỡi ơi! Việc quấy
 rầy của ta làm, quả thật nặng nề ác liệt”. Rồi tự ôm chầm lấy hai vai, chàng khóc than rên rỉ và đi
 tuốt vô rừng biệt dạng.
@@ -746,6 +761,7 @@ Chúa Trời ngàn con mắt,
 Gìn Thiên nhãn trong sạch.
 Sư Hộ trong giáo điều,
 Vui đạo ngồi tự đắc”._
+
 Khi ấy, đức Đế Thích nghĩ thầm: “Nếu ta bỏ qua không tiếp độ một người có tâm trong sạch,
 biết ghê sợ tội lỗi, tôn trọng giới luật như vị Sư nầy, chắc có lẽ đầu ta nứt bể thành bảy mảnh. Ta
 phải xuống đó giúp người mới được”. Thế rồi:
@@ -759,6 +775,7 @@ _Ngọc Đế ngàn con mắt,
 Cao sang nhất cõi trời.
 Phút chốc đến tận nơi,
 Sư Hộ mù đôi mắt._
+
 Khi đáp xuống cách chỗ Trưởng Lão Đại Hộ không xa, đức Đế Thích nhấn mạnh bước chân cho
 nghe tiếng xào xạc. Trưởng Lão bèn hỏi: “Ai đó?”.
 
@@ -769,7 +786,6 @@ nghe tiếng xào xạc. Trưởng Lão bèn hỏi: “Ai đó?”.
 - Bạch Ngài! Còn Ngài đi đâu?
 - Ta cũng sẽ về nơi đó.
 - Nếu vậy thì tiện quá. Bạch Ngài, ta hãy cùng đi một lượt cho vui.
-
 - Ta yếu đuối, đi chung với Ta sẽ trở ngại, phiền phức cho hiền hữu lắm.
 - Bạch Ngài! Không sao, tôi đi đây không có chuyện gì cần kíp. Vả lại, cùng đi với Ngài tôi có
   thể thực thi phần nào trong mười việc thiện để bòn chút phước báu, thôi ta hãy cùng nhau lên đường.
@@ -778,9 +794,11 @@ Trưởng Lão Đại Hộ tự nghĩ: “Ông nầy chắc là là một nhà h
 nói:
 
 - Vậy thì, ông Thiện nam, hãy cầm lấy một đầu gậy của Ta.
-  Đức Đế Thích vâng lời vị Trưởng Lão, rồi dùng phép thu đất, rút ngắn con đường, cho nên sáng
-  hôm sau hai khách lữ hành đã đến Đại Tự Kỳ Viên. Khi nghe tiếng cồng, tiếng sáo rộn rã, Trưởng Lão
-  hỏi đức Đế Thích:
+
+Đức Đế Thích vâng lời vị Trưởng Lão, rồi dùng phép thu đất, rút ngắn con đường, cho nên sáng
+hôm sau hai khách lữ hành đã đến Đại Tự Kỳ Viên. Khi nghe tiếng cồng, tiếng sáo rộn rã, Trưởng Lão
+hỏi đức Đế Thích:
+
 - Đây là đâu mà nghe tiếng tiêu thiều nhạc trổi vậy?
 - Bạch Ngài! Đây đã tới thành Sāvatthī.
 - Ủa! Sao lúc trước Ta đi với chư Tỳ Khưu lâu lắm mới tới đây mà.
@@ -798,6 +816,7 @@ _“Ngọc Đế ngàn con mắt,
 Cao sang nhứt cõi Trời.
 Thâu đường ngàn dặm khơi,
 Đến Vệ Thành tức khắc”._
+
 Đức vua Trời dẫn vị Trưởng Lão đến cái cốc lá của Trưởng giả Tiểu Hộ đã cất riêng cho anh
 mình về ở tịnh. Dìu Trưởng Lão ngồi xuống một cái đôn, rồi biến hình hóa ra một người bạn thân
 thiết của Trưởng giả Tiểu Hộ, đến trước, và ông kêu lớn:
@@ -814,16 +833,17 @@ Trưởng giả Tiểu Hộ đi đến Tịnh xá, gặp mặt Trưởng Lão Đ
 xuống đất bên chân Trưởng Lão mà khóc nức nở và nói:
 
 - Trước kia em đã hết sức cầm cản mà Ngài không nghe, để bây giờ chịu khổ như vậy.
-  Sau những lời hàn huyên an ủi của người anh bất hạnh của mình, Trưởng giả về nhà chọn lựa
-  hai đứa tiểu đồng, đưa đến cho xuất gia Sa Di làm đệ tử của Trưởng Lão, rồi giao phó cho chúng
-  phận sự trông nom, phục dịch thầy Tế Độ, và dặn thêm rằng:
+
+Sau những lời hàn huyên an ủi của người anh bất hạnh của mình, Trưởng giả về nhà chọn lựa
+hai đứa tiểu đồng, đưa đến cho xuất gia Sa Di làm đệ tử của Trưởng Lão, rồi giao phó cho chúng
+phận sự trông nom, phục dịch thầy Tế Độ, và dặn thêm rằng:
+
 - Hai Sư mỗi ngày đi bát, thọ lãnh cháo cơm vật thực đem về dâng lên Trưởng Lão nghe!
   Hai vị Sa Di nhỏ vâng lời, chăm lo tất cả mọi việc trong tịnh thất và hộ độ Trưởng Lão rất chu
   đáo.
 
 Một ngày kia, có nhóm Tỳ Khưu ở phương xa về Kỳ Viên để yết kiến Đức Bổn Sư, về đến nơi
 đảnh lễ Đức Thầy và ra mắt tám mươi vị Đại Trưởng lão xong, Chư Tăng cùng nhau đi tản bộ trong
-
 vòng Tịnh xá, gần đến tịnh thất của Trưởng Lão Đại Hộ, Chư Tăng rủ nhau: “Chiều nay ta cũng nên
 đến thăm Trưởng Lão một chút”.
 
@@ -839,11 +859,12 @@ dọn chỗ Trưởng Lão kinh hành ấy. Khi các khách Tăng đến viếng
 nằm la liệt trên đường kinh hành, bèn hỏi:
 
 - Ai vừa mới đi trên đường nầy vậy?
-- Bạch chư Trưởng Lão, đó là Trưởng Lão thầy của chúng tôi. Hai vị Sa Di đáp.
-  Chư Tăng bất mãn, buông lời phiền trách rằng: “Chư hiền hữu hãy coi! Hành vi của ông Sa
-  Môn nầy, khi còn sáng mắt ông ta cứ nằm mãi không làm chi hết, để bây giờ với đôi mắt mù, ông ta
-  lại tính “Ta đi kinh hành”, rồi sát hại bấy nhiêu chúng sanh đó. Miệng ông ta nói: “Ta sẽ hành động
-  đúng đắn, lợi ích” nhưng việc làm của ông ta thì không đúng đắn, lợi ích chút nào!”.
+- "Bạch chư Trưởng Lão, đó là Trưởng Lão thầy của chúng tôi." Hai vị Sa Di đáp.
+
+Chư Tăng bất mãn, buông lời phiền trách rằng: “Chư hiền hữu hãy coi! Hành vi của ông Sa
+Môn nầy, khi còn sáng mắt ông ta cứ nằm mãi không làm chi hết, để bây giờ với đôi mắt mù, ông ta
+lại tính “Ta đi kinh hành”, rồi sát hại bấy nhiêu chúng sanh đó. Miệng ông ta nói: “Ta sẽ hành động
+đúng đắn, lợi ích” nhưng việc làm của ông ta thì không đúng đắn, lợi ích chút nào!”.
 
 Thế rồi, Chư Tăng đem chuyện nầy bạch Đức Như Lai:
 
@@ -868,10 +889,11 @@ Thế rồi, Chư Tăng đem chuyện nầy bạch Đức Như Lai:
 - Dạ! Nếu thầy làm sao cho mắt tôi sáng lại như thường, tôi tình nguyện đưa cả con gái đến làm
   tôi mọi cho thầy suốt đời.
 - Được lắm.
-  Nói rồi, y sĩ lo chế thuốc nhỏ mắt trao cho phụ nữ ấy, chỉ nhỏ có một lần thuốc, mắt bà ta đã
-  thấy rõ lại như thường, nhưng bà ta suy tính ngấm ngầm: “Mình trót hứa đem cả con gái đến làm tôi
-  đòi cho ông thầy thuốc, nhưng e rồi đây thế nào ông ta cũng nặng nhẹ khó dễ, hành hạ mẹ con mình,
-  chi bằng kiếm lời tráo trở dối gạt ông ta là hơn”.
+
+Nói rồi, y sĩ lo chế thuốc nhỏ mắt trao cho phụ nữ ấy, chỉ nhỏ có một lần thuốc, mắt bà ta đã
+thấy rõ lại như thường, nhưng bà ta suy tính ngấm ngầm: “Mình trót hứa đem cả con gái đến làm tôi
+đòi cho ông thầy thuốc, nhưng e rồi đây thế nào ông ta cũng nặng nhẹ khó dễ, hành hạ mẹ con mình,
+chi bằng kiếm lời tráo trở dối gạt ông ta là hơn”.
 
 Vì thế, lúc y sĩ đến nhà hỏi thăm bịnh tình: “Mắt bà chị hôm nay ra sao?”. Phụ nữ ấy đáp: “Lúc
 trước chỉ hơi đau sơ sơ chút ít thôi, còn bây giờ thì nhức nhối quá chừng quá đỗi”.
@@ -907,6 +929,7 @@ Nếu bằng tâm nhơ đục (6),
 Nói năng hoặc hành vi (7),
 Khổ sẽ theo người (8) như,
 Bánh xe chân bò giật (9)._
+
 (1) Tâm hay ý (mano) trong kệ ngôn nầy chính là tâm (citta) trong Thắng Pháp tập yếu
 (Abhidhammatthasaṅgaha), theo đó phân loại thì có Tứ địa tâm (Catubbhūmikacitta), là tâm trong
 bốn giới, nhất là Dục giới bất thiện tâm (Kāmavacarakusalacitta) nếu y cứ theo tâm của vị y sĩ, phát
@@ -914,6 +937,7 @@ sanh lên trong lúc tạo nghiệp ác mà định nghĩa cho phân minh chính
 Cú nầy là tâm Câu hữu ưu tương ông hận (domanassasahagataṁpaṭigha-sampayuttaṁ cittaṁ).
 
 (2) Đi trước (pubbaṅgamā), nghĩa là dẫn đầu và đi chung một thể.
+
 (3) Các pháp (Dhammā), căn cứ trên đặc tánh không phải là chúng sanh (Nissatta) không có
 mạng sống (Nijjīva). Theo nghĩa tổng quát trong Kinh Tạng thì có bốn pháp tất cả là: Pháp (Dhamma-
 thiện tâm); phi pháp (Adhamma- bất thiện tâm) và hai Dị thục quả tâm (Vipākacitta). Có Phật ngôn
@@ -928,6 +952,7 @@ _“Pháp cùng phi pháp chẳng đồng,
 Thì tâm dị thục cũng không ngang hàng.
 Pháp đưa lên cõi thiên đàng,
 Phi pháp dắt xuống suối vàng âm ti”._
+
 Ngoài ra chữ Pháp có nhiều nghĩa khác nữa, chẳng hạn như: Trong kinh có chỗ Đức Phật nói:
 “Nầy chư Tỳ Khưu, Như Lai sắp thuyết cho các ông nghe thời pháp tuyệt diệu cả đoạn đầu..”. thì chữ
 Pháp chỗ đó có nghĩa là bài thuyết pháp.
@@ -1001,7 +1026,6 @@ giật (kéo xe), thì hay tháo trút, tánh còn hung hăng, khi bị mắc c�
 chiếc xe chở đồ nặng, ý muốn tự do như trước, nhưng nào có được, con bò ấy dầu cho kéo một ngày,
 hai ngày, năm ngày, mười ngày hay nửa tháng cũng không thể nào tách rời ra chiếc bánh xe đang lăn
 phía sau, mỗi khi con bò muốn vươn mình tới trước thì bị cái ách đè nặng trên cổ, không cho vượt
-
 qua, còn muốn thụt về phía sau thì bị bánh xe đụng cọ vào thịt đùi không cho lùi lại, thành thử ra do
 hai lẽ ấy con bò đành chịu để cho hai bánh xe cứ mãi theo sát hai bên chân của nó vậy.
 
@@ -10791,7 +10815,7 @@ Pariphandati'daṁ cittaṁ Tâm nầy run lạ thường,
 māradheyyaṁ pahātaveti”. Hãy thoát cảnh Ma vương”.
 
 Hai bài Kệ Pháp Cú nầy (33-34) Đức Bổn Sư thuyết ra khi Ngài ngự tại núi Cālika (Trà Lý Ca),
-đề cập đến Trưởng Lão Meghiya **(** Mê Kỳ Dạ).
+đề cập đến Trưởng Lão Meghiya (Mê Kỳ Dạ).
 
 (Sự tích Trưởng Lão Meghiya có giải rộng trong kinh Meghiya. Nơi đây chỉ tóm tắt sơ lược.)
 Trong thời kỳ Trưởng Lão Ānanda chưa xuất gia, Trưởng Lão Meghiya là vị Sa Môn tùy tùng
