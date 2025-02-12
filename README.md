@@ -1,4 +1,4 @@
-# Tipitaka Việt
+# Tipiṭaka Việt
 
 Tổng hợp và chuyển đổi các Kinh điển Pāli cùng Chú giải thành định dạng Markdown để chuẩn bị cho Embedding model hoặc Large Language model (LLM).
 
