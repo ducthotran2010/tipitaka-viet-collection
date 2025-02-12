@@ -2123,9 +2123,7 @@ Thiếu phụ tỏ thật rằng:
 
 - Tôi có cô bạn nữ Dạ Xoa, cô ta tiên đoán biết trước thời tiết mỗi năm mưa nhiều hay nắng
   nhiều, đều có nói cho chúng tôi hay, chúng tôi theo lời cô ta chỉ dẫn mà làm mùa, nhờ vậy năm nào
-  chúng tôi cũng trúng. Vậy chứ bà con không thấy ngày ngày chúng tôi đem cơm cháo, bánh trái đi ra
-
-hay sao? Đó là những vật thực chúng tôi đem đến cung cấp cho cô ta vậy. Bà con muốn cậy cô ta chỉ
+  chúng tôi cũng trúng. Vậy chứ bà con không thấy ngày ngày chúng tôi đem cơm cháo, bánh trái đi ra hay sao? Đó là những vật thực chúng tôi đem đến cung cấp cho cô ta vậy. Bà con muốn cậy cô ta chỉ
 biểu dùm cho, thì cứ đem vật thực ngon lành đến biếu cô ta là được chớ gì.
 
 Khi ấy, tất cả cư dân trong thành tranh nhau mang lễ vật đến.
@@ -2183,9 +2181,7 @@ thiện của họ lúc còn sống. Các cõi trời tiếp theo cõi người,
 Phạm Thiên Hữu sắc, được mở ra tiếp đón các thiền tín tu, các dục lạc ở cõi Chư Thiên hoàn toàn
 thuộc loại cảm quan. Tất cả những gì con người có thể tưởng ra để làm thỏa mãn ngũ quan, được dồn
 trên các nhàn cảnh ấy và Chư Thiên ở cõi đó tha hồ mà hưởng thụ một cách tự do, rộng rãi. Thú vui
-bằng Ngũ trần thì không thể nào tả hết cho được, ta chỉ cần biết là: Ở cõi trời Dục giới phái tính vẫn
-
-còn. Trong hai cõi thấp nhất là Tứ Đại Thiên và Đao Lợi, sự hành dâm vẫn có giữa hai phái tính
+bằng Ngũ trần thì không thể nào tả hết cho được, ta chỉ cần biết là: Ở cõi trời Dục giới phái tính vẫn còn. Trong hai cõi thấp nhất là Tứ Đại Thiên và Đao Lợi, sự hành dâm vẫn có giữa hai phái tính
 nhưng không có sự chửa đẻ, trong cõi Dạ Ma Chư Thiên nam và nữ chỉ ôm nhau hôn hít là đủ thỏa
 mãn tình dục, trong cõi Đâu Suất hai bên chỉ nắm tay nhau, trong cõi Hóa Lạc vợ chồng chỉ nhìn mặt
 nhau. Và trong cõi Tha Hóa Tự Tại, hai người chỉ cần gặp nhau ở một nơi nào đó. Về phái tính trong
@@ -3691,9 +3687,7 @@ Công tử Upatissa bèn đáp: “Hiền huynh Kolita à! Xem mãi các trò ch
 điều tôi ngồi yên tư lự. Còn hiền huynh vì sao cũng lộ vẻ không vui?”.
 
 Công tử Kolita cũng đáp lời như vậy. Khi biết bạn mình đồng một chí nguyện với mình, công tử
-Upatissa bèn ngỏ lời tâm sự rằng: “Hiền huynh, chúng ta cùng chung một lý tưởng cao đẹp, cùng
-
-mong tầm cầu lấy con đường giải thoát, vậy ta hãy xuất gia một lượt để cùng nhau tu học. Ta nên
+Upatissa bèn ngỏ lời tâm sự rằng: “Hiền huynh, chúng ta cùng chung một lý tưởng cao đẹp, cùng mong tầm cầu lấy con đường giải thoát, vậy ta hãy xuất gia một lượt để cùng nhau tu học. Ta nên
 xuất gia với vị Đạo trưởng nào đây?”.
 
 Ngay lúc bấy giờ, có thầy Sañjaya là một giáo chủ ngoại đạo cùng với một số đông đệ tử du sĩ
@@ -3996,9 +3990,7 @@ Một hôm thấy một phụ nữ có mang, họ bèn xúm nhau đưa vào bãi
 
 - Các anh đem thiêu nhé!
   Năm người được chỉ thị ở lại mộ địa, kỳ dư bao nhiêu đều trở về làng. Thanh niên Yasa đứng chỉ
-  huy việc thiêu này, chàng dùng cây nhọn đâm lưng cái xác cho chảy bớt nước và lật qua lật lại cho
-
-mau cháy. Chăm chỉ nhìn cây đuốc thịt đang biến thành than, chàng bỗng đâm ra nhờm gớm cái tử
+  huy việc thiêu này, chàng dùng cây nhọn đâm lưng cái xác cho chảy bớt nước và lật qua lật lại cho mau cháy. Chăm chỉ nhìn cây đuốc thịt đang biến thành than, chàng bỗng đâm ra nhờm gớm cái tử
 thi một cách lạ thường, đó là triệu chứng trong tâm chàng phát sanh bất tịnh tưởng (Asubhasaññā).
 
 Yasa kêu bốn chàng kia lại chỉ: “Quí vị ơi! Hãy nhìn cho kỹ xác chết nầy, da của nó nứt nẻ loang
@@ -4859,9 +4851,7 @@ Sau đó, có một hôm các Tỳ Khưu cật vấn Trưởng Lão Nanda rằng
 Thế rồi, Chư Tăng đem câu chuyện nầy bạch lên Đức Thế Tôn, Đức Thế Tôn dạy rằng:
 
 - Nầy các Tỳ Khưu! Vì trong dĩ vãng tâm tư Nanda giống như gian nhà mái lợp thưa thớt, còn
-  bây giờ tâm ông ta giống như gian nhà mái lợp kín đáo rồi vậy. Quả thật từ khi nhìn thấy các Thiên
-
-nữ, về sau ông đã tịnh tâm tu hành để đạt đến mục đích tối thượng của đời xuất gia, nhờ vậy mà nay
+  bây giờ tâm ông ta giống như gian nhà mái lợp kín đáo rồi vậy. Quả thật từ khi nhìn thấy các Thiên nữ, về sau ông đã tịnh tâm tu hành để đạt đến mục đích tối thượng của đời xuất gia, nhờ vậy mà nay
 ông đã đắc kỳ sở nguyện.
 
 Dứt lời, Đức Thế Tôn xướng lên hai bài kệ sau đây:
@@ -5333,9 +5323,7 @@ Sau khi thác, y cũng còn nhờ ảnh hưởng của quả lành, tiếp tục
 nữa, nên mới gọi là hai đời vui (ubhayattha modati).
 
 **_Kammavisuddhiṃ_** : Nghiệp sạch, như Cận sự nam Dhammika. Sau khi xét thấy tự mình đã tạo
-nhiều nghiệp trong sạch (thuần thiện), tự mình đầy đủ phước nghiệp (kammapuñña) rồi, đến khi lâm
-
-chung cũng được hưởng sự an vui trong kiếp hiện tại và sau khi mệnh chung lại được thọ sanh vào
+nhiều nghiệp trong sạch (thuần thiện), tự mình đầy đủ phước nghiệp (kammapuñña) rồi, đến khi lâm chung cũng được hưởng sự an vui trong kiếp hiện tại và sau khi mệnh chung lại được thọ sanh vào
 cảnh giới khác, lại càng hưởng nhiều thiên phúc lạc hơn nữa.
 
 Sau bài kệ nầy, chư Tỳ Khưu đắc Thánh quả, nhất là Tu Đà Hườn quả. Đại chúng thính pháp
@@ -5709,9 +5697,7 @@ _Thiện nhơn hành thiện dễ dàng thay!
 Ác nhơn hành ác như chơi giỡn.
 Thánh nhơn hành ác chẳng quen tay”._
 Nói về Devadattta, chờ đến ngày làm lễ Phát lồ, vào trong chỗ kiết giới, ngồi qua một phía cùng
-với đồng lõa của mình, rồi tuyên bố rằng: “Sư nào ông hành theo năm điều do tôi đề xướng thì xin
-
-biểu quyết bằng cách rút thăm”. Năm trăm Tỳ Khưu mới tu, con dòng Vajjī vì ít cảm mến Đức Thế
+với đồng lõa của mình, rồi tuyên bố rằng: “Sư nào ông hành theo năm điều do tôi đề xướng thì xin biểu quyết bằng cách rút thăm”. Năm trăm Tỳ Khưu mới tu, con dòng Vajjī vì ít cảm mến Đức Thế
 Tôn nên đã đồng tình bỏ Đức Bổn Sư mà theo về phe Devadattta.
 
 Chia rẽ Tăng rồi, ông ta dắt các Tỳ Khưu phe mình đi về phía Gayāsīsa (Tượng Đầu Sơn).
@@ -6063,9 +6049,7 @@ Vào thời ấy, trong thành Sāvatthī, mỗi ngày nơi nhà ông Trưởng 
 ngàn vị Tỳ Khưu đến thọ thực và nơi nhà của bà tín nữ Visākhā cũng có số Chư Tăng đông như vậy.
 
 Các Thiện tín khác trong thành Sāvatthī, bất cứ là ai nếu muốn làm phước Trai Tăng đều phải
-thông qua hai vị ấy hoặc sở cậy đến sự chỉ dẫn của họ. Tại sao vậy? Bởi vì dầu cho thí chủ nào dám
-
-chịu tốn kém xuất ra hằng trăm đồng vàng để làm cuộc lễ phước lớn hơn ông Cấp Cô Độc hay bà
+thông qua hai vị ấy hoặc sở cậy đến sự chỉ dẫn của họ. Tại sao vậy? Bởi vì dầu cho thí chủ nào dám chịu tốn kém xuất ra hằng trăm đồng vàng để làm cuộc lễ phước lớn hơn ông Cấp Cô Độc hay bà
 Visākhā, thì cũng vẫn chưa vừa lòng Chư Tăng, mà còn bị xầm xì rằng: “Cuộc phước thí gì đâu ấy?”.
 
 Thật ra, hai vị đại thí chủ nhờ thân cận quen ý Chư Tăng nên thành tựu trong việc dâng cúng
@@ -6297,9 +6281,7 @@ tất cả Chư Thiên, từ quả địa cầu cho đến cõi Đại Phạm Th
 Đức Bổn Sư khen vị Thiền sư bốn lượt như vậy, sau khi nghe tiếng Sādhu! Lành thay, lần cuối
 cùng, nhóm thị giả và đệ tử của vị Pháp sư đều bất bình, than phiền trách móc rằng: “Tại sao Đức
 Bổn Sư lại làm như vậy, vị Trưởng Lão già dốt kia có biết chi đâu mà Đức Bổn Sư Ngài lại quá khen
-lão sādhu đến bốn lượt như thế. Còn vị Pháp sư là thầy của chúng ta đã thuộc nằm lòng tất cả Phật
-
-ngôn trong Tam Tạng lại là vị Tăng trưởng của năm trăm Tỳ Khưu thì Ngài chẳng tán thưởng lần nào
+lão sādhu đến bốn lượt như thế. Còn vị Pháp sư là thầy của chúng ta đã thuộc nằm lòng tất cả Phật ngôn trong Tam Tạng lại là vị Tăng trưởng của năm trăm Tỳ Khưu thì Ngài chẳng tán thưởng lần nào
 cả”.
 
 Nghe Chư Tăng đang xầm xì to nhỏ, Đức Bổn Sư quay lại hỏi rằng: “Nầy các Tỳ Khưu! Các ông
@@ -6763,9 +6745,7 @@ của con chó cái nói trên.
 
 Kālī lo an táng chồng rồi, còn nán ở lại làm công việc trong nhà chủ trại bò. Lãnh được một gáo
 gạo, chị bèn nấu cơm để bát cúng dường Đức Phật Độc Giác và phát nguyện rằng: “Xin cho phước
-nầy thấu đến chồng con”, nguyện rồi chị tự nghĩ: “Ta nên ở lại đây phục dịch, vì Ngài Trưởng Lão
-
-mỗi ngày đều đến đây thọ bát. Dầu ta có cúng dường hay không, mỗi ngày ta cũng được dịp lễ bái
+nầy thấu đến chồng con”, nguyện rồi chị tự nghĩ: “Ta nên ở lại đây phục dịch, vì Ngài Trưởng Lão mỗi ngày đều đến đây thọ bát. Dầu ta có cúng dường hay không, mỗi ngày ta cũng được dịp lễ bái
 phục dịch Ngài. Như vậy, chắc chắn ta sẽ tạo được nhiều phước báo cho đời vị lai” Thế là từ đó chị
 Kālī ở luôn làm công cho chủ trại.
 
@@ -6828,9 +6808,7 @@ bằng cả tấm lòng trìu mến vậy.
 Lôi Âm thiên tử không được trường thọ để hưởng lộc trời, (Trên Thiên giới, Chư Thiên mạng
 chung vì hết tuổi thọ, hoặc vì hết phước, vì quên thọ thực hay vì quá sân hận). Vị nào do tạo nhiều
 phước nghiệp, thọ sanh lên cõi trời nào, sống mãi tùy theo số tuổi thọ của Chư Thiên cõi ấy, chết rồi
-sanh đi sanh lại cũng chưa hết phước. Như vậy gọi là mạng chung vì hết tuổi thọ, vị nào tạo chút ít
-
-phước thọ sanh lên cõi trời nào, khi hưởng hết phước để dành thì phải chết, ví như người gởi vào
+sanh đi sanh lại cũng chưa hết phước. Như vậy gọi là mạng chung vì hết tuổi thọ, vị nào tạo chút ít phước thọ sanh lên cõi trời nào, khi hưởng hết phước để dành thì phải chết, ví như người gởi vào
 công khố độ bốn, năm lon lúa, lấy ra hết rồi thôi, như thế mạng chung vì hết phước, còn vị nào đang
 mê say thọ hưởng ngũ trần, mãi ham vui mà quên lãng việc thọ thực, vị ấy cũng phải chết vì xác thân
 không được dinh dưỡng, như thế gọi là mạng chung vì quên thọ thực và vị nào thấy vị khác có nhiều
@@ -7367,9 +7345,7 @@ Do những lái buôn từ thành Bhaddavatī đến Kosambi, Thiên hộ đư�
 của nhà cự phú ở nước láng giềng, sanh lòng ái mộ, muốn kết tình hữu nghị nên gởi tặng phẩm đến
 cho viên ngoại. Bánh ích đi bánh qui lại, hai nhà giao hảo như thế, nhưng chưa có dịp gần nhau. Một
 thời gian sau, nhà viên ngoại Bhaddavatī bị nhiễm bịnh thiên thời (ahivātarogo). Ruồi lằn chết trước
-tiên, kế đến kiến mối, chuột, bọ, gà, vịt, heo, chó, mèo, bồ câu, tớ gái, tớ trai. Sau cùng tất cả gia
-
-nhân đều chết rụi, những người sợ chết lây, bỏ nhà chạy đi lánh nạn thì còn được sống sót. Trong số
+tiên, kế đến kiến mối, chuột, bọ, gà, vịt, heo, chó, mèo, bồ câu, tớ gái, tớ trai. Sau cùng tất cả gia nhân đều chết rụi, những người sợ chết lây, bỏ nhà chạy đi lánh nạn thì còn được sống sót. Trong số
 đó có viên ngoại Bhaddavatī, bà vợ và cô con gái tên là Sāmā (Ô Nhi: Con đen).
 
 Chạy thoát nơi tử địa rồi, viên ngoại tính muốn qua thăm Thiên hộ Ghosaka, bèn cùng vợ con
@@ -8809,9 +8785,7 @@ hoan hỷ, vui thích thỏa mãn trong sự chuyên cần.
 **_Ariyānaṁ gocare ratā_** (Cõi Thánh được thung dung): Các vị hoan hỷ trong sự chuyên cần,
 càng ngày càng tinh tấn thêm, ắt được hưởng sự an vui tịnh lạc, tự tại ung dung trong cảnh giới thiền
 định Đạo quả của bậc Thánh nhân, gọi là cõi Thánh của hàng Thinh Văn đệ tử Phật Độc Giác và chư
-Chánh Đẳng Giác, gồm có bốn chỗ niệm, ba mươi bảy pháp trợ đạo, và chín pháp siêu thế... Te
-
-jhāyino (Người tu thiền định) chỉ các bậc hiền trí hằng tu tập theo hai pháp hành Thiền định,
+Chánh Đẳng Giác, gồm có bốn chỗ niệm, ba mươi bảy pháp trợ đạo, và chín pháp siêu thế... Te jhāyino (Người tu thiền định) chỉ các bậc hiền trí hằng tu tập theo hai pháp hành Thiền định,
 (Samādhi) và Chỉ quán (Samātha vipassamā) để đắc thiền định và Đạo quả, bằng cách định tâm trên
 đối tượng gọi là Bát thiền (aṭṭhasa-māpatti) và pháp quan sát ba tướng (Vô thường, Khổ não, Phi
 ngã), gọi là Minh sát (vipassanā).
@@ -9889,9 +9863,7 @@ Như người trên núi nhìn dân dưới đồng”._
 Tiếng Nudati trên đây nghĩa là tống đi, cũng như lớp nước từ trên núi chảy xuống ao hồ, làm
 xáo trộn lớp nước cũ không cho ở yên, như lấy đầu đụng đầu, đuổi tống lớp cũ chạy đi như thế nào.
 Cũng như thế ấy, bậc hiền trí sau khi phát triển chuyên cần, không cho nết phóng dật ở yên. Lúc bấy
-giờ mới dùng hạnh chuyên cần khử trục nết phóng dật chạy đi cho lẹ. Noi theo sự hành chánh đạo
-
-rốt ráo, viên mãn, là cái cầu thang. Người tiến bước lên đài Bát nhã, là có trí tuệ phát huy cái được
+giờ mới dùng hạnh chuyên cần khử trục nết phóng dật chạy đi cho lẹ. Noi theo sự hành chánh đạo rốt ráo, viên mãn, là cái cầu thang. Người tiến bước lên đài Bát nhã, là có trí tuệ phát huy cái được
 gọi là Thiên nhãn thuần tịnh, bẻ gãy mũi nhọn của sầu tư mà thành bậc Vô sầu (Asoko), rồi dùng
 Thiên nhãn nhìn xem nhân loại đang đau khổ vì chưa nhổ được cái gai ưu tư, thấy những nhóm phàm
 linh đang chết đi và những nhóm khác đang sanh trở lại.
@@ -10903,9 +10875,7 @@ lôi ra khỏi gian nhà ngũ dục mà nó hằng vui say thỏa thích, bị �
 hành giả thân tâm tinh tấn, cần tu nhiệt tâm tinh cần để mau thoát khỏi cái vòng luân hồi, gọi là
 cảnh giới của ác ma thì nó cũng run rẩy, vẫy vùng không chịu yên lặng. Tuy nhiên là kẻ nam tử, là
 bậc trí tuệ cũng không vì thấy khó mà bỏ qua hay là xao lãng phận sự rèn luyện tâm mình, uốn nắn
-nó trở nên chân chánh và dễ sử dụng được. Hoặc là: Cái phàm tâm nầy, vì còn bị trói buộc trong
-
-vòng luân hồi Khổ não, còn ở dưới quyền thao túng của Ma vương cho nên nó run rẩy hãi hùng như
+nó trở nên chân chánh và dễ sử dụng được. Hoặc là: Cái phàm tâm nầy, vì còn bị trói buộc trong vòng luân hồi Khổ não, còn ở dưới quyền thao túng của Ma vương cho nên nó run rẩy hãi hùng như
 loài thủy tộc bị vớt lên khỏi nước vậy. Hãy mau thoát khỏi cảnh giới của ác ma, thoát ra cái gọi là
 vòng luân hồi Khổ não hằng làm cho tâm phàm run rẩy hãi hùng.
 Bài kệ vừa dứt, Trưởng Lão Meghiya chứng đắc Tu Đà Huờn quả, trong số các Tỳ Khưu khác
@@ -11009,9 +10979,7 @@ của danh sắc trong tự ngã, liền chứng đắc Đạo quả A Na Hàm t
 Sau khi hưởng thụ hương vị Đạo quả, bà dùng Thiên nhãn quan sát xem thử coi: “Chừng nào
 các con trai của ta mới đạt đến pháp nầy?”. Bà thấy rằng: “Tất cả Chư Tăng đều chưa đắc thiền định
 Đạo quả chi hết. Vì tâm còn vướng tham, sân, si”. Bà lại quán xét xem: “Các con trai ta có căn lành
-chứng đắc A La Hán chăng?”. Bà thấy rằng có, bà lại quán xét thử: Chỗ ngụ có được thích hợp
-
-chăng? Bà thấy rằng chỗ ngụ thích hợp, bà lại tìm xét rằng: Bạn lữ có thích hợp chăng? Bà lại thấy
+chứng đắc A La Hán chăng?”. Bà thấy rằng có, bà lại quán xét thử: Chỗ ngụ có được thích hợp chăng? Bà thấy rằng chỗ ngụ thích hợp, bà lại tìm xét rằng: Bạn lữ có thích hợp chăng? Bà lại thấy
 rằng bạn lữ thích hợp.
 
 Khi quán đến vật thực có thích hợp chăng, bà lại thấy rằng “Vật thực chẳng thích hợp với Chư
@@ -12022,9 +11990,7 @@ Chư Tăng bạch hỏi Đức Bổn Sư:
 - Nầy các Tỳ Khưu! Nếu muốn biết thì các ông hãy lắng nghe.
   Đức Bổn Sư dẫn tích rằng:
   “Trong thời kỳ của Đức Chánh Biến Tri Kassapa, Tỳ Khưu này là một người săn chim, sau khi
-  bắt được chim, y đem dưng cho các vị lãnh chúa, còn dư ra thì đem bán. Khi bán không hết, y sợ làm
-
-thịt để dành thì thịt chim không còn tươi, nên bẻ lọi giò, lọi cánh chim để chim còn sống mà không
+  bắt được chim, y đem dưng cho các vị lãnh chúa, còn dư ra thì đem bán. Khi bán không hết, y sợ làm thịt để dành thì thịt chim không còn tươi, nên bẻ lọi giò, lọi cánh chim để chim còn sống mà không
 thể thoát được, y để chim nằm chung một đống.
 
 Qua ngày sau, y lại đem đống chim ấy ra bán, khi nào săn được nhiều chim thì y cho người nấu
@@ -12294,9 +12260,7 @@ tội cho bạn con”.
   ngại chi cả.
 - Bạn à! Tôi đã sống một kiếp là nam nhân, sau đó là nữ nhân và bây giờ trở lại thân nam nhân
   như trước. Ba lần thay đổi xác thân. Lần đầu, tôi là cha hai đứa con trai, lần sau là mẹ hai đứa con
-  trai khác, cho nên bây giờ đây tôi đã chán ngán đời sống tại gia. Thôi bạn đừng cố gắng lưu tôi lại
-
-làm gì. Tôi sẽ đến xuất gia với Ngài Trưởng Lão, hai đứa con nầy xin bạn ráng nuôi nấng, dạy dỗ,
+  trai khác, cho nên bây giờ đây tôi đã chán ngán đời sống tại gia. Thôi bạn đừng cố gắng lưu tôi lại làm gì. Tôi sẽ đến xuất gia với Ngài Trưởng Lão, hai đứa con nầy xin bạn ráng nuôi nấng, dạy dỗ,
 đừng bỏ chúng vất vả tội nghiệp.
 
 Nói rồi, công tử Soreyya hôn hít, nựng nịu hai đứa con trai, đoạn nắm tay chúng giao trả tận
@@ -13325,9 +13289,7 @@ Nửa đêm bị nước cuốn đi thình lình”.
 **CHÚ GIẢI:**
 
 Trong bài kệ Phạn Ngữ, câu **_byāsattamanasaṁ_** nghĩa là: Tâm còn lưu luyến đến chỗ đã đến,
-hoặc đến chỗ chưa đến cũng như thợ làm tràng hoa, vào hoa viên để hái hoa, tuy còn đang hái ở đây
-
-mà tâm đã vọng tưởng đến chỗ khác, người ấy đưa tâm đi chu du khắp vườn hoa, dự định hái hết chỗ
+hoặc đến chỗ chưa đến cũng như thợ làm tràng hoa, vào hoa viên để hái hoa, tuy còn đang hái ở đây mà tâm đã vọng tưởng đến chỗ khác, người ấy đưa tâm đi chu du khắp vườn hoa, dự định hái hết chỗ
 nầy sang qua chỗ kia, vừa đi vừa hái hoa, vừa để tâm lông bông như thế nào, thì cũng như thế ấy,
 người sa mê đắm nhiễm ngũ trần, khi chiếm hữu một bông hoa biết nói, có một nhan sắc ưa nhìn,
 hoặc có thinh hương vị, xúc vừa lòng đẹp ý rồi, cũng còn hướng tới mơ ước những bông hoa khác nữa,
@@ -15212,9 +15174,7 @@ Khi ấy, Đức Thế Tôn đáp rằng:
   nơi thôn quê hay thành thị đó, cho đến các phương hướng, chư Sa Môn và Bà la môn hằng ca tụng
   rằng: “Nơi chốn thôn quê hay thành thị nọ, có nữ nhân ấy hoặc nam nhân ấy là người quy y Phật...
   Hoan hỷ chia sớt vật thí đến tất cả mọi người”. Chư Thiên và nhân loại cũng hằng ca tụng rằng: “Nơi
-  chốn thôn quê hoặc thành thị nó, có nữ nhân ấy, có nam nhân ấy là người quy y Phật... Hoan hỷ chia
-
-sớt vật thí đến tất cả mọi người”. Này Ānanda, đó là giống có hương mà hương của nó bay xuôi chiều
+  chốn thôn quê hoặc thành thị nó, có nữ nhân ấy, có nam nhân ấy là người quy y Phật... Hoan hỷ chia sớt vật thí đến tất cả mọi người”. Này Ānanda, đó là giống có hương mà hương của nó bay xuôi chiều
 gió, bay ngược chiều gió, bay xuôi lẫn ngược chiều gió vậy.
 
 Giải xong, Đức Bổn Sư thuyết lên hai bài kệ:
@@ -17471,9 +17431,7 @@ như những chiếc dĩa bạc bao quanh kim thân Đức Bổn Sư. Khi Ngài 
 nhưng hoa dường như cũng có tâm sùng kính ái mộ, không rời xa Đức Thế Tôn, chúng quấn quít đi
 theo. Khi Ngài dừng chân thì chúng cũng đứng lại. Từ kim thân Ngài phát ra ngàn lằn điện quang. Cả
 bốn phía trước, sau, phải, trái và trên đầu Ngài đều phát ra quang tuyến như nhau. Những tia sáng
-nầy chẳng có tia nào chạy lãng ra xa. Tất cả đều nhiễu quanh Đức Thế Tôn ba vòng rồi nhập lại
-
-thành những cây ánh sáng bằng cỡ cây thốt nốt còn tơ, đoạn chạy trước vẹt đường làm cho cả kinh
+nầy chẳng có tia nào chạy lãng ra xa. Tất cả đều nhiễu quanh Đức Thế Tôn ba vòng rồi nhập lại thành những cây ánh sáng bằng cỡ cây thốt nốt còn tơ, đoạn chạy trước vẹt đường làm cho cả kinh
 thành đều náo động.
 
 Trong số một trăm tám mươi triệu dân chúng, chín mươi triệu ở trong thành và chín mươi triệu
@@ -18826,9 +18784,7 @@ thay!” vang dậy.
 
 Ông Citta lưu lại bên Đức Thế Tôn trong thời gian một tháng. Lúc ấy, mỗi ngày đều có lễ Trai
 Tăng trong chùa Kỳ Viên, do Thiện tín cúng dường cho toàn thể chư Tỳ Khưu Tăng Đức Phật làm tọa
-chủ. Ông Citta và đoàn tùy tùng của ông cũng được thiết đãi tại chùa. Không có ngày nào mà ông
-
-phải đi lấy vật dụng chi để trên xe bò của ông cả. Chư Thiên trong nhân loại mang tặng phẩm đến
+chủ. Ông Citta và đoàn tùy tùng của ông cũng được thiết đãi tại chùa. Không có ngày nào mà ông phải đi lấy vật dụng chi để trên xe bò của ông cả. Chư Thiên trong nhân loại mang tặng phẩm đến
 Trai Tăng và đảm đang tất cả mọi việc cúng dường.
 
 Đến giáp tháng, ông Citta vào đảnh lễ đức Bổn Sư và bạch rằng:
@@ -19481,9 +19437,7 @@ thẳng cánh, không chịu cong quẹo thì bàn tay sẽ ngay ra để xuốn
 như chụm tay lại đưa xuống, đến khi giở lên thì có thể bốc lấy cục cơm mà đem lên được. Chính khi
 nào làm việc tà vạy nhất là thân tà hạnh như thế mà lễ lộc phát sanh, thì con đường tu hành nầy chỉ
 thiên về danh lợi thế gian, không hợp theo lẽ đạo (adhammika), còn dính mắc trong vòng tái sanh
-luân hồi. Lợi lộc phát sanh hợp theo lẽ đạo là khi nào vị Tỳ Khưu chỉ nương theo y bát, nghiêm trì giới
-
-luật, cư ngụ trong rừng... Tỳ Khưu là hành giả đi trên đường đến Níp Bàn phải dứt bỏ tất cả tà hạnh
+luân hồi. Lợi lộc phát sanh hợp theo lẽ đạo là khi nào vị Tỳ Khưu chỉ nương theo y bát, nghiêm trì giới luật, cư ngụ trong rừng... Tỳ Khưu là hành giả đi trên đường đến Níp Bàn phải dứt bỏ tất cả tà hạnh
 do thân khẩu là nhiều nhứt, không đui phải làm như đui, không câm phải làm như câm, không điếc
 phải làm như điếc, không nên lường gạt tráo trở, giả dối, điêu ngoa.
 
@@ -19961,9 +19915,7 @@ muôn vị Tỳ Khưu.
 
 Vợ của đại Trưởng giả không chịu đồng hưởng phước như mọi người, mà định sử dụng trí tuệ
 của mình để tạo ra công đức tối thắng hơn: “Ta sẽ cúng dường đến đức Bổn Sư”. Nghĩ như vậy, bà
-lấy một đóa hoa Anoja (Hoàng Hoa) gói trong một khăn choàng có màu như hoa Anoja trị giá một
-
-trăm ngàn đồng vàng. Chờ khi Đức Bổn Sư sắp tụng kinh phúc chúc, bà dâng y cùng hoa đến Ngài,
+lấy một đóa hoa Anoja (Hoàng Hoa) gói trong một khăn choàng có màu như hoa Anoja trị giá một trăm ngàn đồng vàng. Chờ khi Đức Bổn Sư sắp tụng kinh phúc chúc, bà dâng y cùng hoa đến Ngài,
 đặt tấm y choàng quí giá dưới chân Đức Phật, bà phát nguyện: “Bạch Ngài, xin cho con tái sanh
 trong cảnh giới nào, cũng được thân thể sáng màu vàng cam như sắc Hoàng Hoa (Anoja) đây vậy, và
 xin cho con được mang tên là Anoja (Hoàng Hoa) nữa”.
@@ -20358,9 +20310,7 @@ dường làm phước. Vậy phần bạn, bạn lãnh để bát bao nhiêu v�
   lất qua ngày, tôi biết lấy chi để bát Tỳ Khưu mà ông kêu gọi.
 
 Người đi khuyên nhủ người khác làm phước phải là người khéo nói, mới thuyết phục người khác
-theo mình được. Bởi vậy, ông Thiện nam dầu nghe anh Mahāduggata than túng, cũng không làm
-
-thinh mà nói tiếp rằng: “Nầy bạn Mahāduggata, trong thành nầy, có nhiều người ăn ngon, mặc áo
+theo mình được. Bởi vậy, ông Thiện nam dầu nghe anh Mahāduggata than túng, cũng không làm thinh mà nói tiếp rằng: “Nầy bạn Mahāduggata, trong thành nầy, có nhiều người ăn ngon, mặc áo
 đẹp, nằm trên giường ngà chiếu ngọc, thân thể thì trau giồi đeo, giắt nhiều loại nữ trang quí giá. Họ
 thì thọ hưởng phước lộc dồi dào như vậy, còn bạn thì mỗi ngày phải làm thuê làm mướn cực khổ,
 kiếm ăn cũng chưa no bụng. Thế mà bạn chẳng nghĩ biết gì rằng: “Vì ta không gieo chút ít phước chi
@@ -22215,9 +22165,7 @@ nghỉ là nằm xuống ngủ. Sa di thầm nghĩ: "Hôm nay ta với thầy H�
 một chỗ ngụ đến ngày thứ ba rồi, nếu ta nằm sợ e ta sẽ ngủ quên đến sáng, thì Trưởng lão sẽ phạm
 giới ngủ chung ba đêm với Sa di. Thôi ta sẽ ngồi cho qua hết đêm nay vậy". Thế rồi, Sa di ngồi kiết
 già kế bên giường ngủ của thầy Hòa Thượng mà nghỉ cho qua một đêm. Hôm sau, trời vừa mờ mờ
-sáng, Trưởng lão thức dậy, tự nghĩ: "Ta phải bảo ông Sa di đi ra ngủ bên ngoài mới được", nên lấy
-
-cây quạt để bên giường, Trưởng lão dùng đầu nhọn cây quạt đập xuống chiếc chiếu của Sa di, rồi giở
+sáng, Trưởng lão thức dậy, tự nghĩ: "Ta phải bảo ông Sa di đi ra ngủ bên ngoài mới được", nên lấy cây quạt để bên giường, Trưởng lão dùng đầu nhọn cây quạt đập xuống chiếc chiếu của Sa di, rồi giở
 quạt lên gọi: "Nầy Sa di, hãy đi ra ngoài", không may đầu cây quạt xỉa trúng một mắt của Sa di,
 tròng mắt bị bể ra.
 
@@ -24202,9 +24150,7 @@ Thế rồi, ông ta nói với Chư Tăng:
 Trên đường đi của ông Thiện nam, có một khu rừng rậm, trong rừng ấy có năm trăm tên cướp
 mới đến lập sào huyệt và nguyện với Chư Thiêntrong rừng rằng: "Ai vào rừng nầy, chúng tôi sẽ giết
 chết, lấy máu và thịt cúng tế linh thần". Chúng trú ở nơi ấy được bảy ngày. Hôm ấy là ngày thứ bảy,
-tên chúa đảng trèo lên cây, canh chừng những bộ hành, trông thấy ông Thiện nam đi đến, bèn ra dấu
-
-cho đồng đảng. Bọn cướp biết được ông ta đã vào đến giữa rừng, bèn bao vây bắt được. Lấy dây trói
+tên chúa đảng trèo lên cây, canh chừng những bộ hành, trông thấy ông Thiện nam đi đến, bèn ra dấu cho đồng đảng. Bọn cướp biết được ông ta đã vào đến giữa rừng, bèn bao vây bắt được. Lấy dây trói
 tay chân ông thật chặt, lấy cây cọ kéo cho ra lửa để nhóm lửa, gom củi lại chất thành một đống lửa
 lớn, và lấy cây chỉa thọc cho thông hơi. Ông Thiện nam thấy bọn cướp làm như thế, bèn hỏi:
 
@@ -24602,9 +24548,7 @@ Thế Tôn nghe Chư Tăng tường trình xong liền giải thích rằng:
 - Nầy các Tỳ khưu, các bậc Lậu tận không bao giờ tự tay cắt đứt sinh mạng của mình (Như lời
   Phật dạy, vị A La Hán không bao giờ tự sát, vị Tỳ khưu trong Phật giáo tự sát phạm tội tác ác, phải sa
   Địa ngục bảy ngày sau khi chết. Nhưng cũng có trường hợp tự sát mà đắc A La Hán trong giờ phút
-  chót, như Trưởng lão Cồ Điệt (Kệ Pháp Cú số 57, Phẩm hoa.) Trường hợp của Trưởng lão Sappadāsa
-
-lại khác: Ngài không chết vì chưa cắt cổ mà đã đắc A La Hán, do đó ý nghĩ tự sát không còn. Ngài chỉ
+  chót, như Trưởng lão Cồ Điệt (Kệ Pháp Cú số 57, Phẩm hoa.) Trường hợp của Trưởng lão Sappadāsa lại khác: Ngài không chết vì chưa cắt cổ mà đã đắc A La Hán, do đó ý nghĩ tự sát không còn. Ngài chỉ
 cắt đứt phiền não bằng lưỡi dao Trí tuệ mà thôi - Chỗ nầy bản dịch của ông P.K. Khánh có hơi khác:...
 Thầy lấy dao tự cắt lấy cuống họng, lúc cắt xong Thầy suy niệm về đời sống toàn thiện, tận lực cố
 gắng Tham thiền và đắc quả A La Hán trước khi nhắm mắt... Sự sai biệt nầy có lẽ xuất phát từ
@@ -24840,9 +24784,7 @@ cho cô Tín nữ rằng: "Trong ngày vị lai vào thời Đức Phật Cồ �
 Tỳ khưu Ni giỏi nhất về Tạng Luật".
 
 Do nàng đã tròn đủ hạnh nguyện Ba la mật như thế, cho nên vừa thấy nàng từ xa đi đến, Đức
-Bổn Sư đã nghĩ thầm: "Ngoài Ta ra, không ai có thể là người tế độ cho nàng Sa Đọa cả". Rồi Ngài
-
-dùng Thần thông khiến cho nàng đi ngay đến trước cổng chùa. Các Thiện tín thấy nàng Sa Đọa, vội
+Bổn Sư đã nghĩ thầm: "Ngoài Ta ra, không ai có thể là người tế độ cho nàng Sa Đọa cả". Rồi Ngài dùng Thần thông khiến cho nàng đi ngay đến trước cổng chùa. Các Thiện tín thấy nàng Sa Đọa, vội
 bảo nhau: "Cô này điên, ta đừng để cô ấy vào đây".
 
 Đức Bổn Sư lên tiếng: "Các Thiện tín hãy lánh mặt, đừng ai cản đường cô ấy cả". Rồi Ngài ra
@@ -25386,9 +25328,7 @@ Kệ Pháp Cú nầy, Đức Bổn Sư đã thuyết, khi Ngài ngự tại Kỳ
 đến Trưởng lão Seyyasaka (Seyyasaka).
 
 Trong Tạng Luật quyển hai có ghi: Tỳ khưu Xây Dá Sá Ká là đệ tử sống chung với thầy là
-Trưởng lão Loḷudāyi (Loḷuđāyi). Khi đệ tử có tâm buồn bực không vui (vì không chiến thắng nổi tình
-
-dục) và đã thú thật tâm trạng của mình với thầy, ông thầy lại xúi dục đệ tử thủ dâm (giới Tăng Tàn số
+Trưởng lão Loḷudāyi (Loḷuđāyi). Khi đệ tử có tâm buồn bực không vui (vì không chiến thắng nổi tình dục) và đã thú thật tâm trạng của mình với thầy, ông thầy lại xúi dục đệ tử thủ dâm (giới Tăng Tàn số
 một): "Mỗi khi tâm buồn bực nổi lên thì trò hãy làm như tôi vậy!".
 
 Được Chư Tăng báo cáo việc này, Đức Bổn Sư cho gọi Tỳ khưu Xây Dá Sá Ká đến hỏi:
@@ -25665,9 +25605,7 @@ bào chữa cho ngươi được. Tuy nhiên ta sẽ dạy cho ngươi một ph�
 - Ngươi hãy đi! Trước hết hãy hóa thân làm người quản gia của ông Bá hộ, cầm những giấy nợ
   của những người sống bằng nghề buôn, đã vay tiền ông Bá hộ, đòi cho đủ số một trăm tám mươi
   triệu đồng vàng, dùng Thần thông quét sạch kho bạc trống không, đổ đầy tiền vào đó. Còn một số tài
-  sản một trăm tám mươi triệu tiền vàng đã chìm sâu dưới biển lớn. Ở một chỗ khác nữa, có một của
-
-chôn vô chủ một trăm tám mươi triệu đồng. Hãy gom tất cả về đổ đầy cái kho trống. Sau khi đoái
+  sản một trăm tám mươi triệu tiền vàng đã chìm sâu dưới biển lớn. Ở một chỗ khác nữa, có một của chôn vô chủ một trăm tám mươi triệu đồng. Hãy gom tất cả về đổ đầy cái kho trống. Sau khi đoái
 công chuộc tội như thế rồi, hãy đến xin sám hối gia chủ mới được!
 
 Cô Thiên nữ đáp: "Lành thay, tâu Thiên Vương".
@@ -26283,9 +26221,7 @@ của rồi". Ông liền tuyên bố:
   tháp.
 
 Ông Bá hộ thành có thể tăng thêm số tiền làm phước, nhưng phải nhường cho đối phương phần
-công quả của tự mình lẫn vợ con và dâu cho Bá hộ làng, nên tuyên bố rằng: "Xin hãy để cho ông này
-
-làm chủ lễ" và tất cả Thiện tín bầu ông ở làng làm chủ lễ ngay". Như thế là cả mười sáu người đều
+công quả của tự mình lẫn vợ con và dâu cho Bá hộ làng, nên tuyên bố rằng: "Xin hãy để cho ông này làm chủ lễ" và tất cả Thiện tín bầu ông ở làng làm chủ lễ ngay". Như thế là cả mười sáu người đều
 làm công quả nơi bảo tháp Xá lợi, còn Bá hộ thành người ta cho rảnh rang tự do.
 
 Nhờ suốt đời chăm sóc Thánh tháp như thế, sau khi chết cả mười sáu người được sanh lên
@@ -26678,9 +26614,7 @@ chúng mình sẽ có thịt ăn!"
 
 Nghe lũ trẻ nói vậy, chị ta mắc cỡ, lấy gậy, lấy đá đánh đuổi con chó chạy đi xa. Theo truyền
 thuyết, con chó nầy đã là chồng của chị ta trong ba tiền kiếp, cho nên không thể đoạn tuyệt luyến ái
-được. Quả thật, mặc dầu trong cái vòng luân hồi vô thỉ, ban đầu không có ai là vợ hoặc là chồng ai
-
-cả, nhưng trong những kiếp gần đây, vì tình thân thuộc mà phát sanh sự ái luyến thái quá, cho đến
+được. Quả thật, mặc dầu trong cái vòng luân hồi vô thỉ, ban đầu không có ai là vợ hoặc là chồng ai cả, nhưng trong những kiếp gần đây, vì tình thân thuộc mà phát sanh sự ái luyến thái quá, cho đến
 nỗi con chó lìa xa chị ta không được.
 
 Phụ nữ nổi giận, muốn giết con chó, bèn lấy một cuộn dây đem theo mình, khi đem cháo ra
@@ -27425,9 +27359,7 @@ Hương Thất đang cháy, không mảy may chút buồn phiền ông còn vỗ
 - Thưa chủ, tại sao ông bỏ ra nhiều tiền để tạo Hương thất, mà ông lại vỗ tay cười khi nó đang
   cháy như vậy.
 - Này các người ơi! Bao nhiêu công trình của ta làm đó là của chôn để dành đặc biệt là Phật
-  Giáo. Không có sự tai hại nào nhất là lửa có thể lấy mất được. Vã lại, như vầy ta lại có dịp xuất ra một
-
-số tiền tương đương như vậy để tái tạo Hương thất dâng cúng đức Bổn Sư, nên ta thỏa thích vỗ tay
+  Giáo. Không có sự tai hại nào nhất là lửa có thể lấy mất được. Vã lại, như vầy ta lại có dịp xuất ra một số tiền tương đương như vậy để tái tạo Hương thất dâng cúng đức Bổn Sư, nên ta thỏa thích vỗ tay
 cười.
 
 Sau khi xuất ra một số tiền của nhiều như trước, cho cắt xong Hương Thất, Trưởng giả làm
@@ -27890,9 +27822,7 @@ và xử sự đúng theo Thiên pháp"
 Rồi Dạ xoa mang cả hai người em trai trao lại cho Bồ Tát. Kế đó, Bồ Tát thuyết pháp giải về
 những tội lỗi của kiếp sống làm Dạ xoa, rồi cho nó thọ trì ngũ giới. Từ đó, Bồ Tát sống an vui trong
 rừng ấy, nhờ có Dạ xoa hộ trì và phục vụ chu đáo, cho đến khi Phụ vương thăng hà, dắt cả Dạ xoa về
-thành Bārānasī, lấy lại Vương quốc, phong cho Hoàng đệ canda làm Phó Vương, đặt Hoàng đệ Suriya
-
-làm tổng lãnh binh. Còn đối với Dạ xoa, Bồ tát cho đào một cái ao tại một địa điểm thích hợp, cho nó
+thành Bārānasī, lấy lại Vương quốc, phong cho Hoàng đệ canda làm Phó Vương, đặt Hoàng đệ Suriya làm tổng lãnh binh. Còn đối với Dạ xoa, Bồ tát cho đào một cái ao tại một địa điểm thích hợp, cho nó
 nhận được lễ lộc vật thực quí giá nhất.
 
 Sau khi thuyết xong tích nầy, đức Bổn Sư kết thúc Túc Sanh cho biết: Dạ xoa khi ấy nay là vị Tỳ
@@ -28353,9 +28283,7 @@ Khi số ngày làm công của anh đã đủ, người tổng hậu lo đặt 
 hề phạm lỗi trong công việc nào cả."
 
 Ông Trưởng liền bảo người quản gia xuất ra ba ngàn đồng Hai ngàn đồng lo bửa cơm trưa và
-bửa cơm chiều cho mình, còn một ngàn để lo bửa cơm trưa cho người làm công, rồi ông dặn: Hôm
-
-nay tất cả mọi người, trừ nàng Cintamanī là vợ yêu của ông, phải lo phục vụ hầu hạ anh ấy cũng y
+bửa cơm chiều cho mình, còn một ngàn để lo bửa cơm trưa cho người làm công, rồi ông dặn: Hôm nay tất cả mọi người, trừ nàng Cintamanī là vợ yêu của ông, phải lo phục vụ hầu hạ anh ấy cũng y
 như là ông vậy. Thế rồi, ông Trưởng giả giao hết tài sản của ông cho Bhattabhatika được quyền
 hưởng thụ trong ngày ấy. Anh ta bèn vào phòng tắm của Trưởng giả, ngồi trên nền tắm sang trọng,
 tắm bằng nước thơm, xong rồi mặc y phục Trước giả và ngự trên chiếc trường kỷ. Người cổ động của
@@ -28846,9 +28774,7 @@ Ngài phán dạy rằng:
 - Nầy Hiền giả! Bạc Đạo Dư sẽ đi xem xác nàng Sirimā. Vậy Hiền giả có đi chăng?
 - Nầy Hiền giả! Tôi sẽ đi chứ.
   Rồi vị ấy rửa sạch bát, bỏ vào trong áo bát, cùng đi với chư Tỳ khưu. Khi vào trong nghĩa trang,
-  quanh xác nàng Sirimā ấy, Bậc Đạo Sư cùng chư Tăng đứng một phía, Tỳ khưu ni đứng một phía, hội
-
-chúng Vua và Đại thần đứng một phía, các cận sự nam nữ thì đứng về một phía, đứng thành từng
+  quanh xác nàng Sirimā ấy, Bậc Đạo Sư cùng chư Tăng đứng một phía, Tỳ khưu ni đứng một phía, hội chúng Vua và Đại thần đứng một phía, các cận sự nam nữ thì đứng về một phía, đứng thành từng
 nhóm riêng với nhau.
 
 Bấy giờ Bậc Đạo Sư phán hỏi vua Bimbisāra:
@@ -29265,9 +29191,7 @@ người có nhiệt tâm với Phật Giáo. Nếu đức vua biết rằng nà
 phàm nhân, nên Ngài chăng chịu suy xét sâu, đức vua sẽ rơi vào tà kiến, cho rằng: Người nữ như
 Hoàng Hậu Mallikā, có đức tin nhiệt thành với Tam Bảo như thế, khi chết lại phải thọ sanh vào địa
 ngục. Thế thì ta còn bố thí đến chư Tỳ khưu Tăng để mà làm gì chứ. Và như thế, đức Vua sẽ bãi bỏ
-việc thí hạnh mỗi ngày 500 vị Tỳ khưu tại Hoàng Cung, ngoài ra với Vương quyền Ngài còn có thể tạo
-
-ra những ác trọng nghiệp khác, dẫn đến khổ cảnh nữa. Vì thế, Ngài dùng Phật lực khiến đức vua
+việc thí hạnh mỗi ngày 500 vị Tỳ khưu tại Hoàng Cung, ngoài ra với Vương quyền Ngài còn có thể tạo ra những ác trọng nghiệp khác, dẫn đến khổ cảnh nữa. Vì thế, Ngài dùng Phật lực khiến đức vua
 quên khuấy đi suốt cả 7 ngày.
 
 Vào sáng thứ tám, đức Thế Tôn sau khi vận mặc y phục, tay cầm lấy y bát, một mình ngự đi
@@ -31548,9 +31472,7 @@ Hoàng Hậu tâu với đức Vua như thế, vì nàng muốn rằng sự cún
 xếp, sự cúng dường này là cuộc đại thí sự không một thí sự nào có thể sánh bằng.
 
 - Tâu Đại Vương! Xin Ngài hãy cho làm nhà Trai đường bằng cây quí, nền được san bằng phẳng,
-  mái nhà là cây mà phải là cây Sāla mới được. Trai thí đường này rộng rãi, đủ chỗ cho đức Thế Tôn
-
-cùng 500 vị Tỳ khưu ngồi theo thứ lớp cao thấp được phân theo hạ lạp. Bên ngoài là sân rộng dành
+  mái nhà là cây mà phải là cây Sāla mới được. Trai thí đường này rộng rãi, đủ chỗ cho đức Thế Tôn cùng 500 vị Tỳ khưu ngồi theo thứ lớp cao thấp được phân theo hạ lạp. Bên ngoài là sân rộng dành
 cho đại chúng. Hãy cho làm 500 cây lọng trắng, lọng che đức Thế Tôn là lọng hai tầng, còn những vị
 Tỳ khưu là lọng một tầng. Chọn 500 thớt tượng thuần hóa để cầm lọng che cho các Ngài. Cho làm từ
 8 đến 10 chiếc thuyền vàng đặt giữa trai dường, trong thuyền ấy chứa đầy hương trầm Chiên đàn
@@ -32550,9 +32472,7 @@ nhã, không nói lời thô ác. Khi Bà la môn nói lời tao nhã, bò Nanda
 khiến Bà la môn ấy được tài sản. Bà la môn ấy có tâm thỏa thích vì nhận được tài sản lớn".
 
 Sau khi thuyết giảng xong Bổn sanh, đức Thế Tôn ngự lên con đường kinh hành bằng ngọc
-Maṇi ở giữa 24 do tuần đại chúng, phía trái phía phải, trước sau là 12 do tuần đại chúng. Tất cả đều
-
-trông thấy rõ ràng như hiện ra trước mắt mình. Đức Thế Tôn hiển lộ Song Thông Lực giữa đại chúng
+Maṇi ở giữa 24 do tuần đại chúng, phía trái phía phải, trước sau là 12 do tuần đại chúng. Tất cả đều trông thấy rõ ràng như hiện ra trước mắt mình. Đức Thế Tôn hiển lộ Song Thông Lực giữa đại chúng
 ấy.
 
 Bậc trí nên hiểu Song Thông Lực ấy theo ý nghĩa Pāli như vầy:
@@ -33158,9 +33078,7 @@ Long Nữ lại hát đố tiếp câu thứ hai rằng:
 - Nầy Long Vương! Chuyện chi ngươi lại sầu thảm như thế?
 - Bạch Thế Tôn! Trước đây con là một vì Tỳ khưu trong Giáo Pháp của đức Thế Tôn hiệu
   Kāssapa, con đã hành Sa môn Pháp trọn cả 20 ngàn năm, Sa môn Pháp ấy không thể hộ trì cho con
-  được, chỉ vì con đã dễ duôi, không sám hối tội làm đứt cọng cỏ tranh. Nay con lại phải sanh vào Bàng
-
-sanh giới, là hạng người vô nhân, thuộc loài bò trườn, không được làm người để được nghe Chánh
+  được, chỉ vì con đã dễ duôi, không sám hối tội làm đứt cọng cỏ tranh. Nay con lại phải sanh vào Bàng sanh giới, là hạng người vô nhân, thuộc loài bò trườn, không được làm người để được nghe Chánh
 Pháp, không được gặp Phật như Ngài suốt cả một thời gian dài rồi.
 
 Nghe Long Vương bạch như thế, Bậc Đạo Sư phán rằng:
@@ -36132,9 +36050,7 @@ gió cho mát, mình mẩy cô đầm đìa mồ hôi.
 
 Thời ấy, Ngài Dabba mallaputta là người có phận sự sắp xếp chỗ ngụ cho chư Tăng. Sau khi
 nghe dứt pháp thoại, Ngài nhập hỏa giới, triển khai thần thông ngón tay trỏ của Ngài sáng rực giống
-như ngọn đuốc cháy sáng, Ngài dẫn đường đưa chư Tăng về nơi chỗ ngụ. Nhờ có ánh sáng từ ngón
-
-tay trỏ của Ngài, cô Puṇṇā trông thấy chư Tăng đi trên núi. Cô tự nghĩ: "Như ta đây, vì hoàn cảnh
+như ngọn đuốc cháy sáng, Ngài dẫn đường đưa chư Tăng về nơi chỗ ngụ. Nhờ có ánh sáng từ ngón tay trỏ của Ngài, cô Puṇṇā trông thấy chư Tăng đi trên núi. Cô tự nghĩ: "Như ta đây, vì hoàn cảnh
 khổ ép ngặt, mãi đến giờ nầy chưa ngủ được. Còn mấy Ngài Đại đức tại sao cũng chưa đi ngủ?" Rồi
 nàng kết luận rằng: "Trên đó, chắc có vị Tỳ khưu nào bị bịnh hoặc bị tai nạn vì rắn rít".
 
@@ -36594,9 +36510,7 @@ mạnh ý nghĩa của nó cho ông thiện nam lưu ý.
 
 Jātijaraṁ: Sanh lão. Chỗ nầy nên hiểu có thêm bịnh và tử nữa cho đủ tứ khổ.
 Hai kệ ngôn trước thuyết về A na Hàm đạo. Hai câu kệ nầy là nói về A La Hán Đạo. Ở đây,
-chẳng khác nào nhà vua vắt cơm vừa miệng trao tặng cho con. Nhưng Hoàng Tử chỉ cầm lấy vắt cơm
-
-vừa với miệng mình thôi. Cũng như thế, dầu đức Bổn Sư có thuyết pháp đề cập đến đạo cao, nhưng
+chẳng khác nào nhà vua vắt cơm vừa miệng trao tặng cho con. Nhưng Hoàng Tử chỉ cầm lấy vắt cơm vừa với miệng mình thôi. Cũng như thế, dầu đức Bổn Sư có thuyết pháp đề cập đến đạo cao, nhưng
 thiện nam ấy cũng tùy theo duyên, theo sức mà chứng đắc quả thấp là Tu Đà Huờn. Lần sau thì ông
 chứng A na Hàm, kỳ dư đại chúng đều hưởng được lợi ích của thời Pháp.
 
@@ -37570,9 +37484,7 @@ bao nhiêu, túi tiền vẫn không vơi. Xin cho những người nầy hãy l
 như quan hệ trong hiện tại nầy mãi mãi".
 
 Cô dâu của Trưởng giả cũng dâng cúng phần cơm của mình đến đức Phật Độc Giác và nguyện
-rằng: "Xin cho con đừng bao giờ gặp phải nạn đói như vầy nữa. Xin cho con có quyền năng bố thí cho
-
-tất cả mọi người trên cõi Diêm Phù nầy, xin cho thúng mễ cố mà con dùng bố thí chẳng bao giờ vơi.
+rằng: "Xin cho con đừng bao giờ gặp phải nạn đói như vầy nữa. Xin cho con có quyền năng bố thí cho tất cả mọi người trên cõi Diêm Phù nầy, xin cho thúng mễ cố mà con dùng bố thí chẳng bao giờ vơi.
 Trong các cảnh giới con tái sanh xin cho những người nầy là cha chồng, mẹ chồng, là chồng và nô
 bộc của con như trong hiện tại đây".
 
@@ -37901,9 +37813,7 @@ Yena: Do lẽ nào
 Atthaṁ: Cần phải xử đoán rồi quyến định là có.,
 Sahasā naye: Người chìu theo tham dục, dùng cách thô bạo như nói dối mà xử phạt. Như người
 chìu theo ái dục mà binh vực bà con, bạn hữu của mình, nói dối rằng họ là sở hữu chủ, khi họ không
-là sở hữu chủ thật. Người chìu theo sân hận gặp kẻ thù của mình thì cũng nói dối phủ nhận quyền
-
-làm sở hữu chủ của họ. Còn người chìu theo si mê, sau khi đã ăn của đút lót, hối lộ rồi, ngồi xử kiện,
+là sở hữu chủ thật. Người chìu theo sân hận gặp kẻ thù của mình thì cũng nói dối phủ nhận quyền làm sở hữu chủ của họ. Còn người chìu theo si mê, sau khi đã ăn của đút lót, hối lộ rồi, ngồi xử kiện,
 giả tuồng như tâm đang bận nghĩ đến việc khác, nhìn bên nầy bên kia và nói dối phủ nhậ quyền làm
 sở hữu chủ của họ. Còn người chìu theo si mêm, sau khi đã ăn của đút lót, hối lộ rồi, ngồi xử kiện, giả
 tuồng như tâm đang bận nghĩ đến việc khác, nhìn bên nầy bên kia và nói dối rằng: "Người nầy thắng,
@@ -39763,9 +39673,7 @@ Chàng tìm đến chư Phật Độc Giác, bạch hỏi:
 
 Chàng Susima thuận ý xuất gia với các Ngài. Chư Phật Độc Giác đã dạy y thọ trì những học
 giới: "Nên mặc như vầy, nên đạp như vầy"... Do nghiêm trì trong sạch và có duyên lành, không bao
-lâu chứng quả Phật Độc Giác, danh thơm tỏa khắp kinh thành Bārāṇasī như vầng nhật nguyệt và các
-
-vì sao sáng cả bầu trời, đạt được lợi lộc và địa vị tối thượng. Không bao lâu, Ngài Niết Bàn Vô dư vì
+lâu chứng quả Phật Độc Giác, danh thơm tỏa khắp kinh thành Bārāṇasī như vầng nhật nguyệt và các vì sao sáng cả bầu trời, đạt được lợi lộc và địa vị tối thượng. Không bao lâu, Ngài Niết Bàn Vô dư vì
 tuổi thọ quá ít. Chư Độc Giác Phật cùng thị dân an táng thi thể Ngài và xây tháp tôn thờ.
 
 Phần Bà La môn Saṅgha suy nghĩ: "Con ta đi lâu quá sao chưa về, không biết hiện giờ ra sao?"
@@ -39989,9 +39897,7 @@ Khi Bậc Đạo Sư trú tại Veḷuvana, Ngài đề cập đến con trai ô
 ngôn nầy.
 
 Tương truyền rằng: Có hai đứa trẻ cùng nhau trú ngụ chung một kinh thành, một đứa là con
-nhà chánh kiến, đứa kia thì con nhà tà kiến. Đứa có chánh kiến trước khi chơi môn nào, thường tưởng
-
-niệm ân đức Phật: Namo budhassa. Còn đứa kia niệm tưởng tà giáo: Namo arahantānaṁ. Và trẻ
+nhà chánh kiến, đứa kia thì con nhà tà kiến. Đứa có chánh kiến trước khi chơi môn nào, thường tưởng niệm ân đức Phật: Namo budhassa. Còn đứa kia niệm tưởng tà giáo: Namo arahantānaṁ. Và trẻ
 chánh kiến hằng niệm như thế mà thắng nó, nên nó cũng lần niệm tưởng theo cách của bạn mình.
 
 Một hôm, hai cha con vào rừng kiếm củi, trên đường trở về kinh thành, dừng chân tạm nghỉ
@@ -42280,9 +42186,7 @@ ván ngang qua hai thanh tre cao, nàng vừa đi, nhào vừa ca hát trên t�
 khúc điêu luyện trên không qua hai thanh ván ấy.
 
 Trong thành Rājagaha có một Công Tử tên Uggasena, chàng là con một đại Trưởng giả trong
-thành. Khi chàng đi đến vui chơi lễ hội, nhìn thấy nàng vũ nữ biểu diễn nghệ thuật nhào trên không
-
-trung, với những động tác uyển chuyển, mềm mại, nên tâm chàng phát sanh ái luyến. Công tử
+thành. Khi chàng đi đến vui chơi lễ hội, nhìn thấy nàng vũ nữ biểu diễn nghệ thuật nhào trên không trung, với những động tác uyển chuyển, mềm mại, nên tâm chàng phát sanh ái luyến. Công tử
 Uggasena bị ái nhiễm tấn công tâm quá mực, khi trở về nhà chàng suy tưởng đến hình bóng của
 nàng vũ nữ rằng:
 
@@ -43610,9 +43514,7 @@ DỨT TÍCH: HAI VỊ TỲ KHƯU NGHỊCH
 Pañcagaadāyaka, thuyết lên kệ ngôn này.
 
 Tương truyền rằng: Trong thành Rājagaha có vị Bà La Môn thường cúng dường Khalagga trong
-lúc mang lúa về, cúng dường Khalabhaṇḍagga trong lúc đập lúa, cúng dường Ukkhalikagga trong lúc
-
-bỏ vào nồi, cúng dường Pāṭigga trong lúc xới cơm ra bát. Vị Bà La Môn ấy thường cúng dường năm
+lúc mang lúa về, cúng dường Khalabhaṇḍagga trong lúc đập lúa, cúng dường Ukkhalikagga trong lúc bỏ vào nồi, cúng dường Pāṭigga trong lúc xới cơm ra bát. Vị Bà La Môn ấy thường cúng dường năm
 vật thí trong thời cao thượng như thế.
 
 Lại nữa, Bà La Môn nếu có người đến xin vật thí, nếu chưa cho thì vị ấy chưa ăn. Vì thế ông có
@@ -44253,9 +44155,7 @@ DỨT TÍCH: TRƯỞNG LÃO NAṆGALAKŪṬA.
 đề cập đến Trưởng lão Vakkali.
 
 Tương truyền rằng: Trưởng Lão Vakkali. Một hôm trông thấy đức Thế Tôn đi khất thực, với ba
-mươi hai tướng tốt, với màu da vàng rực sáng như kim tinh anh cao thượng, với lục căn thanh tịnh
-
-trang nghiêm. Ngài đã chiêm ngưỡng kim thân đức Thế Tôn không biết chán, thế là Ngài xin được
+mươi hai tướng tốt, với màu da vàng rực sáng như kim tinh anh cao thượng, với lục căn thanh tịnh trang nghiêm. Ngài đã chiêm ngưỡng kim thân đức Thế Tôn không biết chán, thế là Ngài xin được
 xuất gia với Bậc Đạo Sư với ý nghĩ: "Với các nầy, ta sẽ được chiêm ngưỡng đức Thế Tôn hoài".
 
 Từ khi xuất gia, Tỳ khưu Vakkali không có sự tinh cần tu tập Sa môn Hạnh, vị ấy mãi đứng vào
