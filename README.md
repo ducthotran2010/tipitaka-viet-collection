@@ -1,6 +1,6 @@
 # Tipitaka Việt
 
-Tổng hợp và chuyển đổi các Kinh điển cùng Chú giải thành định dạng Markdown.
+Tổng hợp và chuyển đổi các Kinh điển Pāli cùng Chú giải thành định dạng Markdown để chuẩn bị cho Embedding model hoặc Large Language model (LLM).
 
 ## Danh sách các Kinh điển và Chú giải được tổng hợp
 
