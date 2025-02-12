@@ -1008,7 +1008,6 @@ hai lẽ ấy con bò đành chịu để cho hai bánh xe cứ mãi theo sát h
 Con người có tâm nhơ đục, đã làm tất cả ba ác hạnh rồi, nhứt định phải sa vào ác đạo như địa
 ngục chẳng hạn, là nơi mà vì gốc ác hạnh, cả thân tâm của người ấy đều bị tội khổ đuổi theo.
 
-
 Kệ ngôn vừa dứt nhiều vị Tỳ Khưu đắc quả A La Hán với Tuệ Phân tích, kỳ dư thính chúng câu
 hội nơi ấy đều được chứng quả, nhờ nghe thời pháp của Đức Bổn Sư.
 
@@ -1023,9 +1022,7 @@ Quả hái thân còn cực mấy thu.
 Sớm biết hồi đầu lo giải thoát,
 Răn lòng, chẳng trễ buổi công phu.
 
-### I.2- CHUYỆN CẬU MAṬṬHAKUṆḌALI
-
-(Maṭṭhakuṇḍalivatthu)
+### I.2- CHUYỆN CẬU MAṬṬHAKUṆḌALI (Maṭṭhakuṇḍalivatthu)
 
 **KỆ NGÔN: (Pháp Cú số 02)**
 
@@ -1528,7 +1525,6 @@ Cũng như thế ấy, trên lộ trình của người, thiện nghiệp nầy 
 đã thực hành hay chưa thực hành, khi sanh về cõi nào nhất là cõi Dục giới thì thân căn và các thiện
 căn tâm sở tùy thuộc đều có quả an vui theo dính một bên, như bóng với hình không rời nhau vậy.
 
-
 Kệ ngôn vừa dứt, tám muôn bốn ngàn chúng sanh được tỏ ngộ Chánh Pháp. Thiên tử
 Maṭṭhakuṇḍali chứng quả Dự Lưu, cả ông Bà la môn Adiṇṇapubbaka cũng vậy. Ông nầy về sau đem
 cả gia sản khổng lồ của mình ra gieo trồng vào phước điền ở trong Phật giáo.
@@ -1546,9 +1542,7 @@ Phước báu ngàn xuân, quả khá nhanh!
 Chẳng đợi cúng dường cùng thọ giới,
 Thiên đường, Kim ốc cũng thơm danh.
 
-### I.3- CHUYỆN TRƯỞNG LÃO TISSA
-
-(Tissatheravatthu)
+### I.3- CHUYỆN TRƯỞNG LÃO TISSA (Tissatheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 03-04)**
 
@@ -1832,7 +1826,6 @@ bóc người, nên nay người mới trả đũa lại, nghĩ như vậy nên 
 mình, để cho sự sân hận sanh lên, thì mối căm thù tự khắc cũng nguôi ngoai tan rã, nhờ không cố
 chấp cũng như lửa không gặp bổi (nhiên liệu) hay dầu vậy.
 
-
 Thời pháp vừa dứt, một trăm ngàn vị Tỳ Khưu đắc Thánh quả Tu Đà Hườn, kỳ dư đại chúng
 thính pháp đều được hưởng sự lợi ích, và số người bướng bỉnh, ương ngạnh nhờ đó trở nên mềm
 mỏng dễ dạy.
@@ -1848,9 +1841,7 @@ Mà quên hạ nhỏ, bạn bè khinh
 Lắng nghe Phật thuyết nhân tiền nghiệp
 Giải được tâm thù hận chúng sanh.
 
-### I.4- CHUYỆN NGƯỜI SANH LÀM NỮ DẠ XOA
-
-(Kālīyakkhiniya upatti vatthu)
+### I.4- CHUYỆN NGƯỜI SANH LÀM NỮ DẠ XOA (Kālīyakkhiniya upatti vatthu)
 
 **KỆ NGÔN: (Pháp Cú số 05)**
 
@@ -2060,7 +2051,6 @@ tâm chiêm nghiệm, thấu triệt được chân lý thì tự khắc bao nhi
 Pháp dùng nước từ bi để tẩy sạch hận thù là một pháp hoàn toàn bất di bất dịch, đã có tự ngàn
 xưa mà tất cả Chư Phật Độc Giác và Thinh Văn Giác đều công nhận.
 
-
 Bài kệ vừa dứt, nữ Dạ xoa chứng được quả Tu Đà Hườn, thính chúng câu hội nơi ấy cũng đều
 hưởng được sự lợi ích. Kế đó, Đức Bổn Sư bảo thiếu phụ:
 
@@ -2813,7 +2803,6 @@ hòa trở lại, do người như vậy làm gương cho người khác noi the
 **_Samanti medhagāti_** : Các sự tranh chấp, cãi lẫy biện thuyết hơn thua, phải quấy thảy đều yên
 lặng chấm dứt, không còn kéo dài lòng thòng nữa.
 
-
 Đến cuối câu kệ, chư Tỳ Khưu đều đắc quả vị, nhất là quả Tu Đà Huờn.
 
 “Hai nhóm Tỳ Khưu Kosambi,
@@ -2826,9 +2815,7 @@ Từ Tôn vắng bóng còn ai hộ,
 Bụng đói thì thôi hết thị phi”.
 DỨT CHUYỆN CÁC TỲ KHƯU Ở Kosambi
 
-### I.6- CHUYỆN TIỂU HẮC SƯ VÀ ĐẠI HẮC
-
-(Cullakāḷamahākaḷa vatthu)
+### I.6- CHUYỆN TIỂU HẮC SƯ VÀ ĐẠI HẮC (Cullakāḷamahākaḷa vatthu)
 
 **KỆ NGÔN: (Pháp Cú số 07-08)**
 
@@ -3183,7 +3170,6 @@ không lay chuyển, đàn áp được khối đá to mà vững chắc như n�
 Cũng như thế, phiền não Ma vương không thể đàn áp, lay chuyển đối với tâm tánh của người có
 giới đức kiên cố được.
 
-
 Trưởng Lão Đại Hắc còn ở lại một mình, bị tám bà vợ cũ ráp lại bao vây và hỏi: “Ông đi tu có từ
 giã ai không? Bây giờ ông chịu hoàn tục hay không?”.
 
@@ -3213,9 +3199,7 @@ Quên niềm phu phụ ái và ân.
 Xem chừng tám ả vừa sanh sự,
 Trổ nóc phi đằng giải thoát thân.
 
-### I.7- CHUYỆN DEVADATTTA ĐƯỢC Y QUÍ
-
-(Devadattassa Kāsāvalabha vatthu)
+### I.7- CHUYỆN DEVADATTTA ĐƯỢC Y QUÍ (Devadattassa Kāsāvalabha vatthu)
 
 **KỆ NGÔN: (Pháp Cú số 09-10)**
 
@@ -3418,7 +3402,6 @@ thật.
 
 Sa ve kāsāvaṁ arahati : Người giới hạnh như vậy xứng đáng mặc bộ y vàng.
 
-
 Bài kệ vừa dứt, vị Tỳ Khưu du hành đắc quả Tu Đà Hườn, nhiều vị khác cũng chứng đắc Đạo
 quả nhất là quả Nhập Lưu. Kỳ dư thính chúng đều hưởng sự lợi ích.
 
@@ -3433,9 +3416,7 @@ Gặp thời vênh váo quên điều phải,
 Đường cũ ngựa quen từ kiếp trước,
 Săn voi cũng lạm đắp cà sa.
 
-### I.8- CHUYỆN ÔNG SAÑJAYA KHÔNG ĐẦU PHẬT
-
-(Sañjayassānāgamanavatthu)
+### I.8- CHUYỆN ÔNG SAÑJAYA KHÔNG ĐẦU PHẬT (Sañjayassānāgamanavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 11-12 )**
 
@@ -4588,9 +4569,7 @@ Cảnh vắng an lòng ly thế tục,
 Trước sau giữ vẹn niềm nguyên thủy,
 Tròn đủ nhân duyên gặp bạn lành.
 
-### I.9- CHUYỆN TRƯỞNG LÃO NANDA
-
-(Nandathera vatthu)
+### I.9- CHUYỆN TRƯỞNG LÃO NANDA (Nandathera vatthu)
 
 **KỆ NGÔN: (Pháp Cú số 13-14).**
 
@@ -4895,7 +4874,6 @@ xâm chiếm được cái Tâm Không tu luyện ấy.
 Tâm được tu luyện đúng đắn kỹ càng như thế, thì các thứ phiền não nhất là tham dục (rāga) không
 thể lọt vào, y như gian nhà mái lợp đầy đặn kín đáo, thì nước mưa không thể dột được như vậy.
 
-
 Khi bài kệ vừa chấm dứt, nhiều vị Tỳ Khưu đắc quả Nhập Lưu, đại chúng cũng hưởng được sự
 lợi ích nhờ nghe thời pháp của Đức Bổn Sư.
 
@@ -5040,9 +5018,7 @@ Không ham ngọc nữ chốn thiên đình!
 Nương cùng Chánh Giác hành chơn đạo,
 Như thuở còn mang khổ nhục hình”!
 
-### I.10- CHUYỆN ĐỒ TỂ CUNDA
-
-(Cundasūkarikavatthu)
+### I.10- CHUYỆN ĐỒ TỂ CUNDA (Cundasūkarikavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 15)**
 
@@ -5173,7 +5149,6 @@ còn sống mà còn khổ thêm sau khi thác rồi nữa.
 **_Disvā kammakiliṭṭhamattano_** (thấy nghiệp mình lem ố): Sau khi nhìn thấy tự mình đã tạo
 nghiệp xấu xa, nhơ nhớp thì kẻ ác sanh tâm buồn rầu, càng than van rên rĩ, lại càng ăn năn hối tiếc.
 
-
 Sau bài kệ, có nhiều Tỳ Khưu đắc Thánh quả, nhất là Tu Đà Hườn quả. Đại chúng thính pháp
 cũng đều được hưởng ít nhiều lợi ích.
 
@@ -5188,9 +5163,7 @@ Tội ông đồ tể lớn tày non!
 Ác lai ác báo mau cùng chậm,
 Sống chết hai nơi khổ vẫn còn.
 
-### I.11- CHUYỆN THIỆN NAM SÙNG ĐẠO DHAMMIKA
-
-(Dhammika upāsaka vatthu)
+### I.11- CHUYỆN THIỆN NAM SÙNG ĐẠO DHAMMIKA (Dhammika upāsaka vatthu)
 
 **KỆ NGÔN: (Pháp Cú số 16)**
 
@@ -5358,9 +5331,7 @@ Con lo bố khổ, dạ sao yên?
 Trấn an, may có vòng hoa lạ,
 Lơ lửng trên không việc nhãn tiền.
 
-### I.12- CHUYỆN DEVADATTTA
-
-(Devadattta vatthu)
+### I.12- CHUYỆN DEVADATTTA (Devadattta vatthu)
 
 **KỆ NGÔN: (Pháp Cú số 17)**
 
@@ -6040,7 +6011,6 @@ Cunda)
 địa ngục thì kẻ ác còn than thở gấp bội, than thở nhiều hơn bao giờ hết, than thở tới mức cùng cực
 tối đa.
 
-
 Khi Đức Bổn Sư chấm dứt bài kệ, nhiều Tỳ Khưu đắc Thánh quả, nhất là Tu Đà Hườn quả, đại
 chúng thính pháp cũng đều được hưởng sự lợi ích.
 
@@ -6055,9 +6025,7 @@ Dương thế đất dầy còn sụp lún!
 Càng gây oan trái càng thêm hận,
 Hỷ, xả, từ, bi phải sướng chăng?
 
-### I.13- CHUYỆN SUMANĀDEVĪ
-
-(Sumanādevīvatthu)
+### I.13- CHUYỆN SUMANĀDEVĪ (Sumanādevīvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 18)**
 
@@ -6178,7 +6146,6 @@ quả hỷ mà được siêu sanh về nhàn cảnh”.
 satthiñca vassa sata sahassāni), tuổi hưởng phước lộc của Chư Thiên nơi cung trời Đâu Suất thì càng
 hoan hỷ vô cùng tận.
 
-
 Bài kệ vừa dứt, có nhiều vị Tỳ Khưu đắc Thánh quả nhất là Tu Đà Hườn, đại chúng thính pháp
 cũng đều hưởng được lợi ích.
 
@@ -6194,9 +6161,7 @@ Hộ Tăng đâu tính dạo thiên hà?
 Lòng trinh một tấm dầu chưa tỏ,
 Trưởng giả cầu ân Phật Thích Ca.
 
-### I.14- CHUYỆN HAI VỊ TỲ KHƯU BẠN
-
-(Dvesahāyakabhikkhuvatthu)
+### I.14- CHUYỆN HAI VỊ TỲ KHƯU BẠN (Dvesahāyakabhikkhuvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 19-20).**
 
@@ -6406,7 +6371,6 @@ Vô học (asekkha dhammakkhandha) như là ngôi nhà được cơi lên một 
 hành giả chơn chánh, nhờ nghe thuyết pháp rồi rán vâng giữ hành theo mà đạt đến quả vị tối cao là
 A La Hán vậy.
 
-
 Kệ ngôn vừa dứt, nhiều Tỳ Khưu đắc Thánh quả nhất là Tu Đà Huờn quả, đại chúng thính pháp
 cũng đều được hưởng sự lợi ích.
 
@@ -6431,16 +6395,12 @@ Muốn độ tha nhân, trước độ mình”.
 
 **DỨT PHẨM SONG YẾU**
 
-## II. PHẨM CHUYÊN NIỆM
-
-(APPAMĀDA VAGGA)
+## II. PHẨM CHUYÊN NIỆM (APPAMĀDA VAGGA)
 
 - 12 bài kệ: Pháp Cú số 21-30
 - 09 chuyện.
 
-### II. 1- CHUYỆN HOÀNG HẬU SĀMĀVATĪ
-
-(Sāmāvatī vatthu)
+### II. 1- CHUYỆN HOÀNG HẬU SĀMĀVATĪ (Sāmāvatī vatthu)
 
 **KỆ NGÔN: (Pháp Cú 21-22-23)**
 
@@ -8877,9 +8837,7 @@ Trắng cở Ma-Phi sao Phật gớm?
 Ai người trí tuệ ham thinh sắc?
 Thánh Đức miên trường, mặc bể dâu.
 
-### II. 2- CHUYỆN KUMBHAGHOSAKA
-
-(Kumbhaghosaka vatthu)
+### II. 2- CHUYỆN KUMBHAGHOSAKA (Kumbhaghosaka vatthu)
 
 **KỆ NGÔN: (Pháp Cú 24)**
 
@@ -9177,7 +9135,6 @@ niệm.
 **_Yasobhivaḍḍhati_** : Thanh danh tăng trưởng, là quyền tước chức vụ, tên tuổi... Càng ngày càng
 lừng lẫy, càng được nhiều người mến phục.
 
-
 Sau khi bài kệ chấm dứt, Thiên hộ Kumbha-ghosaka đắc quả Nhập Lưu, ngoài ra còn có nhiều
 người đắc Thánh quả. Nhất là Sơ quả do nhờ thính pháp của Đức Bổn Sư, hàng đại chúng hưởng
 được lợi ích như thế.
@@ -9193,9 +9150,7 @@ Thì không hoàng tộc bước chân vào,
 Đức dày phước lớn càng tăng trưởng,
 Bỏ lúc trần ai chịu khổ lao!
 
-### II. 3- CHUYỆN TRƯỞNG LÃO CŪḶAPANTHAKA
-
-(Cūḷapanthakattheravatthu)
+### II. 3- CHUYỆN TRƯỞNG LÃO CŪḶAPANTHAKA (Cūḷapanthakattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú 25)**
 
@@ -9761,9 +9716,7 @@ Sau do hết sạch bụi trần nhơ.
 Chuyên cần giữ đạo, đừng suy suyễn,
 Có lúc làm nên chuyện bất ngờ!
 
-### II. 4- CHUYỆN CÁI TẾT THÁC LOẠN
-
-(Bālanakkhattavatthu)
+### II. 4- CHUYỆN CÁI TẾT THÁC LOẠN (Bālanakkhattavatthu)
 
 **KỆ NGÔN: (Pháp Cú 26 - 27)**
 
@@ -9866,9 +9819,7 @@ Mất đức nào lo bị chúng khi!
 Bảy bữa tung hoành trong Sāvatthī,
 Ngàn năm tiếng xấu vẫn còn ghi!
 
-### II. 5- CHUYỆN TRƯỞNG LÃO MAHĀKASSAPA
-
-(Mahākassapattheravatthu)
+### II. 5- CHUYỆN TRƯỞNG LÃO MAHĀKASSAPA (Mahākassapattheravatthu)
 
 **KỆ NGÔN (Pháp Cú số 28)**
 
@@ -9945,9 +9896,7 @@ Mới đắc minh cao có Phật Đà,
 Nguyện lớp viên thành Tam Thập độ,
 Trong trần nào dễ mấy ai a?
 
-### II. 6- CHUYỆN HAI VỊ TỲ KHƯU BẠN
-
-(Dvesahāyakabhikkhuvatthu)
+### II. 6- CHUYỆN HAI VỊ TỲ KHƯU BẠN (Dvesahāyakabhikkhuvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 29)**
 
@@ -10043,9 +9992,7 @@ Dặm thẳng chỉnh nghe lòng quái ngại,
 Tỉnh rồi một giấc Nam Kha mộng,
 Thiên hạ thùy miên, vạn khổ sầu.
 
-### II. 7- CHUYỆN ĐỨC SAKKA
-
-(Sakkavatthu)
+### II. 7- CHUYỆN ĐỨC SAKKA (Sakkavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 30)**
 
@@ -10620,9 +10567,7 @@ Nghĩa bạn gây nên bởi cộng hòa.
 Hiếu, Để, Từ, Chân đều đủ cả,
 Muôn đời ngự trị cõi Băm Ba.
 
-### II. 8- CHUYỆN VỊ TỲ KHƯU QUÁN LỬA RỪNG
-
-(Aññatarabhikkhuvatthu)
+### II. 8- CHUYỆN VỊ TỲ KHƯU QUÁN LỬA RỪNG (Aññatarabhikkhuvatthu)
 
 **KỆ NGÔN (Pháp Cú 31)**
 
@@ -10697,9 +10642,7 @@ Bỏ ngủ, quên nằm tuệ giác sanh.
 Mỗi phút, giờ qua đừng chểnh mảng,
 Lo chi Đạo quả chậm viên thành?
 
-### II. 9- CHUYỆN TRƯỞNG LÃO TISSA Ở THỊ XÃ
-
-(Nigamavāsitissattheravatthu)
+### II. 9- CHUYỆN TRƯỞNG LÃO TISSA Ở THỊ XÃ (Nigamavāsitissattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 32)**
 
@@ -10816,7 +10759,6 @@ cũng không thể xa lìa các Pháp đã chứng đắc và không đạt đ�
 cũng như gần tận diệt các pháp chấp thủ (upādāna) và chứng Vô dư Níp Bàn. Sau khi mạng chung
 không còn tái sanh nữa.
 
-
 Sau kệ ngôn Trưởng lão Tissa thị xã chứng đạt A La Hán quả với Tuệ Phân tích. Những Tỳ Khưu
 khác, nhiều vị đắc Thánh quả nhất là Dự lưu, trong hàng tứ chúng những Đại quả cũng phát sanh lên
 do nhờ thời Pháp của Đức Bổn Sư.
@@ -10834,16 +10776,12 @@ Nên Níp Bàn xa cũng hóa gần.
 
 (DỨT QUYỂN I)
 
-## III. PHẨM TÂM
-
-(CITTA VAGGA)
+## III. PHẨM TÂM (CITTA VAGGA)
 
 - 11 bài kệ: Pháp Cú số 33-43
 - 9 Chuyện.
 
-### III. 1- CHUYỆN TRƯỞNG LÃO MEGHIYA
-
-(Meghiyattheravatthu)
+### III. 1- CHUYỆN TRƯỞNG LÃO MEGHIYA (Meghiyattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 33-34)**
 
@@ -10901,7 +10839,6 @@ Xa bờ cách nước, vẫy lên hãi hùng.
 Tâm nầy run rẩy hãi hùng,
 Hãy mau chóng thoát khỏi vùng ác ma”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -10955,7 +10892,6 @@ nó trở nên chân chánh và dễ sử dụng được. Hoặc là: Cái phà
 vòng luân hồi Khổ não, còn ở dưới quyền thao túng của Ma vương cho nên nó run rẩy hãi hùng như
 loài thủy tộc bị vớt lên khỏi nước vậy. Hãy mau thoát khỏi cảnh giới của ác ma, thoát ra cái gọi là
 vòng luân hồi Khổ não hằng làm cho tâm phàm run rẩy hãi hùng.
-
 Bài kệ vừa dứt, Trưởng Lão Meghiya chứng đắc Tu Đà Huờn quả, trong số các Tỳ Khưu khác
 cũng chứng đạt Thánh quả như Tu Đà Hườn.
 
@@ -10971,9 +10907,7 @@ Rốt cuộc lui về nương bóng Phật,
 Buổi nầy, chưa hiệp đủ nhân duyên.
 DỨT TÍCH TRƯỞNG LÃO MEGHIYA
 
-### III. 2- CHUYỆN VỊ TỲ KHƯU Ở THỦY LƯU THÔN
-
-(Aññatarabhikkhuvatthu)
+### III. 2- CHUYỆN VỊ TỲ KHƯU Ở THỦY LƯU THÔN (Aññatarabhikkhuvatthu)
 
 **KỆ NGÔN: ( Pháp Cú số 35)**
 
@@ -11179,7 +11113,6 @@ Biến hóa lanh lẹ khó mà bắt thay!
 Người thu phục được tâm nầy,
 Mới là thong thả tháng ngày yên vui”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -11196,7 +11129,6 @@ Lành thay! Nếu tâm phàm ấy được bình tịnh hóa, (citaṁ dantaṁ 
 người điều phục tâm hưởng được hạnh phúc, nhờ tâm định tĩnh, người sẽ hưởng thụ được sự an lạc
 của Đạo quả và sự an lạc tối đại Níp Bàn chẳng sai.
 
-
 Bài kệ vừa dứt, trong số Chư Tăng hiện có, nhiều người đắc chứng Thánh quả, nhất là Tu Đà
 Huờn quả, đại chúng thính pháp cũng được hưởng sự lợi ích.
 
@@ -11259,9 +11191,7 @@ Ngược dòng đời, lướt qua dòng đạo,
 Nước chảy thuyền xuôi mãi tận đâu!
 DỨT TÍCH TỲ KHƯU Ở THỦY LƯU THÔN
 
-### III. 3- CHUYỆN VỊ TỲ KHƯU BẤT MÃN
-
-(Ukkaṇṭhitabhikkhuvatthu)
+### III. 3- CHUYỆN VỊ TỲ KHƯU BẤT MÃN (Ukkaṇṭhitabhikkhuvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 36)**
 
@@ -11355,7 +11285,6 @@ Vi tế, u ẩn, ngược xuôi khó nhìn.
 Người khôn phòng hộ tâm mình,
 Yên vui nhờ khéo giữ gìn bản thân”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -11370,7 +11299,6 @@ sa đó.
 thể phòng hộ bản tâm, cho nên ông hãy phòng giữ tâm như thế ấy. Quả thật, tâm được phòng hộ thì
 đem chủ nó đến nơi an lạc, là Đạo quả Níp Bàn an lạc vậy.
 
-
 Khi bài kệ vừa dứt, Tỳ Khưu bất mãn phát tâm hoan hỷ chứng đắc Dự Lưu quả. Nhiều vị khác
 cũng đắc chứng thánh quả nhất là Tu Đà Hườn quả. Kỳ dư đại chúng thính pháp đều hưởng được sự
 lợi ích.
@@ -11387,9 +11315,7 @@ May nhờ Phật dạy dùng tâm hộ,
 Vào được dòng xuôi đến Níp Bàn.
 DỨT TÍCH TỲ KHƯU BẤT MÃN
 
-### III. 4- CHUYỆN TRƯỞNG LÃO BHĀGINEYYASAṄGHARAKKHITA
-
-(Bhāgineyyasaṅgharakkhitattheravatthu)
+### III. 4- CHUYỆN TRƯỞNG LÃO BHĀGINEYYASAṄGHARAKKHITA (Bhāgineyyasaṅgharakkhitattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 37)**
 
@@ -11502,7 +11428,6 @@ Người nào điều phục tâm bình mới hay.
 Vòng Ma đã thoát ra ngoài,
 Không còn trăn trối miệt mài trần lao.”
 
-
 
 **CHÚ GIẢI:**
 
@@ -11525,7 +11450,6 @@ phiền não phát sanh lên được, dứt trừ được phiền não đã ph
 **_Mokkhanti mārabandhanā:_** Được giải thoát khỏi vòng luân hồi trong tam giới, khỏi cái gọi là
 Ma phược (Mārabandhānā), là tất cả những dây trói buộc của phiền não Ma vương.
 
-
 Bài kệ vừa dứt, Tỳ Khưu Hộ Tăng điệt chứng đắc Tu Đà Hườn quả. Nhiều vị khác cũng chứng
 đắc Thánh quả nhất là Sơ quả, kỳ dư thánh chúng đều hưởng được sự lợi ích.
 
@@ -11541,9 +11465,7 @@ Tỉnh rồi mới biết tâm đi lạc,
 Đắc quả nhờ nghe pháp Phật Đà.
 DỨT TÍCH TRƯỞNG LÃO HỘ TĂNG ĐIỆT
 
-### III. 5- CHUYỆN TRƯỞNG LÃO CITTAHATTHA
-
-(Cittahatthattheravatthu)
+### III. 5- CHUYỆN TRƯỞNG LÃO CITTAHATTHA (Cittahatthattheravatthu)
 
 **KỆ NGÔN (Pháp Cú số 38-39)**
 
@@ -11672,7 +11594,6 @@ Không còn tham ái, gian manh thù hằn.
 Phước tội đều dứt tận căn,
 Giác tỉnh chẳng sợ lẽ hằng tử sanh”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -11708,7 +11629,6 @@ Hườn đạo là ba kiết sử thân kiến, hoài nghi và giới cấm th�
 phiền não nào người đã đoạn trừ bằng Tu Đà Hàm, A Na Hàm và A La Hán đạo, những phiền não ấy
 có bảy kiết sử, không còn trở lại đeo níu người ấy nữa”.
 
-
 Nghe dứt hai bài kệ đại chúng đều hưởng được lợi ích và đắc Thánh quả.
 Sau đó, có một hôm chư Tỳ Khưu đề khởi Pháp luận trong giảng pháp đường như vậy:
 
@@ -11820,9 +11740,7 @@ Quyết thắng được mình là đại thắng,
 Phục tâm hiền sĩ cũng tướng y.
 DỨT TÍCH TRƯỞNG LÃO CITTAHATTHA
 
-### III. 6- CHUYỆN CÁC TỲ KHƯU ĀRADDHAVIPASSAKA
-
-(Āraddhavipassakabhikkhuvatthu)
+### III. 6- CHUYỆN CÁC TỲ KHƯU ĀRADDHAVIPASSAKA (Āraddhavipassakabhikkhuvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 40)**
 
@@ -11940,7 +11858,6 @@ Khá mau đánh dẹp Ma quân vây thành.
 Giữ phần thắng lợi về mình,
 Chớ đừng đắm trước, mê tình không nên”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -11980,7 +11897,6 @@ mà quán đi quán lại cho thấu triệt các pháp hữu vi thì không th�
 gìn giữ pháp nào tâm cần gìn giữ, không nên đắm trước mê say theo nó như sau khi định tâm trong
 đề mục thiền rồi, không nên lưu luyến giữ mãi tâm nơi đó. Các ông hãy hành như vậy.
 
-
 Đức Bổn Sư đã thuyết pháp dạy các Tỳ Khưu như thế. Khi thời pháp chấm dứt, cả năm trăm vị
 Tỳ Khưu chứng đắc A La Hán quả với Tuệ Phân tích ngay tại chỗ ngồi bèn tán thán ca tụng kim thân
 Đấng Như Lai, đảnh lễ Ngài rồi lui gót.
@@ -11998,9 +11914,7 @@ Bản ngã quán rời như ngói bở,
 Thoát trần nhẹ bước gót thiên nhiên.
 DỨT TÍCH CÁC TỲ KHƯU QUÁN BẢN THÂN
 
-### III. 7- CHUYỆN TRƯỞNG LÃO PŪTIGATTATISSA
-
-(Pūtigattatissattheravatthu)
+### III. 7- CHUYỆN TRƯỞNG LÃO PŪTIGATTATISSA (Pūtigattatissattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 41)**
 
@@ -12074,7 +11988,6 @@ Rồi đây nó sẽ nằm trên đất mồ.
 Không hồn như gỗ mục khô,
 Bị đem vứt bỏ vì vô dụng mà”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -12094,7 +12007,6 @@ thể trược trong thân nầy không thể dùng làm được chân giườn
 tâm thức mất rồi, thân xác nầy trở nên hoàn toàn vô dụng, y như cây mục nát, chỉ chờ ngày bị dẹp bỏ
 nằm trong bãi tha ma.
 
-
 Khi bài pháp vừa dứt, Trưởng Lão Tissa thúi thây đắc A La Hán quả với Tuệ Phân tích. Trong số
 đó các Tỳ Khưu khác cũng có nhiều vị đắc thánh quả, nhất là quả Dự Lưu.
 
@@ -12144,9 +12056,7 @@ Trò xa bạn lánh sợ truyền lây.
 Sớt bát tròn nhân quả cũng đầy.
 DỨT TÍCH TRƯỞNG LÃO TISSA THÚI THÂY
 
-### III. 8- CHUYỆN NANDAGOPĀLAKA
-
-(Nandagopālakavatthu)
+### III. 8- CHUYỆN NANDAGOPĀLAKA (Nandagopālakavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 42)**
 
@@ -12207,7 +12117,6 @@ Hại nhau, hại ấy vẫn là kém xa.
 Cái hại của tâm niệm tà,
 Khiến cho kẻ ấy đọa sa một mình”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -12231,7 +12140,6 @@ của họ, trong kiếp nầy gây khổ cho nhau, hoặc là tàn sát lẫn n
 Trái lại, nếu cái tâm tà vạy, tà kiến, bị đặt nằm trên lộ bất thiện nghiệp trong kiếp này, thì nó
 đưa kẻ ấy đến chỗ diệt vong, hằng trăm kiếp đọa sa vào bốn ác đạo, không cho cất đầu lên nổi.
 
-
 
 Nghe dứt bài kệ nhiều vị Tỳ Khưu đắc Thánh quả, nhất là Sơ quả. Đại chúng thính pháp cũng
 hưởng được sự lợi ích.
@@ -12251,9 +12159,7 @@ Gieo chi gặt nấy, tùy duyên nghiệp,
 Tội phước là nhân tạo rủi may.
 DỨT TÍCH NANDA CHỦ TRẠI BÒ
 
-### III. 9- CHUYỆN TRƯỞNG LÃO SOREYYA
-
-(Soreyyattheravatthu)
+### III. 9- CHUYỆN TRƯỞNG LÃO SOREYYA (Soreyyattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 43)**
 
@@ -12452,7 +12358,6 @@ Hoặc thân thuộc khác tạo thành mà nên.
 Đưa người cao thượng hơn lên,
 Chính tâm niệm hướng về bên thiện lành”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -12474,7 +12379,6 @@ bậc cao nhân là các mức thiền định hay là tài sản siêu thế l�
 đạo nằm trên đường Thiện nghiệp có thể cho hành giả tất cả những sản nghiệp phi thường ấy, cho
 nên nói do cái tâm niệm chánh của họ làm cho họ trở nên quí báu cao thượng hơn lên vậy.
 
-
 Khi thời pháp chấm dứt, nhiều vị Tỳ Khưu chứng đắc thánh quả nhất là Tu Đà Hườn quả. Kỳ dư
 thính chúng đều hưởng lợi ích.
 
@@ -12490,16 +12394,12 @@ Tu Lệ Da đi về Sāvatthī,
 Nhờ môn tàm quý được siêu phàm”.
 DỨT TÍCH TRƯỞNG LÃO SOREYYA DỨT PHẨM TÂM
 
-## IV. PHẨM HOA
-
-(PUPPHAVAGGA)
+## IV. PHẨM HOA (PUPPHAVAGGA)
 
 - 16 bài kệ: Pháp Cú số 44-59
 - 12 chuyện.
 
-### IV. 1- CHUYỆN 500 VỊ TỲ KHƯU ĐÀM LUẬN VỀ ĐỊA ĐẠI
-
-(Paṭhavīkathāpasutapañcasata-bhikkhuvatthu)
+### IV. 1- CHUYỆN 500 VỊ TỲ KHƯU ĐÀM LUẬN VỀ ĐỊA ĐẠI (Paṭhavīkathāpasutapañcasata-bhikkhuvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 44-45)**
 
@@ -12553,7 +12453,6 @@ Diêm ma, nhân giới, thiên đình cũng thông.
 Hữu học, thợ khéo tuyển bông,
 Pháp Cú khéo giảng, hiểu thông thực hành”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -12586,7 +12485,6 @@ bỏ những nụ còn non, những cánh hoa héo úa u nần, bị sâu ăn l�
 thức trong kinh Pháp Cú do Đức Bổn Sư đã thuyết giảng. Những pháp vi tế thâm sâu là ba mươi bảy
 pháp trợ đạo Bồ đề mà thâu thập, lãnh hội, thấu triệt và làm cho thấu rõ.
 
-
 Đức Bổn Sư nêu ra hai câu hỏi và chính Ngài đã tự giải đáp như trên.
 Đến cuối bài kệ năm trăm vị Tỳ Khưu đều đắc A La Hán quả với Tuệ Phân tích. Đồ chúng thính
 pháp cũng hưởng được sự lợi ích.
@@ -12603,9 +12501,7 @@ Hồi quang phản chiếu trừ tam độc,
 Pháp Cú tri hành, chứng Quả ngay.
 DỨT TÍCH NĂM TRĂM VỊ TỲ KHƯU ĐÀM LUẬN VỀ ĐẠI ĐỊA
 
-### IV. 2- CHUYỆN TRƯỞNG LÃO MARĪCIKAMMAṬṬHĀNIKA
-
-(Marīcikammaṭṭhānikattheravatthu)
+### IV. 2- CHUYỆN TRƯỞNG LÃO MARĪCIKAMMAṬṬHĀNIKA (Marīcikammaṭṭhānikattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 46)**
 
@@ -12644,7 +12540,6 @@ Giác thân huyễn hóa diệt sanh sự thường.
 Phá vòng hoa dục Ma vương,
 Qua mắt thần chết lên đường thoát thân”.
 
-
 Trong bài kệ Phạn ngữ nầy, Pheṇūpamaṁ nghĩa là ví như bọt nước. Cái nhóm ba mươi hai thể
 giả hiệp, gọi là xác thân nầy đây, nó yếu đuối, mong manh không trường tồn vĩnh viễn, thoạt sanh
 diệt từng sát na một, xét ra không khác chi là bọt nước đầu gành.
@@ -12658,7 +12553,6 @@ Abhisambudhāno: Nghĩa là giác ngộ, thông suốt, hiểu rõ.
 Mārassa papupphakāni: Là hãy thoát đi, vượt qua khỏi tầm thấy biết, tức là quyền hạn của tử
 thần, hãy đạt đến vô sanh bất tử là Đại Níp Bàn.
 
-
 Khi bài kệ chấm dứt, Trưởng Lão chứng A La Hán quả với Tuệ Phân tích, bèn thốt lời tán dương
 ca tụng Kim thân của Đức Bổn Sư. Đoạn đảnh lễ Ngài rồi lui gót.
 
@@ -12674,9 +12568,7 @@ Phải như Trưởng Lão vô rừng vắng,
 Gặp Phật tham thiền đắc Quả minh.
 DỨT TÍCH TỲ KHƯU QUÁN BÀO ẢNH
 
-### IV. 3- CHUYỆN VIḌŪḌABHA (LƯU LY VƯƠNG)
-
-(Viḍūḍabhavatthu)
+### IV. 3- CHUYỆN VIḌŪḌABHA (LƯU LY VƯƠNG) (Viḍūḍabhavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 47)**
 
@@ -13446,7 +13338,6 @@ Tâm còn mê vọng, tử thần bắt đi.
 Như làng xóm ngủ li bì,
 Nửa đêm bị nước cuốn đi thình lình”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -13473,7 +13364,6 @@ ai, dầu là đàn ông hay đàn bà, bò, trâu, gà vịt chi cũng bị đ�
 vong cũng vậy, nó bắt những kẻ đang mê vọng ngũ trần, cắt đứt mạng căn của mình, kẻ ấy bị nhận
 chìm xuống biển tứ ác đạo.
 
-
 Khi thời pháp chấm dứt, nhiều vị Tỳ Khưu chứng đắc Thánh quả, nhứt là Sơ quả. Đại chúng
 thính pháp cũng đều hưởng được sự lợi ích.
 
@@ -13489,9 +13379,7 @@ Diệt dòng giới đức vui chưa trọn,
 Bụng cá vùi thây chẳng hổ danh.
 DỨT TÍCH VUA VIḌŪḌABHA
 
-### IV. 4- CHUYỆN NÀNG PATIPŪJIKĀ
-
-(Patipūjikāvatthu)
+### IV. 4- CHUYỆN NÀNG PATIPŪJIKĀ (Patipūjikāvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 48)**
 
@@ -13608,7 +13496,6 @@ Tâm còn vọng tưởng chẳng gìn giữ thân.
 Trong giờ thọ hưởng ngũ trần,
 Lòng còn nô lệ, tử thần chẳng xa”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -13625,7 +13512,6 @@ ngũ trần dục lạc.
 **_Antako kurute vasaṁ:_** Bị lọt vào tay của Tử thần là sự chết, dầu cho thở than khóc lóc gì
 cũng vô ích, thế nào cũng bị nó bắt đem đi.
 
-
 Bài kệ chấm dứt, nhiều vị Tỳ Khưu chứng đắc Thánh quả, nhứt là Thánh quả Tu Đà Hườn, đại
 chúng thính pháp cũng đều được hưởng nhiều lợi ích.
 
@@ -13641,9 +13527,7 @@ Giữa thời xuân sắc xinh như mộng,
 Giã biệt chồng con dứt nợ trần.
 DỨT TÍCH NÀNG PATIPŪJIKĀ
 
-### IV. 5- CHUYỆN BÁ HỘ MACCHARIYAKOSIYA
-
-(Macchariyakosiyaseṭṭhivatthu)
+### IV. 5- CHUYỆN BÁ HỘ MACCHARIYAKOSIYA (Macchariyakosiyaseṭṭhivatthu)
 
 **KỆ NGÔN: (Pháp Cú số số 49)**
 
@@ -13860,7 +13744,6 @@ Lấy xong chút mật rồi là bay đi.
 Sắc hương chẳng động làm chi,
 Sa Môn khất thực cũng y thế mà”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -13886,7 +13769,6 @@ là hưởng thụ tịnh lạc hiện tiền do nhờ giác ngộ nội tâm.
 Vị nầy cũng giống như con ong vào rừng nhả nhụy làm hoa, biến chế ra mật nguyên chất vậy.
 Bậc tịnh giả trong bài kệ nầy là chỉ bậc Sa Môn A La Hán như Trưởng Lão Moggallāna.
 
-
 Bài kệ vừa dứt, nhiều vị Tỳ Khưu chứng đắc Thánh Quả nhất là Tu Đà hườn quả.
 Sau bài pháp nầy Đức Thế Tôn còn thốt lời tán dương ân đức cao thượng của Trưởng Lão nữa:
 
@@ -13922,9 +13804,7 @@ Tự hậu chẳng quên thầy tiếp dẫn,
 Tỳ Khưu Lậu Tận, bực kỳ năng.
 DỨT TÍCH BÁ HỘ KHAN NANG
 
-### IV. 6- CHUYỆN TU SĨ PĀṬIKĀJĪVAKA
-
-(Pāṭikājīvakavatthu)
+### IV. 6- CHUYỆN TU SĨ PĀṬIKĀJĪVAKA (Pāṭikājīvakavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 50)**
 
@@ -14023,7 +13903,6 @@ Việc lành đắc thất của ai mặc tình?
 Hãy lo quán xét việc mình,
 Việc nầy việc nọ hoàn thành hay chưa”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -14044,7 +13923,6 @@ luôn quán xét như vậy, lại phải nhớ đến huấn từ nầy: “Con
 đạo phải tự hỏi rằng: “Tam tướng là Vô thường, Khổ não, Vô ngã. Tại sao ta chưa dứt được bốn ách và
 chứng đắc Níp Bàn? Phải nên quán việc đã làm hoặc chưa làm như thế”.
 
-
 Bài kệ vừa dứt, bà tín nữ đắc chứng Tu Đà Hườn quả. Đại chúng thính pháp cũng đều hưởng
 được sự lợi ích.
 
@@ -14060,9 +13938,7 @@ Hai lẽ chánh tà không hiệp một,
 Kẻ còn ở lại, kẻ tha phương.
 DỨT TÍCH TU SĨ NGOẠI ĐẠO PAṬIKA
 
-### IV. 7- CHUYỆN THIỆN NAM CHATTAPĀṆI
-
-(Chattapāṇi upāsakavatthu)
+### IV. 7- CHUYỆN THIỆN NAM CHATTAPĀṆI (Chattapāṇi upāsakavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 51-52)**
 
@@ -14182,7 +14058,6 @@ Sắc hương thắm đượm lịch thanh đủ mùi.
 Lời lành nếu đã thuyết rồi,
 Làm lành kết quả an vui thấy liền”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -14204,7 +14079,6 @@ như thế ấy, ai mang, giắt những thứ hoa thơm trên mình thì thân 
 dễ chịu, như người thực hành theo Phật ngôn trong Tam tạng Pháp bảo, tức là kính cẩn nghe, kính
 cẩn thọ trì, là làm việc nên làm thì sẽ gặt hái được nhiều phước báu vậy.
 
-
 Bài kệ vừa dứt, nhiều vị Tỳ Khưu chứng đắc Thánh quả, kỳ dư thính chúng đều được hưởng sự
 lợi ích.
 
@@ -14224,9 +14098,7 @@ Uổng mang tên tuổi Hoàng gia Thích,
 Pháp học, hành chi cũng bất thông”...
 DỨT TÍCH THIỆN NAM CHATTAPĀṆI
 
-### IV. 8- CHUYỆN ĐẠI TÍN NỮ VISĀKHĀ
-
-(Visākhāvatthu)
+### IV. 8- CHUYỆN ĐẠI TÍN NỮ VISĀKHĀ (Visākhāvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 53)**
 
@@ -15280,7 +15152,6 @@ Nhiều tràng hoa được thợ liên kết thành.
 Từ thân người được phát sanh,
 Biết bao nhiêu việc phước lành cho ta”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -15305,8 +15176,7 @@ Nhiều tràng hoa được thợ liên kết thành.
 Từ thân người được phát sanh,
 Biết bao nhiêu việc phước lành do ta”._
 
-
-Bài kệ vừa dứt nhiều vị Tỳ Khưu chứng đắc Thánh quả, nhất là Dự Lưu quả. Đại chúng thính
+Bài kệ vừa dứt nhiều vị Tỳ Khưu chứng đắc Thánh quả, nhất là Dự Lưu quả. Đại chúng thính
 pháp cũng hưởng được nhiều lợi ích.
 
 
@@ -15321,9 +15191,7 @@ Con đàn cháu lũ đều khương thọ,
 Phước lộc ba đời chẳng thể suy.
 DỨT TÍCH BÀ VISĀKHĀ
 
-### IV. 9- CHUYỆN TRƯỞNG LÃO ĀNANDA VẤN ĐẠO
-
-(Ānandattherapañhavatthu)
+### IV. 9- CHUYỆN TRƯỞNG LÃO ĀNANDA VẤN ĐẠO (Ānandattherapañhavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 54-55)**
 
@@ -15404,7 +15272,6 @@ Sabbā disā sappuriso pavāyati”.
    Dầu thơm cho mấy cũng nhường,
    Thứ hương Giới đức là hương tuyệt trần”.\_
 
-
 
 **CHÚ GIẢI:**
 
@@ -15431,7 +15298,6 @@ bay ngược chiều gió. Do đó, Đức Phật đã dùng từ ngữ Paṭiv�
 hạn, với những bậc Thánh thiện có Giới đức là mùi thơm thì Giới hương là vô thượng, vô tỷ, vô song
 vậy (anuttaro asadiso appaṭibhāgo).
 
-
 Khi thời pháp chấm dứt, nhiều Tỳ Khưu thành đạt chánh quả, nhất là Tu Đà Hườn quả. Đại
 chúng cũng hưởng được sự lợi ích nhờ nghe pháp.
 
@@ -15639,7 +15505,6 @@ Hương nầy chưa mấy cao sang trên đời.
 Hương người Giới đức tuyệt vời,
 Xông lên thấu các cõi trời cao siêu”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -15650,7 +15515,6 @@ Trên đây, tiếng **_appamatto_** nghĩa là nhỏ nhen ít oi.
 **_Vāti devesu uttamo:_** Nghĩa là quí giá, cao cả không hương nào bằng, và tỏa rộng ra khắp cả
 các nơi, kể cả các cảnh giới của Chư Thiên và nhân loại.
 
-
 Khi thời pháp chấm dứt, nhiều Tỳ Khưu chứng đắc Thánh quả nhất là Tu Đà Hườn quả, đại
 chúng thính pháp đều hưởng được sự lợi ích.
 
@@ -15671,9 +15535,7 @@ Bằng không sẽ thấy buồn trong ruột,
 Bỏ hạnh Tỳ Khưu chẳng trống kèn.
 DỨT TÍCH VUA TRỜI ĐẾ THÍCH ĐỂ BÁT TRƯỞNG LÃO MAHĀKASSAPA
 
-### IV. 11- CHUYỆN TRƯỞNG LÃO GODHIKA VIÊN TỊCH
-
-(Godhikattheraparinibbānavatthu)
+### IV. 11- CHUYỆN TRƯỞNG LÃO GODHIKA VIÊN TỊCH (Godhikattheraparinibbānavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 57)**
 
@@ -15813,7 +15675,6 @@ Vững tâm những ngã theo chiều buông lung,
 Chánh trí giải thoát tột cùng,
 Ma vương có thấu hành tung bao giờ”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -15837,7 +15698,6 @@ pháp.:
    **_Māro maggaṁ na vindati_** : Đối những bậc đại Lậu Tận như thế, thì tất cả các chỗ của các
    Ngài đi đến trên con đường đạo, Ma vương chẳng biết chẳng thấy, chẳng đến được giai đoạn nào cả.
 
-
 Thời pháp vừa dứt, nhiều Tỳ kheo chứng đắc Thánh quả, nhất là Sơ quả. Đại chúng thính pháp
 cũng đều được hưởng nhiều lợi ích.
 
@@ -15853,9 +15713,7 @@ Ma vương Ngũ uẩn, Ma phiền não,
 Hết biết đường theo phải lặng yên.
 DỨT TÍCH TRƯỞNG LÃO GODHIKA VIÊN TỊCH.
 
-### IV. 12- CHUYỆN ÔNG GARAHADINNA
-
-(Garahadinnavatthu)
+### IV. 12- CHUYỆN ÔNG GARAHADINNA (Garahadinnavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 58-59)**
 
@@ -16156,7 +16014,6 @@ Tối tăm mê muội như giam dưới bùn,
 Thinh văn của đấng Đại hùng,
 Nêu cao đuốc tuệ, soi cùng thế gian”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -16178,7 +16035,6 @@ xuất gia, bèn lìa nhà đi tu theo hạnh không nhà, cố gắng hành đ�
 Giải thoát tri kiến, trở nên bậc Tỳ Khưu lậu tận. Thánh đệ tử của Đức Chánh biến Tri vượt qua khỏi
 đám chúng sanh phàm phu ngu muội chói sáng rực rỡ.
 
-
 Bài pháp chấm dứt thì tám muôn bốn ngàn chúng sanh giác ngộ Chánh Pháp, Garahadinna và
 Sirigutta đều chứng đắc Tu Đà Hườn quả. Hai người, về sau mang hết của cải mình, xuất ra để phục
 vụ đạo pháp.
@@ -16221,16 +16077,12 @@ Từ đây thêm rạng đèn Chánh giác,
 Đại chúng qui đầu Đức Thế Tôn.
 DỨT TÍCH ÔNG GARAHADINNA DỨT PHẨM HOA
 
-## V. PHẨM NGU NHƠN
-
-(BĀLAVAGGA)
+## V. PHẨM NGU NHƠN (BĀLAVAGGA)
 
 - 16 bài kệ: Pháp Cú số 60-75
 - 15 chuyện.
 
-### V. 1- CHUYỆN TRAI NGHÈO CÓ VỢ ĐẸP
-
-(Aññatarapurisavatthu)
+### V. 1- CHUYỆN TRAI NGHÈO CÓ VỢ ĐẸP (Aññatarapurisavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 60)**
 
@@ -16583,7 +16435,6 @@ Dặm dài chìm nổi, lại càng thấy xa,
 Đường đời vạn nẻo quan hà,
 Kẻ dốt Chánh Pháp, chậm qua luân hồi”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -16617,7 +16468,6 @@ Phật ngôn rằng: Anamataggoyaṁ bhikkhave saṁsāro pubbā kotiṃ na pañ
 
 Đối với những người ngu si không thể tận cùng con đường sanh tử, thì thấy nó dài hết sức dài.
 
-
 Thời pháp vừa dứt, thanh niên chứng đắc quả Nhập Lưu, ngoài ra nhiều người khác cũng chứng
 đắc Thánh quả nhứt là Nhập Lưu. Đại chúng thính pháp cũng hưởng được lợi ích.
 
@@ -16807,9 +16657,7 @@ Cố sát, tà dâm nghe đã rõ,
 Ngàn đau, muôn khổ, tội nên kinh.
 DỨT TÍCH CHÀNG THANH NIÊN CÓ VỢ ĐẸP
 
-### V. 2- CHUYỆN ĐỆ TỬ CỦA TRƯỞNG LÃO MAHĀ KASSAPA
-
-(Mahākassapattherassa saddhivihārikavatthu)
+### V. 2- CHUYỆN ĐỆ TỬ CỦA TRƯỞNG LÃO MAHĀ KASSAPA (Mahākassapattherassa saddhivihārikavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 61)**
 
@@ -16992,7 +16840,6 @@ Với người cao hoặc bằng ngôi thứ mình.
 Thà rằng quyết chí độc hành,
 Kẻ ngu chẳng phải bạn lành thâm giao”._
 
-
 
 **CHÚ GIẢI:**
 
@@ -17019,8 +16866,7 @@ nghĩa phần tiểu giới, phần Trung giới, phần Đại giới, mười 
 Đầu Đà (dhutaṅga). Pháp Minh sát, bốn Đạo, bốn Quả, ba cái Minh (vijjā), sáu cái Thông (abhiñña).
 Những Giới đức trên đây không có nơi kẻ ngu si.
 
-
-Khi thời pháp chấm dứt, vị Tỳ Khưu khách chứng đắc Tu Đà Hườn quả. Các vị khác cũng có
+Khi thời pháp chấm dứt, vị Tỳ Khưu khách chứng đắc Tu Đà Hườn quả. Các vị khác cũng có
 nhiều vị chứng đắc Thánh quả, nhất là Tu Đà Hườn quả. Đại chúng thính Pháp đều hưởng được sự lợi
 ích.
 
@@ -17036,9 +16882,7 @@ Kiếp xưa là khỉ, nay người ngợm,
 Xác đổi nhưng mà trí vẫn lu.
 DỨT TÍCH ĐỆ TỬ CỦA TRƯỞNG LÃO MAHĀKASSAPA
 
-### V. 3- CHUYỆN TRƯỞNG GIẢ ĀNANDA
-
-(Ānandaseṭṭhivatthu)
+### V. 3- CHUYỆN TRƯỞNG GIẢ ĀNANDA (Ānandaseṭṭhivatthu)
 
 **KỆ NGÔN: (Pháp Cú số 62)**
 
@@ -17142,7 +16986,6 @@ Kuto puttā kuto dhanaṁ”_
 Nhưng không biết chính mình ta,
 Còn không tự chủ, huống là của, con”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -17170,7 +17013,6 @@ con, mà con và của có làm chi được trong tiền kiếp, lúc ông sắ
 ông chịu hậu quả khổ sở như vậy, mà con đâu? Của đâu? Sao không chia sớt sự khổ cho ông, sao
 không chia vui cho ông?
 
-
 Thời pháp vừa dứt, tám muôn bốn ngàn chúng sanh giác ngộ Chánh Pháp. Đại chúng dự thính
 cũng được hưởng nhiều lợi ích.
 
@@ -17186,9 +17028,7 @@ Vâng lời Phật, chỉ hầm chôn của,
 Mới được đoàn viên, phụ tử tình.
 DỨT TÍCH TRƯỞNG GIẢ ANAN
 
-### V. 4- CHUYỆN NGƯỜI ĐIẾM MÓC TÚI
-
-(Gaṇḍhibhedakacoravatthu)
+### V. 4- CHUYỆN NGƯỜI ĐIẾM MÓC TÚI (Gaṇḍhibhedakacoravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 63)**
 
@@ -17227,7 +17067,6 @@ Thật là ngu đặc, không còn biết chi.
 Ngu mà tự biết mình si,
 Cũng là người trí, không suy nghĩ lầm”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -17244,7 +17083,6 @@ hiền trí, nên không tìm lân la thân cận với bậc hiền trí nào k
 không chịu tiến hành các pháp Thiền chỉ Quán, thiên chấp một cách ngu xuẩn. Đức Thế Tôn cho
 rằng: “Thật đáng gọi là người ngu”.
 
-
 Đức Bổn Sư vừa thuyết dứt bài pháp, những quyến thuộc của vị Thánh Thinh Văn chứng đắc Tu
 Đà Hườn quả một lượt với hàng đại chúng.
 
@@ -17260,9 +17098,7 @@ Cùng nhau dắt dẫn trên đường chánh,
 Dốc núi dầu cao cũng cứ trèo.
 DỨT TÍCH NGƯỜI ĐIẾM MÓC TÚI
 
-### V. 5- CHUYỆN TRƯỞNG LÃO UDĀYI
-
-(Udāyittheravatthu)
+### V. 5- CHUYỆN TRƯỞNG LÃO UDĀYI (Udāyittheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 64)**
 
@@ -17292,7 +17128,6 @@ Suốt đời cũng chẳng nhập tâm pháp mầu.
 Muỗng nào biết nếm vị đâu,
 Dầu cho vẫn nhúng ngập đầu trong canh”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -17308,7 +17143,6 @@ có nhiều gia vị, cho tới cạn hết tô canh đi nữa, cũng không n�
 chua, hay là lạt, đắng hay là cay... hoặc ngon hay dở như thế nào thì người ngu dốt suốt đời ở bên
 cạnh người trí cũng không biết được các pháp đã giải ở trên, cũng như thế ấy.
 
-
 Đến cuối thời pháp, tâm của chư khách Tăng giải thoát hết mọi Lậu hoặc.
 
 
@@ -17323,9 +17157,7 @@ Nhưng vì thiếu hẳn phần tri giác,
 Mùi vị làm sao có thể sanh?
 DỨT TÍCH TRƯỞNG LÃO udāYI
 
-### V. 6- CHUYỆN NHÓM TỲ KHƯU PĀṬHEYYAKA
-
-(Pāṭheyyakabhikkhuvatthu)
+### V. 6- CHUYỆN NHÓM TỲ KHƯU PĀṬHEYYAKA (Pāṭheyyakabhikkhuvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 65)**
 
@@ -17367,7 +17199,6 @@ Chỉ trong khoảnh khắc hiểu rành lý chơn.
 Lưỡi kia chỉ nếm một lần,
 Vị mùi canh đã biệt phân rõ ràng”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -17378,7 +17209,6 @@ như người có lưỡi lành mạnh, sạch sẽ, khi muốn biết vị củ
 nếm, tức khắc biết ngay vị của nó là ngọt, mặn hay thế nào, thì người trí cũng mau biết pháp Siêu
 thế cũng như thế ấy.
 
-
 Khi thời pháp chấm dứt, rất nhiều Tỳ Khưu chứng đắc quả A La Hán.
 
 
@@ -17393,9 +17223,7 @@ Do nhờ có sẵn phần tri giác,
 Mùi vị đương nhiên phải phát sanh.
 DỨT TÍCH NHÓM TỲ KHƯU BẠT ĐỀ
 
-### V. 7- CHUYỆN ÔNG SUPPABUDDHAKUṬṬHI
-
-(Suppabuddhakuṭṭhivatthu)
+### V. 7- CHUYỆN ÔNG SUPPABUDDHAKUṬṬHI (Suppabuddhakuṭṭhivatthu)
 
 **KỆ NGÔN: (Pháp Cú số 66)**
 
@@ -17504,7 +17332,6 @@ Với kẻ thù địch mưu toan hại mình.
 Là nghiệp ác lúc bình sinh,
 Hậu quả cay đắng tự mình mà ra”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -17516,7 +17343,6 @@ Dummedhā : Những kẻ thiếu trí và vô trí tuệ.
 Amittenevā : Như là những kẻ thù nghịch.
 Kaṭukapphalaṁ : Là quả cay đắng, khổ sở cùng cực.
 
-
 
 Đến cuối thời pháp nhiều vị Tỳ Khưu chứng đắc Thánh quả, nhất là quả Dự Lưu.
 
@@ -17532,9 +17358,7 @@ Chỉ đợi thời cơ là trổ quả,
 Mới hay thù địch vẫn chung đàng.
 DỨT TÍCH THIỆN GIÁC CÙI
 
-### V. 8- CHUYỆN NGƯỜI NÔNG PHU MẮC NẠN
-
-(Kassakavatthu)
+### V. 8- CHUYỆN NGƯỜI NÔNG PHU MẮC NẠN (Kassakavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 67)**
 
@@ -17634,7 +17458,6 @@ Làm xong hối tiếc lệ sa dầm dề.
 Mặt mày nhăn nhó ủ ê,
 Thọ ngay quả báo nặng nề đắng cay”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -17645,8 +17468,7 @@ không êm dịu đâu.
 **_Yassa assumukho:_** Nghiệp ấy có hậu quả là sẽ khóc lóc than van với bộ mặt đầm đìa nước
 mắt.
 
-
-Khi dứt thời pháp, Cận sự nam là người nông phu chứng đắc Tu Đà Huờn quả. Những Tỳ Khưu
+Khi dứt thời pháp, Cận sự nam là người nông phu chứng đắc Tu Đà Huờn quả. Những Tỳ Khưu
 hiện diện cũng có nhiều vị chứng đắc thánh quả, nhứt là quả Tu Đà Hườn.
 
 
@@ -17663,9 +17485,7 @@ Nhờ Phật từ bi mới mạng toàn._
 
 DỨT TÍCH NGƯỜI NÔNG PHU
 
-### V. 9- CHUYỆN ÔNG HÀNG HOA SUMANA
-
-(Sumanamālākāravatthu)
+### V. 9- CHUYỆN ÔNG HÀNG HOA SUMANA (Sumanamālākāravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 68)**
 
@@ -17876,7 +17696,6 @@ Làm xong chẳng chút mảy may hận phiền.
 Nghiệp nào Hảo Ý vui yên,
 Thọ ngay phước báo tùy duyên hợp thời”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -17895,7 +17714,6 @@ nghiệp trong kiếp quá khứ vậy.
 câu kết luận, nhưng trong bài kệ nầy được đặt lên hàng đầu, có lẽ vì Đức Thế Tôn muốn biểu dương
 thiện nghiệp của người thợ bán hoa Sumana để làm gương cho mọi người bắt chước vậy).
 
-
 Thời pháp vừa chấm dứt, tám muôn bốn ngàn chúng sanh được tỏ ngộ Chánh Pháp.
 
 
@@ -17910,9 +17728,7 @@ Ai ngờ bỏ cả mà được cả,
 Mãn kiếp thanh nhàn sướng tợ tiên.
 DỨT TÍCH ÔNG BÁN HOA SUMANA
 
-### V. 10- CHUYỆN NỮ THÁNH UPPALAVAṆṆĀ
-
-(Uppalavaṇṇātherīvatthu)
+### V. 10- CHUYỆN NỮ THÁNH UPPALAVAṆṆĀ (Uppalavaṇṇātherīvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 69)**
 
@@ -17990,7 +17806,6 @@ Người ngu lầm tưởng yên vui mật đường.
 Đến giờ quả chín như thường,
 Người ngu mới thấy chán chường khổ đau”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -18007,7 +17822,6 @@ trong kiếp nầy hoặc trong kiếp sau thì kẻ ác phải chịu khổ th�
 
 Atha bālo nigacchati: Khi ấy kẻ ngu đi đến khổ cảnh, là phải bị khổ, bị thọ khổ như vậy.
 
-
 Khi thời pháp chấm dứt, nhiều vị chứng đắc Thánh quả, nhứt là Tu Đà Hườn quả.
 Vào thời khác, đại chúng Tỳ Khưu cùng nhau luận đạo trong phòng Pháp hội, đề xướng pháp
 thoại như vầy: “Dầu là bậc Lậu Tận (Khìṇāsavā) theo ý tôi nghĩ, các Ngài cũng còn thọ hưởng dục
@@ -18062,9 +17876,7 @@ Hỷ Lạc nài hoa, say mật ngọt,
 Ngờ đâu đất sụp, dạo A Tỳ.
 DỨT TÍCH THÁNH NỮ UPPALAVAṇṇā
 
-### V. 11- CHUYỆN JAMBŪKĀJĪVAKA
-
-(Jambūkājīvakavatthu)
+### V. 11- CHUYỆN JAMBŪKĀJĪVAKA (Jambūkājīvakavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 70)**
 
@@ -18409,7 +18221,6 @@ Kalaṁ agghati soḷasinti”._
 So người chứng đắc pháp chơn,
 Một phần mười sáu không hơn được mà”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -18432,7 +18243,6 @@ Vả lại, nếu đem quả phước do tác ý của người chứng ngộ ch
 nhỏ nữa, thì một phần nhỏ của quả phước nầy cũng còn to lớn gấp bội công phu khổ hạnh của người
 ngu kia.
 
-
 Khi Đức Bổn Sư chấm dứt pháp thoại, có đến tám muôn bốn ngàn chúng sanh giác ngộ chân lý.
 
 
@@ -18448,9 +18258,7 @@ Ngồi nghe Phật thuyết kinh tuần tự,
 Hào Cẩu Tỳ Khưu đắc đạo mầu.
 DỨT TÍCH JAMBŪKĀJĪVAKA
 
-### V. 12- CHUYỆN NGẠ QUỈ MÌNH RẮN
-
-(Ahipetavatthu)
+### V. 12- CHUYỆN NGẠ QUỈ MÌNH RẮN (Ahipetavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 71)**
 
@@ -18607,7 +18415,6 @@ Như sữa mới nặn khó mà đông ngay.
 Tro tàn lửa ngún còn đây,
 Ngầm theo kẻ ác, hằng ngày đốt thiêu”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -18643,9 +18450,7 @@ Nay làm ngạ quỉ mình như rắn,
 Thọ khổ trường miên khó thoát ly.
 DỨT TÍCH NGẠ QUỈ MÌNH RẮN
 
-### V. 13- CHUYỆN NGẠ QUỈ BÚA ĐẬP ĐẦU
-
-(Saṭṭhīkūṭapetavatthu)
+### V. 13- CHUYỆN NGẠ QUỈ BÚA ĐẬP ĐẦU (Saṭṭhīkūṭapetavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 72)**
 
@@ -18818,7 +18623,6 @@ Tài cao để khiến tự chiêu tội tình.
 Làm tiêu thiện pháp để dành,
 Đầu y cũng phá tan tành chẳng sai”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -18843,7 +18647,6 @@ trước của y cũng bắt đầu suy sụp, tiêu hoại.
 **_Vipātayaṁ_** : Là tiêu diệt phá tan, đập vỡ ra. Quả nhiên người ngu bị trí danh phá tan vỡ thiện
 pháp của họ, phá tan vỡ luôn cả cái gọi là trí tuệ, đầu não của họ nữa.
 
-
 Thời pháp vừa dứt, nhiều vị Tỳ Khưu đắc thánh quả, nhứt là Quả Tu Đà Huờn.
 
 
@@ -18858,9 +18661,7 @@ Hỏa ngục thiêu còn dư sót lại,
 Làm thân ngạ quỉ đỉnh Linh Sơn.
 DỨT TÍCH NGẠ QUỈ BỊ BÚA ĐẬP ĐẦU
 
-### V. 14- CHUYỆN TRƯỞNG LÃO THIỆN PHÁP
-
-(Sudhammattheravatthu)
+### V. 14- CHUYỆN TRƯỞNG LÃO THIỆN PHÁP (Sudhammattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 73-74)**
 
@@ -19007,7 +18808,6 @@ Muốn cho Tăng tục biết qua việc mình.
 Nên lòng ngạo mạn phát sinh,
 Lòng tham lam cũng mặc tình gia tăng”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -19048,7 +18848,6 @@ tham lam). Khi tà tư duy đã phát sanh lên như vậy thì không bao giờ
 quả tăng tiến được nữa. Trái lại, ái dục (taṇhā) sẽ dấy lên theo sáu cửa và đồng tăng trưởng với tâm
 ngã mạn như toàn thể nước thủy triều dưng lên trong dục hải.
 
-
 Khi thời pháp chấm dứt, nhiều vị Tỳ Khưu chứng đắc Thánh Quả, nhứt là Dự Lưu.
 Trưởng Lão Sudhamma nghe Đức Thế Tôn ban huấn từ xong, đảnh lễ Ngài, rời khỏi chỗ ngồi
 đứng lên nhiễu quanh Ngài ba vòng đoạn cùng vị Tỳ Khưu bạn lên đường đi Mạc Thi Ca.
@@ -19208,9 +19007,7 @@ Nhờ kinh Pháp Cú, thầy khuyên dứt,
 Diệt ngã hành thâm đắc đạo mầu.
 DỨT TÍCH TRƯỞNG LÃO THIỆN PHÁP
 
-### V. 15- CHUYỆN TRƯỞNG LÃO TISSA Ở RỪNG
-
-(Vanavāsitissattheravatthu)
+### V. 15- CHUYỆN TRƯỞNG LÃO TISSA Ở RỪNG (Vanavāsitissattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 75)**
 
@@ -19764,7 +19561,6 @@ Chớ nên tham đắm lợi danh thế quyền.
 Đạo mầu ráng để tâm chuyên,
 Đi đường giải thoát bình yên lâu dài”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -19802,8 +19598,7 @@ người lại nữa.
 
 Tỳ Khưu nên ráng xúc tiến thực hành tròn đủ ba pháp Thanh tịnh trên đây luôn luôn.
 
-
-Đức Bổn Sư vừa dứt thời pháp, có nhiều Tỳ Khưu chứng đắc Thánh quả, nhất là quả Tu Đà
+Đức Bổn Sư vừa dứt thời pháp, có nhiều Tỳ Khưu chứng đắc Thánh quả, nhất là quả Tu Đà
 Hườn.
 
 
@@ -19818,16 +19613,12 @@ Con đường thế lợi nhiêu khê lắm,
 Thà sống an vui với đạo mầu.
 DỨT TÍCH TISSA CƯ LÂM DỨT PHẨM: NGU NHƠN
 
-## VI. PHẨM HIỀN TRÍ
-
-(PAṆḌITA VAGGA)
+## VI. PHẨM HIỀN TRÍ (PAṆḌITA VAGGA)
 
 - 14 bài kệ: Pháp Cú số 76-89
 - 11 chuyện.
 
-### VI. 1- CHUYỆN TRƯỞNG LÃO RĀDHA
-
-(Rādhattheravatthu)
+### VI. 1- CHUYỆN TRƯỞNG LÃO RĀDHA (Rādhattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 76)**
 
@@ -19953,7 +19744,6 @@ Xem họ như bậc cao minh chỉ đàng.
 Cho ta tìm thấy kho tàng,
 Gần hiền vô hại, lợi càng gia tăng”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -19998,7 +19788,6 @@ niggayhāhaṁ Ānanda vakkhāmi, paggayha paggayhāhaṁ Ānanda vakkhāmi. Yo 
 Quả thật, vị đệ tử mà nương nhờ học hỏi với Giáo sư như vậy, thì thâu hoạch được nhiều lợi ích,
 không bao giờ phải chịu thiệt thòi, hoặc tăng thêm những điều quấy ác tai hại.
 
-
 Thời pháp vừa dứt, nhiều vị Tỳ Khưu chứng đắc Đạo quả.
 
 
@@ -20013,9 +19802,7 @@ Càng mau thấy lỗi càng mau sửa,
 Thầy đó, trò đây, thảy Thánh nhân...
 DỨT TÍCH TRƯỞNG LÃO RādHA
 
-### VI. 2- CHUYỆN ÁC TĂNG
-
-(Assajipunabbasukavatthu)
+### VI. 2- CHUYỆN ÁC TĂNG (Assajipunabbasukavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 77)**
 
@@ -20058,7 +19845,6 @@ Thấy ai phạm lỗi can ngăn tức thì.
 Người sáng kính mến yêu vì,
 Kẻ tối, trái lại sân si oán thù”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -20080,7 +19866,6 @@ nuôi thân sống mà thôi cho nên đối với người dạy dỗ khuyên r
 xỉa xói vào mặt: “Sư không phải là thầy Tế độ, không phải là thầy Tiếp dẫn của chúng tôi. Tại sao Sư
 lại muốn dạy chúng tôi; kẻ tối mê không ưa mà còn ghét người dạy dỗ như thế.
 
-
 Đến cuối thời pháp, nhiều vị Tỳ Khưu chứng đắc Thánh Quả, nhất là Tu Đà Hườn.
 Sau khi nhận lãnh huấn từ của đức Bổn Sư, Trưởng Lão Sāriputta cùng Trưởng Lão Moggallāna
 ra đi đến dạy dỗ, nhắc nhở nhóm Tỳ Khưu tà hạnh, có một số nhận lãnh huấn từ giáo hóa, cải tà qui
@@ -20095,9 +19880,7 @@ Biết nghe lời dạy còn yêu Phật,
 Ngoan cố thì theo hẳn thế tình...
 DỨT TÍCH: ASSAJIPUNABBASUKA
 
-### VI. 3- CHUYỆN TRƯỞNG LÃO CHANNA
-
-(Channattheravatthu)
+### VI. 3- CHUYỆN TRƯỞNG LÃO CHANNA (Channattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 78)**
 
@@ -20139,7 +19922,6 @@ Bhajetha purisuttameti”._
 Chỉ nên kết nghĩa kim bằng,
 Với bậc hiền đức, trí năng hơn đời”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -20148,7 +19930,6 @@ người truy hoan trong các bất thiện pháp, nhất là thân tà hạnh (
 cướp chẳng hạn. Và hai là hạng đê tiện thấp hèn trong số hai mươi mốt hạng người không nên thân
 cận. Trái lại những người lành, thuộc hạng trượng phu quân tử thì nên tìm đến mà cầu thân giao kết.
 
-
 Sau thời pháp có nhiều Tỳ Khưu chứng đắc Thánh quả, nhứt là Tu Đà Hườn quả.
 Trưởng Lão Chana, mặc dầu đã nghe được huấn từ, sau đó cũng vẫn còn tiếp tục mỉa mai,
 nhiếc móc các Tỳ Khưu. Chư Tăng lại bạch lên Đức Thế Tôn việc làm khiếm nhã nầy. Đức thầy phán
@@ -20181,9 +19962,7 @@ Cái bịnh cống cao vừa trị dứt,
 Thì ngôi La Hán đã phô bày.
 DỨT TÍCH TRƯỞNG LÃO CHANNA
 
-### VI. 4- CHUYỆN TRƯỞNG LÃO MAHĀ KAPPINA
-
-(Mahākappinattheravatthu)
+### VI. 4- CHUYỆN TRƯỞNG LÃO MAHĀ KAPPINA (Mahākappinattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 79)**
 
@@ -20591,7 +20370,6 @@ Với tâm khiết tịnh, sống đời thanh cao.
 Người trí mãi mãi hân hoan,
 Lắng nghe Pháp Phật bảo ban giáo truyền”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -20609,7 +20387,6 @@ sanh quả Bồ Đề (Bodhipakkhiyadhamma), Tứ niệm xứ...
 **_Sadā ramati_** : Người đắc pháp hỷ như thế, tâm hằng thanh tịnh thuần khiết. Có đầy đủ trí tuệ
 sáng suốt thì luôn luôn hoan hỷ thảnh thơi, vui một niềm vui thoát tục.
 
-
 Thời pháp vừa dứt có nhiều vị chứng đắc Thánh quả nhứt là Tu Đà Hườn quả.
 
 
@@ -20624,9 +20401,7 @@ Của tiền danh vọng, cần chi nữa,
 Một quả vô sanh quá đủ mà.
 DỨT TÍCH TRƯỞNG LÃO MAHākaPPINA
 
-### VI. 5- CHUYỆN SADI PAṆḌITA
-
-(Paṇḍitasāmaṇeravatthu)
+### VI. 5- CHUYỆN SADI PAṆḌITA (Paṇḍitasāmaṇeravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 80)**
 
@@ -21192,7 +20967,6 @@ Thợ làm cung nắm ngay liền mũi tên.
 Thợ mộc uốn gỗ cần chuyên,
 Trí giả điều chế tâm viên của mình”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -21211,7 +20985,6 @@ tâm... Rồi điều chế tự ngã mà đắc A La Hán luôn liền theo đ�
 Dầu với vật vô tâm hay hữu tâm, hành giả đều phải hạ thủ công phu mới đạt đến chỗ diệu dụng
 được.
 
-
 Sau thời pháp nhiều vị Tỳ Khưu chứng thánh quả...
 
 
@@ -21226,9 +20999,7 @@ Nguyện cũ mãn rồi trong kiếp chót,
 Níp Bàn bảy tuổi đã nên danh.
 DỨT TÍCH SA DI PAṇḍITA
 
-### VI. 6- CHUYỆN TRƯỞNG LÃO LAKUṆṬAKABHADDIYA
-
-(Lakuṇṭakabhaddiyattheravatthu)
+### VI. 6- CHUYỆN TRƯỞNG LÃO LAKUṆṬAKABHADDIYA (Lakuṇṭakabhaddiyattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 81)**
 
@@ -21270,7 +21041,6 @@ giông nào lay chuyển rung rinh bao giờ.
 Tâm người đại trí trơ trơ,
 Chê khen cũng mặc, lặng lờ như không”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -21284,7 +21054,6 @@ Quả thật, cũng như tảng đá đặc, không tầm bọng, không hề b�
 dịch, lúc lắc, các bậc trí giả dầu còn ở trong vòng tám pháp thế gian, vẫn không hề bị phiền phức.
 Tâm các bậc ấy không lay động, biến đổi vì ảnh hưởng của sự não hại hay là bất thân thiện.
 
-
 Đến cuối thời pháp, nhiều vị Tỳ Khưu chứng đắc Tu Đà Hoàn quả....
 
 
@@ -21299,9 +21068,7 @@ Tâm trí kiên cường như núi đá,
 Ngoài da, bạn lữ biết đâu nào.
 DỨT TÍCH TRƯỞNG LÃO BHADDIYA LÙN
 
-### VI. 7- CHUYỆN MẸ CÔNG CHÚA KĀṆĀ
-
-(Kāṇāmātāvatthu)
+### VI. 7- CHUYỆN MẸ CÔNG CHÚA KĀṆĀ (Kāṇāmātāvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 82)**
 
@@ -21431,7 +21198,6 @@ Tâm liền thanh tịnh, sạch trong như hồ.
 Nước sâu, gương phẳng lặng tờ,
 Trong veo sáng suốt, chẳng nhơ bụi hồng”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -21459,9 +21225,7 @@ Mỗi ngày công chúa lo làm phước,
 Chờ mãi hoài công, nghĩ ngán chăng?
 DỨT TÍCH MẸ NÀNG kāỊÀ
 
-### VI. 8- CHUYỆN NĂM TRĂM VỊ TỲ KHƯU
-
-(Pañcasatabhikkhuvatthu)
+### VI. 8- CHUYỆN NĂM TRĂM VỊ TỲ KHƯU (Pañcasatabhikkhuvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 83)**
 
@@ -21552,7 +21316,6 @@ Na uccāvacaṁ paṇḍitā dassayantīti”._
 Trí giả, tâm đã tịnh an,
 Gặp cảnh sướng khổ, chẳng màng nói ra”.
 
-
 
 **CHÚ GIẢI:**
 
@@ -21582,7 +21345,6 @@ Khưu nói ướm để được thỉnh mời như vậy, gọi là lapayanti. 
 Dầu tiếp xúc với cảnh vui hay cảnh khổ, dầu bị tám pháp thế gian đụng chạm đến các Ngài,
 bậc Trí giả cũng không to tiếng, lộ vẻ bất bình khen tốt, chê xấu, hãnh diện hay hổ thẹn chi cả.
 
-
 Cuối thời pháp, có nhiều vị Tỳ Khưu chứng đắc quả Tu Đà Hườn...
 
 
@@ -21597,9 +21359,7 @@ Thói đời no đủ sanh nhiều chuyện,
 Theo Phật ăn dư lại tự hào.
 DỨT TÍCH NĂM TRĂM VỊ TỲ KHƯU
 
-### VI. 9- CHUYỆN TRƯỞNG LÃO HỢP PHÁP
-
-(Dhammikattheravatthu)
+### VI. 9- CHUYỆN TRƯỞNG LÃO HỢP PHÁP (Dhammikattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 84)**
 
@@ -21668,7 +21428,6 @@ Không mưu thần, chước quỉ,
 Chỉ sống thuần đức hạnh,
 Chánh trí, hợp Chánh Pháp). (T.M. C.)
 
-
 
 **CHÚ GIẢI:**
 
@@ -21684,7 +21443,6 @@ pháp, cho nên không làm ác vì lý do lợi ích vậy.
 **_Sa sīlavā:_** Bậc quân tử, trượng phu như vậy chính là bậc có đức hạnh, có trí tuệ và sống hợp
 Chánh Pháp. Ngoài ra không có ai khác.
 
-
 Cuối thời pháp, nhiều vị Tỳ Khưu đắc Thánh quả nhất là Tu Đà Hườn quả.
 
 
@@ -21699,9 +21457,7 @@ Mắt trần khó biết phân tà chánh,
 Hợp Pháp Tỳ Khưu, La Hán mà.
 DỨT TÍCH TRƯỞNG LÃO DHAMMIKA
 
-### VI. 10- CHUYỆN NGHE THUYẾT PHÁP
-
-(Dhammassavanavatthu)
+### VI. 10- CHUYỆN NGHE THUYẾT PHÁP (Dhammassavanavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 85-86)**
 
@@ -21750,7 +21506,6 @@ Theo Chánh Pháp khéo dạy,
 Sẽ đạt đến bờ kia,
 Vượt ma giới khó thoát”.) (TMC)_
 
-
 
 **CHÚ GIẢI:**
 
@@ -21772,7 +21527,6 @@ não Ma vương (kilesamārasaṅkhāta) bao vây.
 vây của Ma vương rất khó vượt qua khỏi vòng vây của Ma vương rất khó vượt qua và đạt đến bờ kia
 là Níp Bàn.
 
-
 Cuối thời pháp, nhiều thính giả đắc quả Thánh quả, nhất là Tu Đà Hườn quả.
 
 
@@ -21787,9 +21541,7 @@ Vượt biển khổ qua bờ giải thoát,
 Xưa nay rất hiếm bậc viên thành.
 DỨT TÍCH NGHE THUYẾT PHÁP
 
-### VI. 11- CHUYỆN ĀGANTUKA
-
-(Āgantukabhikkhuvatthu)
+### VI. 11- CHUYỆN ĀGANTUKA (Āgantukabhikkhuvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 87-88-89)**
 
@@ -21841,7 +21593,6 @@ Rời tâm ái dục, diệt bề trăm lao.
 Để thành sáng suốt thanh cao,
 Níp Bàn ắt sẽ chứng vào hiện nay”. (89)_
 
-
 “Kẻ trí bỏ hắc pháp,
 Tu tập theo bạch pháp,
 Bỏ nhà sống không nhà,
@@ -21860,7 +21611,6 @@ Mọi cấu uế nội tâm”. (88)
   Sáng chói, chứng Níp Bàn,
   Ngay trong đời hiện tại”.\_
 
-
 
 **CHÚ GIẢI:**
 
@@ -21887,7 +21637,6 @@ Bàn vì đã giác ngộ lý pháp.
 Hán, về sau đã liệng bỏ cả vòng Ngũ uẩn với sự diệt tận cuối cùng bằng Vô dư Níp Bàn. Người đã
 Níp Bàn là người không còn chấp thủ thứ gì cả, giống như cây đèn tắt vậy.
 
-
 Cuối thời pháp nhiều vị Tỳ Khưu chứng đắc thánh quả, nhất là Tu Đà Hườn quả.
 
 
@@ -21903,16 +21652,12 @@ Níp Bàn quả vị sẽ không xa.
 DỨT TÍCH KHÁCH TĂNG
 DỨT PHẨM HIỀN TRÍ
 
-## VII. PHẨM A LA HÁN
-
-(ARAHANTAVAGGA)
+## VII. PHẨM A LA HÁN (ARAHANTAVAGGA)
 
 - 10 bài kệ: Pháp Cú số 90-99
 - 10 chuyện.
 
-### VII. 1- CHUYỆN NGỰ Y JĪVAKA VẤN ĐẠO
-
-(Jīvakapañhavatthu)
+### VII. 1- CHUYỆN NGỰ Y JĪVAKA VẤN ĐẠO (Jīvakapañhavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 90)**
 
@@ -22021,9 +21766,7 @@ Nhưng bao quả cũ vẫn còn nhồi,
 Dầu Phật hay ai, cũng thế thôi!
 DỨT TÍCH NGỰ Y KỲ BÁ BĂNG CHÂN PHẬT
 
-### VII. 2- CHUYỆN TRƯỞNG LÃO MAHĀ KASSAPA BỊ CHÊ
-
-(Mahākassapattheravatthu)
+### VII. 2- CHUYỆN TRƯỞNG LÃO MAHĀ KASSAPA BỊ CHÊ (Mahākassapattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 91)**
 
@@ -22146,9 +21889,7 @@ Trời cao, gió lộng, chim bay mãi,
 La Hán không còn chấp “Của ta!"
 DỨT TÍCH TRƯỞNG LÃO Mahā Kassapa BỊ CHÊ
 
-### VII. 3- CHUYỆN TRƯỞNG LÃO BEḶAṬṬHASĪSA
-
-(Beḷaṭṭhasīsattheravatthu)
+### VII. 3- CHUYỆN TRƯỞNG LÃO BEḶAṬṬHASĪSA (Beḷaṭṭhasīsattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 92)**
 
@@ -22237,9 +21978,7 @@ Người tu đi bát ăn từng bữa,
 La Hán không còn trữ Nghiệp duyên.
 DỨT TÍCH TRƯỞNG LÃO BEḶAṬṬHASĪSA
 
-### VII. 4- CHUYỆN TRƯỞNG LÃO ANURUDDHA
-
-(Anuruddhattheravatthu)
+### VII. 4- CHUYỆN TRƯỞNG LÃO ANURUDDHA (Anuruddhattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 93)**
 
@@ -22333,9 +22072,7 @@ Phật rằng: La Hán tâm không bận,
 Lo nghĩ cơm tiền vật dụng tư...
 DỨT TÍCH TRƯỞNG LÃO ANURUDDHA
 
-### VII. 5- CHUYỆN TRƯỞNG LÃO MAHĀ KACCĀYANA
-
-(Mahākaccāyanattheravatthu)
+### VII. 5- CHUYỆN TRƯỞNG LÃO MAHĀ KACCĀYANA (Mahākaccāyanattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 94)**
 
@@ -22427,9 +22164,7 @@ Tâm không Ngã mạn, không Tà kiến,
 Ắt được lòng yêu của Nhân thiên.
 DỨT TÍCH TRƯỞNG LÃO MAHĀ KACCĀYANA
 
-### VII. 6- CHUYỆN TRƯỞNG LÃO SĀRIPUTTA BỊ CÁO GIAN
-
-(Sārīputtattheravatthu)
+### VII. 6- CHUYỆN TRƯỞNG LÃO SĀRIPUTTA BỊ CÁO GIAN (Sārīputtattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 95)**
 
@@ -22551,9 +22286,7 @@ Sạch tợ trùng dương, chẳng nhuốm trần.
 
 DỨT TÍCH TRƯỞNG LÃO SĀRIPUTTA BỊ CÁO GIAN
 
-### VII. 7- CHUYỆN TRƯỞNG LÃO TISSA Ở KOSAMBI
-
-(Kosambivāsītissattherasāmaṇeravatthu)
+### VII. 7- CHUYỆN TRƯỞNG LÃO TISSA Ở KOSAMBI (Kosambivāsītissattherasāmaṇeravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 96)**
 
@@ -22699,9 +22432,7 @@ Sư nghe, Ngã mạn tiêu tan hết,
 Cũng đắc như trò, Quả tối linh.
 DỨT TÍCH TRƯỞNG LÃO TISSA Ở KOSAMBI
 
-### VII. 8- CHUYỆN TRƯỞNG LÃO SĀRIPUTTA TỰ TIN
-
-(Sārīputtattheravatthu)
+### VII. 8- CHUYỆN TRƯỞNG LÃO SĀRIPUTTA TỰ TIN (Sārīputtattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 97)**
 
@@ -22788,9 +22519,7 @@ Tự mình thấu triệt luân hồi khổ,
 Cổi bỏ mười dây kiết sử ra.
 DỨT TÍCH TRƯỞNG LÃO SĀRIPUTTA TỰ TIN
 
-### VII. 9- CHUYỆN TRƯỞNG LÃO REVATA Ở RỪNG KEO
-
-(Khadiravaniyarevatattheravatthu)
+### VII. 9- CHUYỆN TRƯỞNG LÃO REVATA Ở RỪNG KEO (Khadiravaniyarevatattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 98)**
 
@@ -23131,9 +22860,7 @@ Xóm làng, đồi núi đều ngoạn mục,
 Thánh cảnh, trời người thảy ước ao.
 DỨT TÍCH TRƯỞNG LÃO REVATA Ở RỪNG KEO
 
-### VII. 10- CHUYỆN PHỤ NỮ GHẸO THIỀN SƯ
-
-(Aññatara-itthivatthu)
+### VII. 10- CHUYỆN PHỤ NỮ GHẸO THIỀN SƯ (Aññatara-itthivatthu)
 
 **KỆ NGÔN: (Pháp Cú số 99)**
 
@@ -23206,16 +22933,12 @@ La Hán không theo lối thế tình.
 
 DỨT PHẨM A LA HÁN
 
-## VIII. PHẨM NGÀN
-
-(SAHASSAVAGGA)
+## VIII. PHẨM NGÀN (SAHASSAVAGGA)
 
 - 16 bài kệ: Pháp Cú số 100-115
 - 14 Chuyện.
 
-### VIII. 1- CHUYỆN ĐAO PHỦ THỦ NANH ĐỒNG
-
-(Tambadāṭhikacoraghātakavatthu)
+### VIII. 1- CHUYỆN ĐAO PHỦ THỦ NANH ĐỒNG (Tambadāṭhikacoraghātakavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 100)**
 
@@ -23400,9 +23123,7 @@ Sơ Quả chứng liền, dứt ngại nghi,
 Mặc cho bò húc rã thây thi...
 DỨT TÍCH ĐAO PHỦ THỦ NANH ĐỒNG
 
-### VIII. 2- CHUYỆN TRƯỞNG LÃO BĀHIYA MẶC Y VỎ CÂY
-
-(Bāhiyadārucīriyattheravatthu)
+### VIII. 2- CHUYỆN TRƯỞNG LÃO BĀHIYA MẶC Y VỎ CÂY (Bāhiyadārucīriyattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 101)**
 
@@ -23628,9 +23349,7 @@ Như A La Hán Thinh Văn vậy,
 
 DỨT TÍCH TRƯỞNG LÃO MẶC Y VỎ CÂY
 
-### VIII. 3- CHUYỆN TỲ KHƯU NI TÓC QUĂN
-
-(Kuṇḍalakesittherīvatthu)
+### VIII. 3- CHUYỆN TỲ KHƯU NI TÓC QUĂN (Kuṇḍalakesittherīvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 102-103)**
 
@@ -23949,9 +23668,7 @@ Chỉ có thắng mình là đại thắng,
 Chiến công oanh liệt ấy ai đương?...
 DỨT TÍCH TỲ KHƯU NI TÓC QUĂN
 
-### VIII. 4- CHUYỆN BÀ LA MÔN HỎI PHÁP VÔ ÍCH
-
-(Anatthapucchakabrāhmaṇavatthu)
+### VIII. 4- CHUYỆN BÀ LA MÔN HỎI PHÁP VÔ ÍCH (Anatthapucchakabrāhmaṇavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 104 - 105)**
 
@@ -24058,9 +23775,7 @@ Tự mình thắng được mình mới quí,
 Tự thắng thì ai dám cự đương?...
 DỨT TÍCH ĐIẾM CỜ BẠC HỎI ĂN THUA
 
-### VIII. 5- CHUYỆN BÀ LA MÔN CẬU CỦA TRƯỞNG LÃO SĀRIPUTTA
-
-(Sārīputtattherassa mātulabrāhmaṇa vatthu)
+### VIII. 5- CHUYỆN BÀ LA MÔN CẬU CỦA TRƯỞNG LÃO SĀRIPUTTA (Sārīputtattherassa mātulabrāhmaṇa vatthu)
 
 **KỆ NGÔN: (Pháp Cú số 106)**
 
@@ -24150,9 +23865,7 @@ Không bằng một phút giây sùng kính,
 Các bậc Thinh Văn tu Chánh chân!
 DỨT TÍCH BÀ LA MÔN CẬU CỦA TRƯỞNG LÃO Sāriputta
 
-### VIII. 6- CHUYỆN BÀ LA MÔN CHÁU CỦA TRƯỞNG LÃO SĀRIPUTTA
-
-(Sārīputtattherassa bhāgineyyavatthu)
+### VIII. 6- CHUYỆN BÀ LA MÔN CHÁU CỦA TRƯỞNG LÃO SĀRIPUTTA (Sārīputtattherassa bhāgineyyavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 107)**
 
@@ -24229,9 +23942,7 @@ Không bằng với đức tin chơn chánh,
 Cúng bậc Thinh Văn chỉ một lần!
 DỨT TÍCH BÀ LA MÔN CHÁU CỦA TRƯỞNG LÃO Sāriputta
 
-### VIII. 7- CHUYỆN BÀ LA MÔN BẠN CỦA TRƯỞNG LÃO SĀRIPUTTA
-
-(Sārīputtattherassa sahāyakabrāhmaṇa-vatthu)
+### VIII. 7- CHUYỆN BÀ LA MÔN BẠN CỦA TRƯỞNG LÃO SĀRIPUTTA (Sārīputtattherassa sahāyakabrāhmaṇa-vatthu)
 
 **KỆ NGÔN: (Pháp Cú số 108)**
 
@@ -24311,9 +24022,7 @@ Vì không sánh được phần tư phước,
 Bố thí bần dân, cúng Thánh Tăng.
 DỨT TÍCH BÀ LA MÔN BẠN CỦA TRƯỞNG LÃO Sāriputta
 
-### VIII. 8- CHUYỆN CẬU BÉ ÍCH THỌ
-
-(āyuvaḍḍhanakumāravatthu)
+### VIII. 8- CHUYỆN CẬU BÉ ÍCH THỌ (āyuvaḍḍhanakumāravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 109)**
 
@@ -24462,9 +24171,7 @@ An vui, sắc đẹp, với quyền năng,
 Lễ bái cúng dường bậc lão Tăng.
 DỨT TÍCH CẬU BÉ ÍCH THỌ
 
-### VIII. 9- CHUYỆN SA DI SAṄKICCA
-
-(Saṅkiccasāmaṇeravatthu)
+### VIII. 9- CHUYỆN SA DI SAṄKICCA (Saṅkiccasāmaṇeravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 110)**
 
@@ -24871,9 +24578,7 @@ Còn hơn trăm tuổi không tự chế,
 Tội lỗi như thời gian đã qua...
 DỨT TÍCH SA DI ĐÒN XÓC
 
-### VIII. 10- TRƯỞNG LÃO KOṆḌAÑÑA GỐC CÂY
-
-(Khāṇukoṇḍaññattheravatthu)
+### VIII. 10- TRƯỞNG LÃO KOṆḌAÑÑA GỐC CÂY (Khāṇukoṇḍaññattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 111)**
 
@@ -24960,9 +24665,7 @@ Còn hơn trăm tuổi không Thiền, Tuệ,
 Phóng đãng như thời gian đã qua!
 DỨT TÍCH TRƯỞNG LÃO GỐC CÂY
 
-### VIII. 11- CHUYỆN TRƯỞNG LÃO SAPPADĀSA
-
-(Sappadāsattheravatthu)
+### VIII. 11- CHUYỆN TRƯỞNG LÃO SAPPADĀSA (Sappadāsattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 112)**
 
@@ -25121,9 +24824,7 @@ Chuyên cần Tinh tấn còn hơn sống,
 Suốt cả trăm năm giải đãi mà!
 DỨT TÍCH TRƯỞNG LÃO SAPPADĀSA
 
-### VIII. 12- CHUYỆN TRƯỞNG LÃO NI PAṬĀCĀRĀ
-
-(Paṭācārātherīvatthu)
+### VIII. 12- CHUYỆN TRƯỞNG LÃO NI PAṬĀCĀRĀ (Paṭācārātherīvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 113)**
 
@@ -25397,9 +25098,7 @@ Mà chẳng suốt thông lẽ Diệt Sanh.
 
 DỨT TÍCH NÀNG SA ĐỌA ĐẮC A LA HÁN
 
-### VIII. 13- CHUYỆN KISĀGOTAMĪ
-
-(Kisāgotamīvatthu)
+### VIII. 13- CHUYỆN KISĀGOTAMĪ (Kisāgotamīvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 114)**
 
@@ -25582,9 +25281,7 @@ Chẳng bằng chỉ sống một ngày ngắn,
 Bất tử Vô sanh được tỏ tường.
 DỨT TÍCH NÀNG KIỀU ĐÀM ỐM ĐẮC A LA HÁN
 
-### VIII. 14- CHUYỆN TRƯỞNG LÃO NI BAHUPUTTIKĀ
-
-(Bahuputtikattherīvatthu)
+### VIII. 14- CHUYỆN TRƯỞNG LÃO NI BAHUPUTTIKĀ (Bahuputtikattherīvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 115)**
 
@@ -25665,16 +25362,12 @@ Hơn người sống đến trăm năm chẳn,
 Mà vẫn chưa thông Diệu Đế này!
 DỨT TÍCH TỲ KHƯU NI BAHUPUTTIKĀ ĐẮC A LA HÁN DỨT PHẨM NGÀN
 
-## IX. PHẨM ÁC
-
-(PĀPAVAGGA)
+## IX. PHẨM ÁC (PĀPAVAGGA)
 
 - 13 bài kệ: Pháp Cú số 116-128
 - 12 chuyện.
 
-### IX. 1- CHUYỆN BÀ LA MÔN MỘT ÁO (Lá y choàng nhỏ)
-
-(Cūḷekasāṭakabrāhmaṇavatthu)
+### IX. 1- CHUYỆN BÀ LA MÔN MỘT ÁO (Lá y choàng nhỏ) (Cūḷekasāṭakabrāhmaṇavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 116)**
 
@@ -25813,9 +25506,7 @@ Cứ một ý lành, ngàn ý ác,
 Khó lòng toàn thắng được cho nhanh!
 DỨT TÍCH BÀ LA MÔN MỘT ÁO
 
-### IX. 2- CHUYỆN TRƯỞNG LÃO SEYYASAKA
-
-(Seyyasakattheravatthu)
+### IX. 2- CHUYỆN TRƯỞNG LÃO SEYYASAKA (Seyyasakattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 117)**
 
@@ -25881,9 +25572,7 @@ Giờ phút lâm chung, khó trở tay.
 DỨT TÍCH TRƯỞNG LÃO Seyyasaka.
 
 
-### IX. 3- CHUYỆN THIÊN NỮ CỐM RANG
-
-(Lājadevadhītāvatthu)
+### IX. 3- CHUYỆN THIÊN NỮ CỐM RANG (Lājadevadhītāvatthu)
 
 (Bắp khô (lúa mạch), ngũ cốc khô. Đây là lúa Xa li (sāli) khô rang nổ làm cốm. )
 
@@ -26016,9 +25705,7 @@ Nếu cả một đời tu phước nghiệp,
 Lâm chung nào sợ khổ lâu dài!
 DỨT TÍCH THIÊN NỮ CỐM RANG.
 
-### IX. 4- CHUYỆN ÔNG CẤP CÔ ĐỘC ĐUỔI THIÊN NỮ
-
-(anāthapiṇḍikaseṭṭhivatthu)
+### IX. 4- CHUYỆN ÔNG CẤP CÔ ĐỘC ĐUỔI THIÊN NỮ (anāthapiṇḍikaseṭṭhivatthu)
 
 **KỆ NGÔN: (Pháp Cú số 119-120)**
 
@@ -26204,9 +25891,7 @@ Dầu hiện thời đây gặp tủi hờn.
 DỨT TÍCH ÔNG CẤP CÔ ĐỘC ĐUỔI THIÊN NỮ
 
 
-### IX. 5- CHUYỆN TỲ KHƯU KHINH GIỚI NHỎ
-
-(Asaññataparikkhāravatthu)
+### IX. 5- CHUYỆN TỲ KHƯU KHINH GIỚI NHỎ (Asaññataparikkhāravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 121)**
 
@@ -26297,9 +25982,7 @@ nhễu mãi đầy bình, việc chẳng hèn!
 DỨT TÍCH TỲ KHƯU KHINH GIỚI NHỎ
 
 
-### IX. 6- CHUYỆN BÁ HỘ CHÂN MÈO
-
-(Biḷālapādakaseṭṭhivatthu)
+### IX. 6- CHUYỆN BÁ HỘ CHÂN MÈO (Biḷālapādakaseṭṭhivatthu)
 
 **KỆ NGÔN: (Pháp Cú số 122)**
 
@@ -26433,9 +26116,7 @@ Nhễu mãi đầy bình, việc chẳng hèn!
 DỨT TÍCH BÁ HỘ CHÂN MÈO
 
 
-### IX. 7- CHUYỆN PHÚ THƯƠNG TRÁNH HIỂM LỘ
-
-(Mahādhanavāṇijavatthu)
+### IX. 7- CHUYỆN PHÚ THƯƠNG TRÁNH HIỂM LỘ (Mahādhanavāṇijavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 123)**
 
@@ -26555,9 +26236,7 @@ Như phú thương ngừa cướp ẩn cư.
 DỨT TÍCH PHÚ THƯƠNG TRÁNH HIỂM LỘ
 
 
-### IX. 8- CHUYỆN THỢ SĂN KUKKUṬAMITTA
-
-(Kukkuṭamittanesādavatthu)
+### IX. 8- CHUYỆN THỢ SĂN KUKKUṬAMITTA (Kukkuṭamittanesādavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 124)**
 
@@ -26789,9 +26468,7 @@ Người có bàn tay chẳng vết cầm.
 DỨT TÍCH THỢ SĂN KÊ HỮU
 
 
-### IX. 9- CHUYỆN THỢ SĂN GẶP THIỀN SƯ
-
-(Kokasunakhaluddakavatthu)
+### IX. 9- CHUYỆN THỢ SĂN GẶP THIỀN SƯ (Kokasunakhaluddakavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 125)**
 
@@ -26912,9 +26589,7 @@ Phật bảo: Vô tâm thì chẳng tội,
 Thợ săn chết bởi hắn làm nhăng!
 DỨT TÍCH THỢ SĂN GẶP THIỀN SƯ
 
-### IX. 10- CHUYỆN TRƯỞNG LÃO TISSA VÀ ANH THỢ NGỌC
-
-(Maṇikārakulūpakatissattheravatthu)
+### IX. 10- CHUYỆN TRƯỞNG LÃO TISSA VÀ ANH THỢ NGỌC (Maṇikārakulūpakatissattheravatthu)
 
 **KỆ NGÔN: (Pháp Cú số 126)**
 
@@ -27046,9 +26721,7 @@ Từ nay nhất nguyện xa gia chủ,
 Thọ pháp Đầu Đa, đến Níp Bàn.
 DỨT TÍCH TRƯỞNG LÃO TISSA VÀ ANH THỢ NGỌC
 
-### IX. 11- CHUYỆN BA NHÓM TỲ KHƯU
-
-(Tayojanavatthu)
+### IX. 11- CHUYỆN BA NHÓM TỲ KHƯU (Tayojanavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 127)**
 
@@ -27246,9 +26919,7 @@ Nhân nào Quả nấy không sai chạy,
 Chẳng có nơi đâu khỏi Nghiệp mà!
 DỨT TÍCH BA NHÓM TỲ KHƯU
 
-### IX. 12- CHUYỆN VUA THIỆN GIÁC BỊ ĐẤT RÚT
-
-(Suppabuddhasakyavatthu)
+### IX. 12- CHUYỆN VUA THIỆN GIÁC BỊ ĐẤT RÚT (Suppabuddhasakyavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 128)**
 
@@ -27365,16 +27036,12 @@ Không nơi ẩn úp sống dằng dai.
 DỨT TÍCH VUA THIỆN GIÁC BỊ ĐẤT RÚT DỨT PHẨM ÁC
 
 
-## X. PHẨM ĐAO TRƯỢNG
-
-(DAṆḌAVAGGA)
+## X. PHẨM ĐAO TRƯỢNG (DAṆḌAVAGGA)
 
 - 17 bài kệ: Pháp Cú số 129-145
 - 11 Chuyện
 
-### X. 1- CHUYỆN NHÓM LỤC SƯ HÀNH HUNG
-
-(Chabbaggiyabhikkhuvatthu)
+### X. 1- CHUYỆN NHÓM LỤC SƯ HÀNH HUNG (Chabbaggiyabhikkhuvatthu)
 
 **KỆ NGÔN: (Pháp Cú số 129)**
 
@@ -27450,9 +27117,7 @@ Phải cử sát sanh, giữ Đạo hằng!
 DỨT TÍCH NHÓM LỤC SƯ HÀNH HUNG
 
 
-### X. 2- CHUYỆN NHÓM LỤC SƯ ĐE DỌA
-
-(Chabbaggiyabhikkhuvatthu)
+### X. 2- CHUYỆN NHÓM LỤC SƯ ĐE DỌA (Chabbaggiyabhikkhuvatthu)
 
 **(PC. 130)**
 
@@ -46032,7 +45697,7 @@ DỨT TÍCH: CHUYỆN VỊ BÀ LA MÔN
 "Sabbasaṃyo janaṁ hetvā...". Đức Thế Tôn khi ngự tại Veḷuvana. Ngài đề cập đến con trai
 Trưởng giả Uggasena, tuyên thuyết lên pháp thoại nầy.
 
-(Câu chuyện nầy được giảng rộng trong bài kệ Muñca pūre muñca pacchato.... (PC. 347)
+Câu chuyện nầy được giảng rộng trong bài kệ Muñca pūre muñca pacchato.... (PC. 347)
 Bấy giờ chư Tỳ khưu ngồi lại giảng đường, bàn luận với nhau về Ngài Uggasena, nói rằng:
 
 - Nầy hiền giả Uggasena, khi hiền giả từ trên cao phóng xuống, hiền giả có sợ hãi chăng?
