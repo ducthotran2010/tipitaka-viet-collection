@@ -11,7 +11,15 @@
   "dependencies": {
     "axios": "^1.7.8",
     "dotenv": "^16.4.5",
-    "turndown": "^7.2.0"
+    "rehype-document": "^7.0.3",
+    "rehype-format": "^5.0.1",
+    "rehype-stringify": "^10.0.1",
+    "remark": "^15.0.1",
+    "remark-rehype": "^11.1.1",
+    "remark-stringify": "^11.0.0",
+    "to-vfile": "^8.0.0",
+    "turndown": "^7.2.0",
+    "vfile-reporter": "^8.1.1"
   },
   "engines": {
     "node": "^20.0.0"

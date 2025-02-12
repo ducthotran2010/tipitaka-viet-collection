@@ -1531,8 +1531,6 @@ cả gia sản khổng lồ của mình ra gieo trồng vào phước điền �
 
 DỨT TÍCH CẬU MAṬṬHAKUṆḌALI
 
-
-
 Nhờ tâm niệm thiện chí chân thành,
 Khiến cậu Kim Hoàn được vãng sanh.
 Cha đã thương tiền liều mạng trẻ,
@@ -3180,7 +3178,6 @@ kim thân của Đức Bổn Sư, rồi đáp xuống đất, đảnh lễ dư�
 
 Cùng lúc kệ ngôn chấm dứt, những Tỳ Khưu có mặt nơi đó đều đắc chứng Tu Đà Hườn.
 DỨT TÍCH TIỂU HẮC, ĐẠI HẮC
-
 
 Tiểu Hắc tâm còn luyến thế gian,
 Theo anh tạm khoác bộ y vàng.
@@ -6404,23 +6401,20 @@ Muốn độ tha nhân, trước độ mình”.
 
 **KỆ NGÔN: (Pháp Cú 21-22-23)**
 
-_- “Appamādo amataṁ padaṁ_ “Chuyên cần đường bất tử,
-_pamādo maccuno padaṁ_ Giải đãi lộ tiêu vong.
+- _“Appamādo amataṁ padaṁ_ “Chuyên cần đường bất tử,
+  _pamādo maccuno padaṁ_ Giải đãi lộ tiêu vong
+  Appamattā na mīyanti Người chuyên cần chẳng chết,
+  ye pamattā yathā matā”. Kẻ biếng sống như không”.
 
-Appamattā na mīyanti Người chuyên cần chẳng chết,
-ye pamattā yathā matā”. Kẻ biếng sống như không”.
+- _“Etaṁ visesato ñatvā_ “Nhờ trí giác như thế,
+  _appamādamhi paṇḍitā_ Bậc trí chẳng buông lung.
+  Appamāde pamodanti Hoan hỷ chuyên cần mãi,
+  ariyānaṁ gocare ratā”. Tôi, Thánh được thung dung”.
 
-_- “Etaṁ visesato ñatvā_ “Nhờ trí giác như thế,
-_appamādamhi paṇḍitā_ Bậc trí chẳng buông lung.
-
-Appamāde pamodanti Hoan hỷ chuyên cần mãi,
-ariyānaṁ gocare ratā”. Tôi, Thánh được thung dung”.
-
-_- “Te jhāyino sātatikā_ “Người chuyên cần thiền định,
-_niccaṁ daḷhaparakkamā_ Hằng tinh tấn dụng công.
-
-Phusanti dhīrā nibbānaṁ Bậc trí thoát triền phược,
-yogakkhemaṁ anuttaranti”. Chứng Níp Bàn vô song”.
+- _“Te jhāyino sātatikā_ “Người chuyên cần thiền định,
+  _niccaṁ daḷhaparakkamā_ Hằng tinh tấn dụng công.
+  Phusanti dhīrā nibbānaṁ Bậc trí thoát triền phược,
+  yogakkhemaṁ anuttaranti”. Chứng Níp Bàn vô song”.
 
 Những kệ ngôn Pháp Cú (21-22-23) nầy được Đức Thế Tôn đã thuyết pháp khi Ngài an ngự tại
 Ghositārāma (Lôi Âm Tự), gần thành Kosambi, đề cập đến cái chết của Hoàng hậu Sāmāvatī cùng
@@ -9706,7 +9700,6 @@ Tăng chúng đều hưởng lợi ích nhờ nghe lời pháp của Đức Bổ
 
 DỨT TÍCH TRƯỞNG LÃO CŪḶAPANTHAKA
 
-
 Chớ nghĩ mình ngu, mãi chịu khờ!
 Xem Ngài Tiểu Lộ mới trí cơ:
 Bốn hàng kệ học gần năm tháng,
@@ -10824,8 +10817,8 @@ Durakkhaṁ dunnivārayaṁ
 Ujuṃ karoti medhāvī
 Usukāro'va tejanaṁ”._
 
-_- “Vārijo'va thale khitto
-Okamokata ubbhato_
+- _“Vārijo'va thale khitto
+  Okamokata ubbhato_
 
 _Pariphandatidaṁ cittaṁ
 Māradheyyaṁ pahātaveti”._
@@ -10838,7 +10831,6 @@ Dễ dàng như thợ có tài uốn tên”.
 Xa bờ cách nước, vẫy lên hãi hùng.
 Tâm nầy run rẩy hãi hùng,
 Hãy mau chóng thoát khỏi vùng ác ma”.
-
 
 **CHÚ GIẢI:**
 
@@ -10894,8 +10886,6 @@ loài thủy tộc bị vớt lên khỏi nước vậy. Hãy mau thoát khỏi 
 vòng luân hồi Khổ não hằng làm cho tâm phàm run rẩy hãi hùng.
 Bài kệ vừa dứt, Trưởng Lão Meghiya chứng đắc Tu Đà Huờn quả, trong số các Tỳ Khưu khác
 cũng chứng đạt Thánh quả như Tu Đà Hườn.
-
-
 
 Ngài Mê Kỳ Dạ quyết tu thiền,
 Ngặt nỗi tâm phàm khó định yên!
@@ -11113,7 +11103,6 @@ Biến hóa lanh lẹ khó mà bắt thay!
 Người thu phục được tâm nầy,
 Mới là thong thả tháng ngày yên vui”.
 
-
 **CHÚ GIẢI:**
 
 Dunnigghaṁ: Khó giữ, khó kềm chế cái tâm phàm lắm.
@@ -11178,8 +11167,6 @@ cho chồng: “Ôi, bà đại tín nữ nầy cũng đã từng là người h
 Nghĩ như vậy, vị Tỳ Khưu rất hoan hỷ, giải đáp về bốn câu hỏi về quả vị tối cao của đại tín nữ
 ngay tại chỗ đang ngồi. Vừa dứt lời thì vị ấy viên tịch, chứng đạt Vô Dư Níp Bàn
 (Anupādisesanibbāna).
-
-
 
 Hai chuyến đi về bến Thủy Lưu,
 Cầu mong tín nữ hộ Tỳ Khưu,
@@ -11285,7 +11272,6 @@ Vi tế, u ẩn, ngược xuôi khó nhìn.
 Người khôn phòng hộ tâm mình,
 Yên vui nhờ khéo giữ gìn bản thân”.
 
-
 **CHÚ GIẢI:**
 
 **_Sududdasaṁ_** : Do hai tiếng Suṭṭhu và duddasaṁ ghép lại, nghĩa là rất khó thấy, khó biết.
@@ -11302,8 +11288,6 @@ thể phòng hộ bản tâm, cho nên ông hãy phòng giữ tâm như thế �
 Khi bài kệ vừa dứt, Tỳ Khưu bất mãn phát tâm hoan hỷ chứng đắc Dự Lưu quả. Nhiều vị khác
 cũng đắc chứng thánh quả nhất là Tu Đà Hườn quả. Kỳ dư đại chúng thính pháp đều hưởng được sự
 lợi ích.
-
-
 
 Công tử đi tu chỉ thích nhàn,
 Thấy nhiều Kinh Luật phát bi quan.
@@ -11428,7 +11412,6 @@ Người nào điều phục tâm bình mới hay.
 Vòng Ma đã thoát ra ngoài,
 Không còn trăn trối miệt mài trần lao.”
 
-
 **CHÚ GIẢI:**
 
 **_Dūraṅgamaṁ_** : Đi xa. Thật vậy, dù không có những chỉ tơ mảnh mai như tơ nhện, phát đi tứ
@@ -11452,8 +11435,6 @@ Ma phược (Mārabandhānā), là tất cả những dây trói buộc của ph
 
 Bài kệ vừa dứt, Tỳ Khưu Hộ Tăng điệt chứng đắc Tu Đà Hườn quả. Nhiều vị khác cũng chứng
 đắc Thánh quả nhất là Sơ quả, kỳ dư thánh chúng đều hưởng được sự lợi ích.
-
-
 
 Một lá y choàng chửa bán ra,
 Mà Sư Điệt đã tính non già!
@@ -11594,7 +11575,6 @@ Không còn tham ái, gian manh thù hằn.
 Phước tội đều dứt tận căn,
 Giác tỉnh chẳng sợ lẽ hằng tử sanh”.
 
-
 **CHÚ GIẢI:**
 
 “ **_Anavaṭṭhitacittassa_** (Người tâm bất định): Tâm phàm là không có chút gì chơn thường, hay
@@ -11728,8 +11708,6 @@ Thuật hết câu chuyện tiền thân, Đức Bổn Sư dẫn giải rằng:
 - Nầy các Tỳ Khưu! Ta là hiền trí Kuddala thuở xưa và những phiền não quả thật là đáng sợ như
   thế đó.
 
-
-
 Cuốc cùn, hột giống tiếc mà chi?
 Tạo nghiệp dây dưa chẳng định kỳ?
 Đất thịt sáu lần còn nghĩ đến,
@@ -11858,7 +11836,6 @@ Khá mau đánh dẹp Ma quân vây thành.
 Giữ phần thắng lợi về mình,
 Chớ đừng đắm trước, mê tình không nên”.
 
-
 **CHÚ GIẢI:**
 
 Tiếng **_Kumbhūpamaṁ_** trên đây, nghĩa là sánh như đồ gốm, là do tính giòn yếu, dễ tan vỡ,
@@ -11900,8 +11877,6 @@ gìn giữ pháp nào tâm cần gìn giữ, không nên đắm trước mê say
 Đức Bổn Sư đã thuyết pháp dạy các Tỳ Khưu như thế. Khi thời pháp chấm dứt, cả năm trăm vị
 Tỳ Khưu chứng đắc A La Hán quả với Tuệ Phân tích ngay tại chỗ ngồi bèn tán thán ca tụng kim thân
 Đấng Như Lai, đảnh lễ Ngài rồi lui gót.
-
-
 
 Nhờ kinh Bác ái cảm Chư Thiên,
 Ngũ bá Tỳ Khưu ở mới yên.
@@ -11988,7 +11963,6 @@ Rồi đây nó sẽ nằm trên đất mồ.
 Không hồn như gỗ mục khô,
 Bị đem vứt bỏ vì vô dụng mà”.
 
-
 **CHÚ GIẢI:**
 
 **_Paṭhaviṃ adhisessati:_** Trong lúc bình sanh, thân nầy chỉ nằm trên giường, nhưng rồi đây nó
@@ -12043,8 +12017,6 @@ Trưởng Lão phúc chúc: “Xin cho người được như ý”.
 Này các Tỳ Khưu do tiền nghiệp ấy mà ngày nay Tissa trả quả. Mình mẩy thúi lở, xương gãy,
 cũng vì xưa kia đã sát hại và bẻ gẫy chân, cánh chim. Còn quả A La Hán là nhờ để bát cúng dường
 cơm ngon đến vị Lậu Tận.
-
-
 
 Nghiệp ác ngày xưa đã tạo gây,
 Báo Ngài Tissa khổ thân nầy.
@@ -12117,7 +12089,6 @@ Hại nhau, hại ấy vẫn là kém xa.
 Cái hại của tâm niệm tà,
 Khiến cho kẻ ấy đọa sa một mình”.
 
-
 **CHÚ GIẢI:**
 
 Hai tiếng **_Diso disaṁ_** trên đây, có nghĩa là kẻ cướp gặp kẻ cướp. Vì nói tắt nên ngắt bớt chữ
@@ -12140,14 +12111,11 @@ của họ, trong kiếp nầy gây khổ cho nhau, hoặc là tàn sát lẫn n
 Trái lại, nếu cái tâm tà vạy, tà kiến, bị đặt nằm trên lộ bất thiện nghiệp trong kiếp này, thì nó
 đưa kẻ ấy đến chỗ diệt vong, hằng trăm kiếp đọa sa vào bốn ác đạo, không cho cất đầu lên nổi.
 
-
 Nghe dứt bài kệ nhiều vị Tỳ Khưu đắc Thánh quả, nhất là Sơ quả. Đại chúng thính pháp cũng
 hưởng được sự lợi ích.
 
 Vì Chư Tăng không hỏi đến tiền nghiệp của Cận sự nam Nanda, cho nên Đức Bổn Sư không dẫn
 giải.
-
-
 
 Cúng Phật Trai Tăng đủ bảy ngày,
 Nan Đà chết dữ cũng kỳ thay!
@@ -12358,7 +12326,6 @@ Hoặc thân thuộc khác tạo thành mà nên.
 Đưa người cao thượng hơn lên,
 Chính tâm niệm hướng về bên thiện lành”.
 
-
 **CHÚ GIẢI:**
 
 **_Na taṁ:_** Việc ấy không phải do cha hay mẹ hoặc là những bà con họ hàng nào khác làm nên
@@ -12381,8 +12348,6 @@ nên nói do cái tâm niệm chánh của họ làm cho họ trở nên quí b�
 
 Khi thời pháp chấm dứt, nhiều vị Tỳ Khưu chứng đắc thánh quả nhất là Tu Đà Hườn quả. Kỳ dư
 thính chúng đều hưởng lợi ích.
-
-
 
 Nam mà hóa nữ lại hoàn nam,
 Hai gánh gia đình nghĩ hết ham!
@@ -12453,7 +12418,6 @@ Diêm ma, nhân giới, thiên đình cũng thông.
 Hữu học, thợ khéo tuyển bông,
 Pháp Cú khéo giảng, hiểu thông thực hành”.
 
-
 **CHÚ GIẢI:**
 
 Trong bài kệ Phạn ngữ **_Imaṁ paṭhaviṃ_** nghĩa là địa đại nầy ám chỉ xác thân tứ đại của con
@@ -12488,8 +12452,6 @@ pháp trợ đạo Bồ đề mà thâu thập, lãnh hội, thấu triệt và 
 Đức Bổn Sư nêu ra hai câu hỏi và chính Ngài đã tự giải đáp như trên.
 Đến cuối bài kệ năm trăm vị Tỳ Khưu đều đắc A La Hán quả với Tuệ Phân tích. Đồ chúng thính
 pháp cũng hưởng được sự lợi ích.
-
-
 
 Trên bước quan hà khắp đó đây,
 Năm trăm Trưởng Lão gắng theo thầy.
@@ -12555,8 +12517,6 @@ thần, hãy đạt đến vô sanh bất tử là Đại Níp Bàn.
 
 Khi bài kệ chấm dứt, Trưởng Lão chứng A La Hán quả với Tuệ Phân tích, bèn thốt lời tán dương
 ca tụng Kim thân của Đức Bổn Sư. Đoạn đảnh lễ Ngài rồi lui gót.
-
-
 
 Dòng nước trôi xuôi, bọt nổi phình,
 Nầy thân huyễn hóa kiếp phù sinh...
@@ -12828,10 +12788,10 @@ Santi rukkhā manoramā
 Subhāsitāni kappassa
 Na La Đa ramayanti manti”._
 
-_- “Na La Đa nầy, chốn thảo am,
-Là nơi ta thích, không nhàm chán đâu.
-Cỏ cây đẹp mát rừng sâu,
-Có trì Lý Phát bạn bầu sớm hôm”._
+- _“Na La Đa nầy, chốn thảo am,
+  Là nơi ta thích, không nhàm chán đâu.
+  Cỏ cây đẹp mát rừng sâu,
+  Có trì Lý Phát bạn bầu sớm hôm”._
 
 _“Sālīnaṁ odanaṁ bhutvā
 Sucimaṁsūpasecanaṁ
@@ -12843,8 +12803,8 @@ Ngài quen dùng thỏa thích sẵn sàng.
 Sá chi kê lạt tồi tàn,
 Mà Ngài lưu luyến buộc ràng nơi đây”.
 
-_- “Asāduṃ yadi và sāduṃ
-Appaṁ và yadi và bahuṃ_
+- _“Asāduṃ yadi và sāduṃ
+  Appaṁ và yadi và bahuṃ_
 
 _Vissaṭṭho yattha bhuñjeyya
 Vissāsaparamā rasāti”._
@@ -13338,7 +13298,6 @@ Tâm còn mê vọng, tử thần bắt đi.
 Như làng xóm ngủ li bì,
 Nửa đêm bị nước cuốn đi thình lình”.
 
-
 **CHÚ GIẢI:**
 
 Trong bài kệ Phạn Ngữ, câu **_byāsattamanasaṁ_** nghĩa là: Tâm còn lưu luyến đến chỗ đã đến,
@@ -13366,8 +13325,6 @@ chìm xuống biển tứ ác đạo.
 
 Khi thời pháp chấm dứt, nhiều vị Tỳ Khưu chứng đắc Thánh quả, nhứt là Sơ quả. Đại chúng
 thính pháp cũng đều hưởng được sự lợi ích.
-
-
 
 Vì chút tư thù khởi chiến tranh,
 Lưu Ly Vương tạo nghiệp không lành.
@@ -13496,7 +13453,6 @@ Tâm còn vọng tưởng chẳng gìn giữ thân.
 Trong giờ thọ hưởng ngũ trần,
 Lòng còn nô lệ, tử thần chẳng xa”.
 
-
 **CHÚ GIẢI:**
 
 **_Pupphāni h'eva pacinantaṁ:_** Như người thợ làm tràng hoa vào vườn hoa mải mê hái hoa.
@@ -13514,8 +13470,6 @@ cũng vô ích, thế nào cũng bị nó bắt đem đi.
 
 Bài kệ chấm dứt, nhiều vị Tỳ Khưu chứng đắc Thánh quả, nhứt là Thánh quả Tu Đà Hườn, đại
 chúng thính pháp cũng đều được hưởng nhiều lợi ích.
-
-
 
 Một phút thiên đình lở sẩy chân,
 Sự Phụ sa đọa xuống hồng trần.
@@ -13744,7 +13698,6 @@ Lấy xong chút mật rồi là bay đi.
 Sắc hương chẳng động làm chi,
 Sa Môn khất thực cũng y thế mà”.
 
-
 **CHÚ GIẢI:**
 
 Trong bài kệ, Phạn ngữ **_bhamaro_** chỉ cho con ong mật bất cứ thứ nào.
@@ -13790,8 +13743,6 @@ Nāhaṁ jānāmi illīsanti”._
 Cả hai cặp mắt lé trân không nhìn.
 Hai đầu lép cũng giống in,
 Ai là đoản kiếm ta nhìn không ra”?
-
-
 
 Khan Nang bá hộ kiết ai bằng?
 
@@ -13903,7 +13854,6 @@ Việc lành đắc thất của ai mặc tình?
 Hãy lo quán xét việc mình,
 Việc nầy việc nọ hoàn thành hay chưa”.
 
-
 **CHÚ GIẢI:**
 
 Trong bài kệ nầy, câu Phạn ngữ **_Na paresaṁ vilomāni_** nghĩa là không nên để ý đến những lời
@@ -13925,8 +13875,6 @@ chứng đắc Níp Bàn? Phải nên quán việc đã làm hoặc chưa làm n
 
 Bài kệ vừa dứt, bà tín nữ đắc chứng Tu Đà Hườn quả. Đại chúng thính pháp cũng đều hưởng
 được sự lợi ích.
-
-
 
 Bày mưu thỉnh Phật chỉ sai đường,
 Tiểu Diệp ganh người được tán dương.
@@ -14058,7 +14006,6 @@ Sắc hương thắm đượm lịch thanh đủ mùi.
 Lời lành nếu đã thuyết rồi,
 Làm lành kết quả an vui thấy liền”.
 
-
 **CHÚ GIẢI:**
 
 Trong bài kệ, Phạn ngữ **_ruciraṁ_** nghĩa là sáng sủa, đẹp đẽ, tươi tốt.
@@ -14081,8 +14028,6 @@ cẩn thọ trì, là làm việc nên làm thì sẽ gặt hái được nhiề
 
 Bài kệ vừa dứt, nhiều vị Tỳ Khưu chứng đắc Thánh quả, kỳ dư thính chúng đều được hưởng sự
 lợi ích.
-
-
 
 Tản Thủ đa văn lại khéo hành,
 Tại gia đắc quả đáng nêu danh.
@@ -15152,7 +15097,6 @@ Nhiều tràng hoa được thợ liên kết thành.
 Từ thân người được phát sanh,
 Biết bao nhiêu việc phước lành cho ta”.
 
-
 **CHÚ GIẢI:**
 
 Trong bài kệ Phạn ngữ, tiếng **_Puppharāsimhā_** là nói do từ một đống đủ các loại hoa.
@@ -15179,8 +15123,6 @@ Biết bao nhiêu việc phước lành do ta”._
 Bài kệ vừa dứt nhiều vị Tỳ Khưu chứng đắc Thánh quả, nhất là Dự Lưu quả. Đại chúng thính
 pháp cũng hưởng được nhiều lợi ích.
 
-
-
 Tín nữ đứng đầu có Visākhā,
 Đức tin sản nghiệp mấy ai bì,
 Cất chùa hộ Phật nuôi Tăng chúng,
@@ -15195,15 +15137,15 @@ DỨT TÍCH BÀ VISĀKHĀ
 
 **KỆ NGÔN: (Pháp Cú số 54-55)**
 
-_- “Na pupphagandho paṭivātam eti_ “Ngược lại chiều gió thổi, Hương hoa không
-bay nổi,
+- _“Na pupphagandho paṭivātam eti_ “Ngược lại chiều gió thổi, Hương hoa không
+  bay nổi,
 
 Na candanaṁ tagaramallikā và Dầu là Đa già la, Chiên đàn, Mạt ly hoa,
 Santañ ca gandho paṭivātam eti Chỉ có hương Giới đức,
 
 Sabbā disā sappuriso pavāyati”. Khắp phương trời bay xa”.
 
-_- “Candanaṁ tagaraṁ vā'pi_ “Chiên đàn, Đa già la,
+- _“Candanaṁ tagaraṁ vā'pi_ “Chiên đàn, Đa già la,
 
 Uppalaṁ atha vassikī Thanh liên, Vũ quí hoa,
 Etesaṁ gandhajātānaṁ Sánh các hương hoa ấy,
@@ -15253,7 +15195,7 @@ gió, bay ngược chiều gió, bay xuôi lẫn ngược chiều gió vậy.
 
 Giải xong, Đức Bổn Sư thuyết lên hai bài kệ:
 
-\_- “Na pupphagandho paṭivātam eti
+\- \_“Na pupphagandho paṭivātam eti
 Na candanaṁ tagaramallikā và
 Satañ ca gandho paṭivātam eti
 Sabbā disā sappuriso pavāyati”.
@@ -15271,7 +15213,6 @@ Sabbā disā sappuriso pavāyati”.
    Thanh liên, Vũ quí, các hàng hoa vương.
    Dầu thơm cho mấy cũng nhường,
    Thứ hương Giới đức là hương tuyệt trần”.\_
-
 
 **CHÚ GIẢI:**
 
@@ -15300,8 +15241,6 @@ vậy (anuttaro asadiso appaṭibhāgo).
 
 Khi thời pháp chấm dứt, nhiều Tỳ Khưu thành đạt chánh quả, nhất là Tu Đà Hườn quả. Đại
 chúng cũng hưởng được sự lợi ích nhờ nghe pháp.
-
-
 
 Trưởng Lão Nan Đa muốn biết rằng:
 Hương bay ngược gió có cùng chăng?
@@ -15479,10 +15418,10 @@ không ở giữa trời cao hứng reo lên ba lần:
 Ôi! Sự bố thí, bố thí Ba la mật nơi Đức Mahākassapa trường tồn âm chất”.
 Thế rồi, sau khi hiểu rõ chuyện nầy, Đức Thế Tôn cao hứng thốt lời ngẫu hứng sau đây:
 
-_- “Piṇḍapātikassa bhikkhuno
-Attabharassa anaññaposino
-Devā pihayanti tādino
-Upasantassa sadā satīmatoti”._
+- _“Piṇḍapātikassa bhikkhuno
+  Attabharassa anaññaposino
+  Devā pihayanti tādino
+  Upasantassa sadā satīmatoti”._
 
 “Tỳ Khưu nguyện giữ hạnh trì bình,
 Xin chẳng nuôi ai, đủ miệng mình,
@@ -15505,7 +15444,6 @@ Hương nầy chưa mấy cao sang trên đời.
 Hương người Giới đức tuyệt vời,
 Xông lên thấu các cõi trời cao siêu”.
 
-
 **CHÚ GIẢI:**
 
 Trên đây, tiếng **_appamatto_** nghĩa là nhỏ nhen ít oi.
@@ -15517,8 +15455,6 @@ các nơi, kể cả các cảnh giới của Chư Thiên và nhân loại.
 
 Khi thời pháp chấm dứt, nhiều Tỳ Khưu chứng đắc Thánh quả nhất là Tu Đà Hườn quả, đại
 chúng thính pháp đều hưởng được sự lợi ích.
-
-
 
 Kassapa Mahā định tế bần,
 Độ nhằm Đế Thích giả cùng nhân,
@@ -15675,7 +15611,6 @@ Vững tâm những ngã theo chiều buông lung,
 Chánh trí giải thoát tột cùng,
 Ma vương có thấu hành tung bao giờ”.
 
-
 **CHÚ GIẢI:**
 
 Tiếng **_tesaṁ_** trên đây chỉ những người đã Vô Dư Níp Bàn, tâm thức chẳng còn trú vào chỗ nào
@@ -15700,8 +15635,6 @@ pháp.:
 
 Thời pháp vừa dứt, nhiều Tỳ kheo chứng đắc Thánh quả, nhất là Sơ quả. Đại chúng thính pháp
 cũng đều được hưởng nhiều lợi ích.
-
-
 
 Tâm chứng từng cao, kế sụt liền,
 Bởi Ngài Cồ Diệt bịnh kinh niên,
@@ -16014,7 +15947,6 @@ Tối tăm mê muội như giam dưới bùn,
 Thinh văn của đấng Đại hùng,
 Nêu cao đuốc tuệ, soi cùng thế gian”.
 
-
 **CHÚ GIẢI:**
 
 Trong bài kệ, Phạn ngữ: **_Saṅkāradhānasmiṃ_** : Nghĩa là trong đống rác dơ.
@@ -16064,8 +15996,6 @@ Handa piṇḍaṁ paṭigahāti”._
 Thất điên bát đảo, giở chân chẳng rồi.
 Ta quyết không như kẻ tồi,
 Lấy cái ống nhổ, làm nồi đựng cơm”.
-
-
 
 Trách Thí đề cao phái ngoại môn,
 Thủ Danh vì bạn phá “mê hồn”,
@@ -16435,7 +16365,6 @@ Dặm dài chìm nổi, lại càng thấy xa,
 Đường đời vạn nẻo quan hà,
 Kẻ dốt Chánh Pháp, chậm qua luân hồi”.
 
-
 **CHÚ GIẢI:**
 
 Tiếng **_Dīghā_** trên đây nghĩa là dài. Thường thì một đêm có ba canh (theo bên Ấn Độ thời xưa),
@@ -16645,8 +16574,6 @@ Sanh mạng nầy chẳng dễ được đâu,
 Đừng ham sát hại lẫn nhau,
 Vì kẻ háo sát hằng đau khổ hoài”.
 
-
-
 Thân nghèo có vợ sắc tươi xinh,
 Báo hại chàng trai suýt lụy mình,
 Trướng gấm hầu vua, e vạn tử,
@@ -16840,7 +16767,6 @@ Với người cao hoặc bằng ngôi thứ mình.
 Thà rằng quyết chí độc hành,
 Kẻ ngu chẳng phải bạn lành thâm giao”._
 
-
 **CHÚ GIẢI:**
 
 Tiếng **_Caraṁ_** trên đây nghĩa là đi, chỉ một trong bốn oai nghi, được dùng một cách vắn tắt,
@@ -16869,8 +16795,6 @@ Những Giới đức trên đây không có nơi kẻ ngu si.
 Khi thời pháp chấm dứt, vị Tỳ Khưu khách chứng đắc Tu Đà Hườn quả. Các vị khác cũng có
 nhiều vị chứng đắc Thánh quả, nhất là Tu Đà Hườn quả. Đại chúng thính Pháp đều hưởng được sự lợi
 ích.
-
-
 
 Trưởng Lão Mahā Kassapa dạy kẻ ngu,
 Không ơn thì chớ, lại sanh thù,
@@ -16986,7 +16910,6 @@ Kuto puttā kuto dhanaṁ”_
 Nhưng không biết chính mình ta,
 Còn không tự chủ, huống là của, con”.
 
-
 **CHÚ GIẢI:**
 
 Hai câu đầu: **_Puttā me atthi dhanaṁ me atthi; iti bālo vihaññati_** : Nghĩa là ta có của, ta có
@@ -17015,8 +16938,6 @@ không chia vui cho ông?
 
 Thời pháp vừa dứt, tám muôn bốn ngàn chúng sanh giác ngộ Chánh Pháp. Đại chúng dự thính
 cũng được hưởng nhiều lợi ích.
-
-
 
 Bá hộ mãn đời bị tái sanh,
 Làm tên xui xẻo cấp cùng đinh,
@@ -17067,7 +16988,6 @@ Thật là ngu đặc, không còn biết chi.
 Ngu mà tự biết mình si,
 Cũng là người trí, không suy nghĩ lầm”.
 
-
 **CHÚ GIẢI:**
 
 Câu **_Yo bālo maññati bālyaṁ_** nghĩa là: Người nào ngu dốt kém trí tuệ, tự mình có ý nghĩ
@@ -17085,8 +17005,6 @@ rằng: “Thật đáng gọi là người ngu”.
 
 Đức Bổn Sư vừa thuyết dứt bài pháp, những quyến thuộc của vị Thánh Thinh Văn chứng đắc Tu
 Đà Hườn quả một lượt với hàng đại chúng.
-
-
 
 Hằng ngày móc túi để sanh nhai,
 Nhà cửa trang hoàng chẳng kém ai,
@@ -17128,7 +17046,6 @@ Suốt đời cũng chẳng nhập tâm pháp mầu.
 Muỗng nào biết nếm vị đâu,
 Dầu cho vẫn nhúng ngập đầu trong canh”.
 
-
 **CHÚ GIẢI:**
 
 **_Bālo_** : Là người ngu dốt mà không chịu học hỏi, thật đáng gọi là người ngu. Theo như lời của
@@ -17144,8 +17061,6 @@ chua, hay là lạt, đắng hay là cay... hoặc ngon hay dở như thế nào
 cạnh người trí cũng không biết được các pháp đã giải ở trên, cũng như thế ấy.
 
 Đến cuối thời pháp, tâm của chư khách Tăng giải thoát hết mọi Lậu hoặc.
-
-
 
 Sống gần bên Phật suốt đời ông,
 Kinh Luật không rành, đạo chẳng thông,
@@ -17199,7 +17114,6 @@ Chỉ trong khoảnh khắc hiểu rành lý chơn.
 Lưỡi kia chỉ nếm một lần,
 Vị mùi canh đã biệt phân rõ ràng”.
 
-
 **CHÚ GIẢI:**
 
 Trong bài kệ Phạn ngữ **_Viññū_** là người khôn, người trí, đồng nghĩa với tiếng Paṇḍita. Người
@@ -17210,8 +17124,6 @@ nếm, tức khắc biết ngay vị của nó là ngọt, mặn hay thế nào,
 thế cũng như thế ấy.
 
 Khi thời pháp chấm dứt, rất nhiều Tỳ Khưu chứng đắc quả A La Hán.
-
-
 
 Ba mươi vị, trước có tu rồi,
 Nay chứng Vô Sanh tại chỗ ngồi,
@@ -17332,7 +17244,6 @@ Với kẻ thù địch mưu toan hại mình.
 Là nghiệp ác lúc bình sinh,
 Hậu quả cay đắng tự mình mà ra”.
 
-
 **CHÚ GIẢI:**
 
 Tiếng **_Caranti_** nghĩa là đi, là một trong bốn oai nghi, theo nghĩa thông thường. Ở đây nghĩa là
@@ -17343,10 +17254,7 @@ Dummedhā : Những kẻ thiếu trí và vô trí tuệ.
 Amittenevā : Như là những kẻ thù nghịch.
 Kaṭukapphalaṁ : Là quả cay đắng, khổ sở cùng cực.
 
-
 Đến cuối thời pháp nhiều vị Tỳ Khưu chứng đắc Thánh quả, nhất là quả Dự Lưu.
-
-
 
 Khoa học ngày nay nói bịnh phong,
 Sanh ra vì bị nhiễm vi trùng,
@@ -17458,7 +17366,6 @@ Làm xong hối tiếc lệ sa dầm dề.
 Mặt mày nhăn nhó ủ ê,
 Thọ ngay quả báo nặng nề đắng cay”.
 
-
 **CHÚ GIẢI:**
 
 **_Yaṁ kātvā:_** Nghiệp nào mà khi làm xong, nó có thể đưa mình đến khổ cảnh, như sa địa ngục
@@ -17470,8 +17377,6 @@ mắt.
 
 Khi dứt thời pháp, Cận sự nam là người nông phu chứng đắc Tu Đà Huờn quả. Những Tỳ Khưu
 hiện diện cũng có nhiều vị chứng đắc thánh quả, nhứt là quả Tu Đà Hườn.
-
-
 
 Nông phu lượm ví rớt bên đường,
 
@@ -17696,7 +17601,6 @@ Làm xong chẳng chút mảy may hận phiền.
 Nghiệp nào Hảo Ý vui yên,
 Thọ ngay phước báo tùy duyên hợp thời”.
 
-
 **CHÚ GIẢI:**
 
 Trong kệ ngôn Phạn ngữ trên đây, câu thứ hai **_Yaṁ katvā_** ám chỉ nghiệp nào mà sau khi làm
@@ -17715,8 +17619,6 @@ câu kết luận, nhưng trong bài kệ nầy được đặt lên hàng đầ
 thiện nghiệp của người thợ bán hoa Sumana để làm gương cho mọi người bắt chước vậy).
 
 Thời pháp vừa chấm dứt, tám muôn bốn ngàn chúng sanh được tỏ ngộ Chánh Pháp.
-
-
 
 Hảo Ý dâng hoa chẳng hận phiền,
 Liều thân đại thí nguyện gieo duyên,
@@ -17806,7 +17708,6 @@ Người ngu lầm tưởng yên vui mật đường.
 Đến giờ quả chín như thường,
 Người ngu mới thấy chán chường khổ đau”.
 
-
 **CHÚ GIẢI:**
 
 **_Madhuvā_** : Câu kệ Pāli thứ nhất có ý nói việc làm tội lỗi của người ngu vui sướng thỏa thích như
@@ -17863,8 +17764,6 @@ Quốc vương đáp: “Lành thay”, rồi vâng theo lời đề nghị củ
 thiết một cảnh già lam riêng biệt cho Giáo Hội Tỳ Khưu Ni, trên một địa điểm trong vòng thành đô.
 
 Từ đó về sau, các Tỳ Khưu Ni chỉ cư ngụ trong vòng đô thành mà thôi.
-
-
 
 Thánh Liên Sắc quí mấy ai bì,
 Chẳng khứng làm dâu, khứng đắp y,
@@ -18221,7 +18120,6 @@ Kalaṁ agghati soḷasinti”._
 So người chứng đắc pháp chơn,
 Một phần mười sáu không hơn được mà”.
 
-
 **CHÚ GIẢI:**
 
 Theo nghĩa lý bài kệ trên, người ngu (bālo) không thông hiểu Chánh Pháp, đã xuất gia tu theo
@@ -18244,8 +18142,6 @@ nhỏ nữa, thì một phần nhỏ của quả phước nầy cũng còn to l�
 ngu kia.
 
 Khi Đức Bổn Sư chấm dứt pháp thoại, có đến tám muôn bốn ngàn chúng sanh giác ngộ chân lý.
-
-
 
 Hành khổ mong cho thoát khổ sầu,
 Tu theo tà kiến, khổ thêm lâu,
@@ -18415,7 +18311,6 @@ Như sữa mới nặn khó mà đông ngay.
 Tro tàn lửa ngún còn đây,
 Ngầm theo kẻ ác, hằng ngày đốt thiêu”.
 
-
 **CHÚ GIẢI:**
 
 **_Sajju khīraṁ:_** Sữa tươi mới nặn, là sữa từ trong vú bò cái mới nặn ra.
@@ -18437,8 +18332,6 @@ Cũng như thế, sau khi tạo nghiệp ác, kẻ ngu bị nghiệp theo đốt
 trong kiếp thứ hai hoặc kiếp thứ ba chẳng hạn.
 
 - Khi thời pháp chấm dứt, nhiều vị Tỳ Khưu chứng đắc Thánh quả, nhứt là Tu Đà Huờn quả.
-
-
 
 Gặp Phật mà không tạo phước gì,
 Còn gây tội ác rõ ngu si,
@@ -18623,7 +18516,6 @@ Tài cao để khiến tự chiêu tội tình.
 Làm tiêu thiện pháp để dành,
 Đầu y cũng phá tan tành chẳng sai”.
 
-
 **CHÚ GIẢI:**
 
 **_Yāvadeva_** : Là tiếng liên từ hay tiếp tục từ (nipāto) có ý nghĩa là vô lượng vô biên
@@ -18648,8 +18540,6 @@ trước của y cũng bắt đầu suy sụp, tiêu hoại.
 pháp của họ, phá tan vỡ luôn cả cái gọi là trí tuệ, đầu não của họ nữa.
 
 Thời pháp vừa dứt, nhiều vị Tỳ Khưu đắc thánh quả, nhứt là Quả Tu Đà Huờn.
-
-
 
 Người ngu được thế dám làm ngang,
 Gặp bậc chân tu bắn giết càng,
@@ -18789,9 +18679,9 @@ Purekkhārañca bhikkhusu
 āvāsesu ca issariyaṁ
 Pưjā parakulesu ca”._
 
-_- “Mam eva kata maññantu
-Gihī pabbajitā ubho
-Mameva ativasā assu_
+- _“Mam eva kata maññantu
+  Gihī pabbajitā ubho
+  Mameva ativasā assu_
 
 _Kiccākiccesu kismiñci
 Iti bālassa saṅkappo
@@ -18807,7 +18697,6 @@ Người ngu cứ tưởng sai ngoa,
 Muốn cho Tăng tục biết qua việc mình.
 Nên lòng ngạo mạn phát sinh,
 Lòng tham lam cũng mặc tình gia tăng”.
-
 
 **CHÚ GIẢI:**
 
@@ -18994,8 +18883,6 @@ làm cho tâm con thỏa thích cũng như thế ấy”. Nhờ tạo thiện ng
 như ngày ông chào đời, lúc ông đến nơi đây, ông được hoa trời rơi xuống đón mừng, được vô số tặng
 phẩm đem đến biếu và được bảy vật báu chất đầy xe bò như thế, là do nơi quả phước cúng dường của
 tiền nghiệp ấy vậy”.
-
-
 
 Vì chút si mê muốn đứng đầu,
 Trụ trì Thiện Pháp nặng lo âu,
@@ -19561,7 +19448,6 @@ Chớ nên tham đắm lợi danh thế quyền.
 Đạo mầu ráng để tâm chuyên,
 Đi đường giải thoát bình yên lâu dài”.
 
-
 **CHÚ GIẢI:**
 
 **_Aññā hi lābhūpanisā:_** Là đường theo thế lợi khác, đường đến Níp Bàn khác. Quả nhiên muốn
@@ -19600,8 +19486,6 @@ Tỳ Khưu nên ráng xúc tiến thực hành tròn đủ ba pháp Thanh tịnh
 
 Đức Bổn Sư vừa dứt thời pháp, có nhiều Tỳ Khưu chứng đắc Thánh quả, nhất là quả Tu Đà
 Hườn.
-
-
 
 Tissa Sa Di bảy tuổi đầu,
 Tu rừng giác ngộ lý cao sâu,
@@ -19744,7 +19628,6 @@ Xem họ như bậc cao minh chỉ đàng.
 Cho ta tìm thấy kho tàng,
 Gần hiền vô hại, lợi càng gia tăng”.
 
-
 **CHÚ GIẢI:**
 
 Trong Pāli, tiếng **_Nidhīnaṁ_** nghĩa là: Những kho tàng bí mật, hay là những chỗ nào mà người
@@ -19789,8 +19672,6 @@ Quả thật, vị đệ tử mà nương nhờ học hỏi với Giáo sư như
 không bao giờ phải chịu thiệt thòi, hoặc tăng thêm những điều quấy ác tai hại.
 
 Thời pháp vừa dứt, nhiều vị Tỳ Khưu chứng đắc Đạo quả.
-
-
 
 Dầu ơn nhỏ mọn cũng không quên,
 Đợi lúc lâm nguy mới đáp đền,
@@ -19845,7 +19726,6 @@ Thấy ai phạm lỗi can ngăn tức thì.
 Người sáng kính mến yêu vì,
 Kẻ tối, trái lại sân si oán thù”.
 
-
 **CHÚ GIẢI:**
 
 Tiếng **_Ovādeyya_** trên đây nghĩa là chỉ dạy về điều lỗi nào đã hoặc đang phạm. Còn tiếng
@@ -19871,8 +19751,6 @@ Sau khi nhận lãnh huấn từ của đức Bổn Sư, Trưởng Lão Sāriput
 ra đi đến dạy dỗ, nhắc nhở nhóm Tỳ Khưu tà hạnh, có một số nhận lãnh huấn từ giáo hóa, cải tà qui
 chánh, một số tự động xin hoàn tục, còn một số không nhận lỗi bị Tăng tụng tuyên ngôn trục xuất ra
 khỏi địa phương Kiṭa.
-
-
 
 Phẩm giá nhà sư chẳng giữ gìn,
 Làm điều tà hạnh để mưu sinh,
@@ -19922,7 +19800,6 @@ Bhajetha purisuttameti”._
 Chỉ nên kết nghĩa kim bằng,
 Với bậc hiền đức, trí năng hơn đời”.
 
-
 **CHÚ GIẢI:**
 
 Bài kệ trên đây có ý khuyên các Tỳ Khưu không nên giao thiệp với hai hạng bạn ác: Một là bọn
@@ -19949,8 +19826,6 @@ mình, Trưởng Lão Channa đang buồn khổ phải ngất xỉu đến ba l�
 
 Sau khi hối ngộ không bao lâu, Trưởng Lão thực hành tròn đủ phạm hạnh, nên đắc quả A La
 Hán với Tuệ Phân tích.
-
-
 
 Thép còn bị lửa đốt mềm thay,
 Sa Nặc đành thua một phép nầy,
@@ -20370,7 +20245,6 @@ Với tâm khiết tịnh, sống đời thanh cao.
 Người trí mãi mãi hân hoan,
 Lắng nghe Pháp Phật bảo ban giáo truyền”.
 
-
 **CHÚ GIẢI:**
 
 Tiếng **_dhammapīti_** trên đây nghĩa là người được no vui nhờ pháp, ví như đứa bé được mẹ cho
@@ -20388,8 +20262,6 @@ sanh quả Bồ Đề (Bodhipakkhiyadhamma), Tứ niệm xứ...
 sáng suốt thì luôn luôn hoan hỷ thảnh thơi, vui một niềm vui thoát tục.
 
 Thời pháp vừa dứt có nhiều vị chứng đắc Thánh quả nhứt là Tu Đà Hườn quả.
-
-
 
 Ai bằng Trưởng Lão Kappina,
 Ngàn dặm xuyên sơn kiếm Phật Đà,
@@ -20967,7 +20839,6 @@ Thợ làm cung nắm ngay liền mũi tên.
 Thợ mộc uốn gỗ cần chuyên,
 Trí giả điều chế tâm viên của mình”.
 
-
 **CHÚ GIẢI:**
 
 Kệ ngôn thứ nhất đề cập đến những người thợ dẫn nước (nettikā), sau khi ban chỗ đất gò xuống
@@ -20986,8 +20857,6 @@ Dầu với vật vô tâm hay hữu tâm, hành giả đều phải hạ thủ 
 được.
 
 Sau thời pháp nhiều vị Tỳ Khưu chứng thánh quả...
-
-
 
 Sa Di Trí giả đủ căn lành,
 Nửa bước theo thầy tuệ giác sanh,
@@ -21041,7 +20910,6 @@ giông nào lay chuyển rung rinh bao giờ.
 Tâm người đại trí trơ trơ,
 Chê khen cũng mặc, lặng lờ như không”.
 
-
 **CHÚ GIẢI:**
 
 Tiếng **_Nindāpasaṁsāsu_** trên đây, nghĩa là những lời chê khen, tức là hai pháp thế gian
@@ -21055,8 +20923,6 @@ dịch, lúc lắc, các bậc trí giả dầu còn ở trong vòng tám pháp 
 Tâm các bậc ấy không lay động, biến đổi vì ảnh hưởng của sự não hại hay là bất thân thiện.
 
 Đến cuối thời pháp, nhiều vị Tỳ Khưu chứng đắc Tu Đà Hoàn quả....
-
-
 
 Tướng tuy lùn bé khó tự hào,
 Trưởng Lão Bạt Đà chẳng núng nao,
@@ -21198,7 +21064,6 @@ Tâm liền thanh tịnh, sạch trong như hồ.
 Nước sâu, gương phẳng lặng tờ,
 Trong veo sáng suốt, chẳng nhơ bụi hồng”.
 
-
 **CHÚ GIẢI:**
 
 Danh từ **_Rahado_** trên đây nghĩa là hồ, nhưng là hồ sâu rộng lắm. Dầu cho bốn bộ binh (quân,
@@ -21212,8 +21077,6 @@ chao động vì gió. Chỗ yên lặng ấy có thể gọi là hồ sâu th�
 như hồ sâu không bị xáo trộn, thì nước của nó trong sạch, yên tịnh, lặng trang, như thế nào. Cũng
 như thế ấy, sau khi nghe pháp của Ta t huyết, do nơi Tu Đà Hườn đạo... Bậc trí giả đạt đến tâm
 thanh tịnh, xa lìa phiền não chứng đắc A La Hán quả.
-
-
 
 Đợi bánh, kāṇā bị mất chồng,
 Tức mình, đổ tội bốn Sư ông,
@@ -21316,7 +21179,6 @@ Na uccāvacaṁ paṇḍitā dassayantīti”._
 Trí giả, tâm đã tịnh an,
 Gặp cảnh sướng khổ, chẳng màng nói ra”.
 
-
 **CHÚ GIẢI:**
 
 Tiếng **_sabbattha_** (khắp nơi) trên đây, ám chỉ khắp tất cả mọi pháp, nhất là khắp tất cả mọi
@@ -21346,8 +21208,6 @@ Dầu tiếp xúc với cảnh vui hay cảnh khổ, dầu bị tám pháp thế
 bậc Trí giả cũng không to tiếng, lộ vẻ bất bình khen tốt, chê xấu, hãnh diện hay hổ thẹn chi cả.
 
 Cuối thời pháp, có nhiều vị Tỳ Khưu chứng đắc quả Tu Đà Hườn...
-
-
 
 Tịnh giả dầu trong cảnh ngộ nào,
 Cũng là trầm mặc chẳng xôn xao,
@@ -21428,7 +21288,6 @@ Không mưu thần, chước quỉ,
 Chỉ sống thuần đức hạnh,
 Chánh trí, hợp Chánh Pháp). (T.M. C.)
 
-
 **CHÚ GIẢI:**
 
 **_Na attahetu_** : Bậc xứng danh là trí giả (paṇḍita) thì không thiên vị vì mình hoặc vì người khác
@@ -21444,8 +21303,6 @@ pháp, cho nên không làm ác vì lý do lợi ích vậy.
 Chánh Pháp. Ngoài ra không có ai khác.
 
 Cuối thời pháp, nhiều vị Tỳ Khưu đắc Thánh quả nhất là Tu Đà Hườn quả.
-
-
 
 Lý đạo thông rồi quyết xuất gia,
 Xá chi con vợ, xá chi nhà,
@@ -21501,11 +21358,10 @@ Biển trần lao ắt có ngày vượt qua”.
 Số lớn người còn lại,
 Xuôi ngược bên bờ nầy”.
 
-_- Những ai chơn hành trì,
-Theo Chánh Pháp khéo dạy,
-Sẽ đạt đến bờ kia,
-Vượt ma giới khó thoát”.) (TMC)_
-
+- _Những ai chơn hành trì,
+  Theo Chánh Pháp khéo dạy,
+  Sẽ đạt đến bờ kia,
+  Vượt ma giới khó thoát”.) (TMC)_
 
 **CHÚ GIẢI:**
 
@@ -21529,8 +21385,6 @@ là Níp Bàn.
 
 Cuối thời pháp, nhiều thính giả đắc quả Thánh quả, nhất là Tu Đà Hườn quả.
 
-
-
 Rủ nhau làm phước, thức nghe kinh,
 Ý niệm đầu tiên quả thật lành,
 Ma dục xen vào về nghỉ lẹ,
@@ -21545,7 +21399,7 @@ DỨT TÍCH NGHE THUYẾT PHÁP
 
 **KỆ NGÔN: (Pháp Cú số 87-88-89)**
 
-_- “Kaṇhaṁ dhammaṁ vippahāya_ “Người trí bỏ hắc pháp,
+- _“Kaṇhaṁ dhammaṁ vippahāya_ “Người trí bỏ hắc pháp,
 
 Sukkaṁ bhāvetha paṇḍito Tu tập theo bạch pháp,
 Okā anokamāgamma Xuất gia sống không nhà,
@@ -21598,7 +21452,7 @@ Tu tập theo bạch pháp,
 Bỏ nhà sống không nhà,
 Độc thân rất khó hưởng. (87)
 
-\_- “Hãy cầu vui Níp Bàn,
+\- \_“Hãy cầu vui Níp Bàn,
 Bỏ dục không nhiễm uế,
 Kẻ trí tự rửa sạch,
 Mọi cấu uế nội tâm”. (88)
@@ -21610,7 +21464,6 @@ Mọi cấu uế nội tâm”. (88)
   Sẽ sống không lậu hoặc,
   Sáng chói, chứng Níp Bàn,
   Ngay trong đời hiện tại”.\_
-
 
 **CHÚ GIẢI:**
 
@@ -21638,8 +21491,6 @@ Hán, về sau đã liệng bỏ cả vòng Ngũ uẩn với sự diệt tận c
 Níp Bàn là người không còn chấp thủ thứ gì cả, giống như cây đèn tắt vậy.
 
 Cuối thời pháp nhiều vị Tỳ Khưu chứng đắc thánh quả, nhất là Tu Đà Hườn quả.
-
-
 
 Năm trăm Tăng khách Kosalā,
 Về đến Kỳ Viên lễ Phật Đà,
@@ -21745,7 +21596,6 @@ tận như vậy, không có sự nồng nhiệt".
 Cuối thời Pháp nhiều vị Tỳ khưu chứng đạt Thánh quả, nhất là quả vị Tu Đà Hườn.
 Tích nầy đề cập đến một câu hỏi của ngự y Kỳ Bá còn nguyên sự tích của ông ngự y nầy rất dài,
 trong Tạng Luật quyển 6 có kể rõ.
-
 
 Ngự y Kỳ Bá hỏi Phật rằng:
 “Ngài thấy trong người có nóng chăng?''
@@ -22417,7 +22267,6 @@ cả năm căn kia là Nhãn, Nhĩ, Tỷ, Thiệt và Thân cũng được giả
 Cuối thời Pháp, Trưởng lão Tissa ở Kosambi đắc A La Hán Quả với Tuệ Phân tích. Kỳ dư đại
 chúng nghe Pháp đều hưởng được sự lợi ích.
 
-
 Trưởng lão nào hay đệ tử mình,
 Cạo đầu liền đắc quả Vô sinh!
 Ngủ chung, sáng thọt trò hư mắt,
@@ -22506,7 +22355,6 @@ những người giác ngộ Pháp siêu thế.
 
 Cuối bài kệ, ba mươi vị Tỳ khưu ấy đắc quả A La Hán với Tuệ Phân tích. Kỳ dư đại chúng thính
 pháp của Đức Bổn Sư thảy đều được hưởng lợi ích lớn.
-
 
 Muốn độ người cao, Phật hỏi cao,
 Phàm phu nghe ngóng, tựa chiêm bao,
@@ -22849,7 +22697,6 @@ Tam ahaṁ brūmi brahmaṇaṁ"._
 (Ở đây, người đã vượt khỏi cả hai điều thiện và ác, và các ràng buộc, người không ưu phiền,
 không ô nhiễm và thanh tịnh, người ấy Như Lai gọi là Bà la môn). (Phạm Kim Khánh dịch).
 
-
 Ai ngờ cậu bé Revata,
 Đắc quả sau vài tháng xuất gia,
 Nhập hạ trong rừng Keo hẻo lánh,
@@ -22918,7 +22765,6 @@ con ong mật ưa thích cảnh rừng sen trên đây vậy. Tại sao?
 Cuối thời Pháp, vị Trưởng lão chứng đạt A La Hán quả với Tuệ Phân tích ngay tại chỗ ngồi, rồi
 bay bổng lên hư không ca ngợi ân đức của Đức Như Lai và đáp xuống đảnh lễ dưới chân Ngài rồi ra
 đi.
-
 
 Vườn cây cổ thụ ít người qua,
 Hành giả ngồi thiền, bắt Kiết già.
@@ -23854,7 +23700,6 @@ quỉ thần cả trăm năm. Sự cúng dường như vậy thì cao cả, quí
 Cuối thời Pháp, thầy Bà la môn đắc Tu Đà Hườn quả. Những người khác cũng đắc Thánh quả,
 nhất là quả Tu Đà Hườn.
 
-
 Pháp chủ cầu mong độ cậu mình,
 Thoát vòng tà kiến với vô minh,
 Dẫn ông đến Phật, nhờ Phật thuyết,
@@ -23930,7 +23775,6 @@ Aggiṃ paricare vane: dầu cho tránh khỏi mọi chướng ngại, vào rừ
 Phần sau nên giải thích y như bài kệ trước.
 Cuối thời Pháp, thầy Bà la môn đắc quả Tu Đà Hườn, nhiều người khác cũng chứng đắc Thánh
 quả, nhất là quả vị Tu Đà Hườn.
-
 
 Pháp Chủ cũng mong độ cháu trai,
 Sát sanh hàng tháng cúng thần hoài,
@@ -24010,7 +23854,6 @@ việc Bố thí thông thường, bởi thế cho nên nói: "Việc kính lễ
 
 Cuối thời Pháp, thầy Bà la môn bạn của Trưởng lão Sāriputta đắc quả Tu Đà Hườn. Nhiều người
 khác cũng đắc Thánh quả nhất là Tu Đà Hườn quả.
-
 
 Pháp Chủ còn mong độ bạn thân,
 Sát sanh trọng thể cúng Thiên thần,
@@ -24158,7 +24001,6 @@ trọn đời làm việc thiện thì dầu ở tuổi hai mươi lăm có gặ
 
 Cuối thời Pháp, cậu bé Ích Thọ cùng với năm trăm Cận sự nam đều đắc quả Tu Đà Hườn, nhiều
 người khác cũng chứng đạt quả vị Dự Lưu.
-
 
 Bảy ngày nghỉ phép đã trôi qua,
 
@@ -24562,7 +24404,6 @@ với Ngài. Đức Bổn Sư hỏi:
 Do câu chuyện trên đây, sự tích Chú giải câu Kệ Pháp Cú này cũng được gọi là tích Sa di Siêu
 Thoát.
 
-
 Sa di Đòn Xóc pháp cao cường,
 Gươm chém trơ trơ, cướp phải nhường,
 Bảy tuổi đã làm thầy Tiếp dẫn,
@@ -24649,7 +24490,6 @@ Paññavantassa: Sáng suốt, có Trí tuệ.
 Phần còn lại đồng nghĩa với bài Kệ trước.
 Cuối thời Pháp năm trăm Tỳ khưu đắc quả A La Hán với Tuệ Phân tích. Kỳ dư đại chúng đều
 hưởng được sự lợi ích nhờ thời Pháp của Đức Bổn Sư.
-
 
 Trưởng lão nhập Thiền như gốc cây,
 Nửa đêm, bọn cướp chạy vào đây,
@@ -25270,7 +25110,6 @@ Những tiếng khác cũng đồng nghĩa với mấy bài kệ trước.
 Cuối thời Pháp, Tỳ khưu Ni Kiều Đàm Ốm đắc quả A La Hán với Tuệ Phân tích ngay tại chỗ
 ngồi.
 
-
 Kiều Đàm Ốm thắp nến "Xi ma",
 Đèn nến chập chờn gặp gió qua!
 Ngọn lửa xuống lên hay tắt phụt,
@@ -25571,7 +25410,6 @@ Sợ e phải bị luân hồi khổ,
 Giờ phút lâm chung, khó trở tay.
 DỨT TÍCH TRƯỞNG LÃO Seyyasaka.
 
-
 ### IX. 3- CHUYỆN THIÊN NỮ CỐM RANG (Lājadevadhītāvatthu)
 
 (Bắp khô (lúa mạch), ngũ cốc khô. Đây là lúa Xa li (sāli) khô rang nổ làm cốm. )
@@ -25688,7 +25526,6 @@ Sukho puññassa uccayo: quả nhiên người tích trữ phước, phước c�
 
 Cuối thời Pháp, cô Thiên nữ đứng cách xa độ bốn mươi lăm do tuần liền chứng đắc Tu Đà Hườn
 quả.
-
 
 Để bát vừa xong, kế chết liền,
 Lên trời, hưởng phước lộc Chư Thiên,
@@ -25871,7 +25708,6 @@ Cuối thời Pháp, cô Thiên nữ đắc quả Tu Đà Huờn, kỳ dư tứ 
 Cấp Cô Độc có đức tin kiên cố, Đức Bổn Sư đã kể lại sự tích của Bồ Tát đã vượt qua hầm lửa của Ma
 vương mà để bát cho vị Phật Độc giác (Kinh Bổn sanh tập I, số 40 trang 147).)
 
-
 Bá hộ khi nghèo vẫn cúng Tăng,
 Khiến cô Thiên nữ đến khuyên xằng:
 Không nghe, còn đuổi cô đi lẹ,
@@ -25889,7 +25725,6 @@ Việc lành tuy thấy khó làm hơn,
 Nhưng mà hậu quả là vui thú,
 Dầu hiện thời đây gặp tủi hờn.
 DỨT TÍCH ÔNG CẤP CÔ ĐỘC ĐUỔI THIÊN NỮ
-
 
 ### IX. 5- CHUYỆN TỲ KHƯU KHINH GIỚI NHỎ (Asaññataparikkhāravatthu)
 
@@ -25969,7 +25804,6 @@ Cuối thời Pháp, nhiều Tỳ khưu chứng đắc quả thánh, nhất là 
 Đức Bổn Sư ban hành Học giới, Tỳ khưu nào sử dụng Tăng sản như giường ghế..., khi ra đi không xếp
 cất thì phạm Ong đối trị.
 
-
 Giường chiếu của Tăng cứ mượn xài,
 Khi đi bỏ cả ở bên ngoài,
 Tăng khuyên, viện cớ rằng lỗi nhỏ,
@@ -25980,7 +25814,6 @@ Giọt mưa tuy nhỏ, bình tuy lớn,
 nhễu mãi đầy bình, việc chẳng hèn!
 
 DỨT TÍCH TỲ KHƯU KHINH GIỚI NHỎ
-
 
 ### IX. 6- CHUYỆN BÁ HỘ CHÂN MÈO (Biḷālapādakaseṭṭhivatthu)
 
@@ -26115,7 +25948,6 @@ Giọt mưa tuy nhỏ, bình tuy lớn,
 Nhễu mãi đầy bình, việc chẳng hèn!
 DỨT TÍCH BÁ HỘ CHÂN MÈO
 
-
 ### IX. 7- CHUYỆN PHÚ THƯƠNG TRÁNH HIỂM LỘ (Mahādhanavāṇijavatthu)
 
 **KỆ NGÔN: (Pháp Cú số 123)**
@@ -26224,7 +26056,6 @@ né tránh các điều ác, không nên dể duôi, cũng như thế ấy.
 Cuối thời Pháp, các Tỳ khưu ấy chứng đắc A La Hán quả với Tuệ Phân tích. Đại chúng thính
 pháp cũng đều hưởng được sự lợi ích.
 
-
 Phú thương đi bán thỉnh Tăng theo,
 Làm phước mong qua chỗ hiểm nghèo,
 Bị cướp chận đường lui tới hết,
@@ -26234,7 +26065,6 @@ Ngài rằng: Cần nhất phải suy tư,
 Lánh xa điều ác, như ngừa độc,
 Như phú thương ngừa cướp ẩn cư.
 DỨT TÍCH PHÚ THƯƠNG TRÁNH HIỂM LỘ
-
 
 ### IX. 8- CHUYỆN THỢ SĂN KUKKUṬAMITTA (Kukkuṭamittanesādavatthu)
 
@@ -26456,7 +26286,6 @@ giới đầu thai vào lòng người mẹ cũ. Còn các nàng Thiên nữ là
 nọ, nhưng đến tuổi cập kê đều quần tụ về một nhà với cha mẹ chồng cũ. Tất cả gia đình nhờ đã công
 quả chăm sóc Thánh tháp thờ Xá lợi mà kiếp này được chứng quả Tu Đà Hườn.
 
-
 Sơ quả lấy chồng gã thợ săn,
 Bởi duyên chung sống ở tiền căn,
 Hằng ngày phụ tiếp chồng hành ác,
@@ -26466,7 +26295,6 @@ Thì không thể tạo nghiệp si lầm!
 Thuốc kia dầu độc, không phương hại,
 Người có bàn tay chẳng vết cầm.
 DỨT TÍCH THỢ SĂN KÊ HỮU
-
 
 ### IX. 9- CHUYỆN THỢ SĂN GẶP THIỀN SƯ (Kokasunakhaluddakavatthu)
 
@@ -26573,7 +26401,6 @@ ngược lại người làm ác vậy.
 
 Cuối thời Pháp vị Tỳ khưu ấy chứng đắc quả A La Hán. Tứ chúng thính pháp cũng hưởng được
 sự lợi ích.
-
 
 Sáng dắt chó đi, gặp trọc đầu,
 Thợ săn tà kiến tự lo âu,
@@ -26900,7 +26727,6 @@ nghiệp được.
 Cuối thời Pháp, ba nhóm Tỳ khưu đều đắc Thánh quả, nhất là Tu Đà Hườn quả. Kỳ dư đại chúng
 thính pháp đều hưởng được lợi ích.
 
-
 Ba nhóm Tỳ khưu lễ Phật Đà,
 Tường trình mọi việc thấy vừa qua:
 Một con quạ tự bay vào lửa,
@@ -27020,7 +26846,6 @@ tường vách.
   tòa vương cung, mặt đất liền nứt ra một khoảng lớn thâu hút đức Vua. Đức Vua băng hà sanh vào Địa
   ngục A tỳ.
 
-
 Đức Vua giận Phật bỏ con mình,
 Bắt ghế ra ngồi giữa lộ trình,
 Cản Phật không cho qua lấy bát,
@@ -27034,7 +26859,6 @@ Tránh được tử thần chẳng có ai,
 Dưới biển, trên trời, trong động đá,
 Không nơi ẩn úp sống dằng dai.
 DỨT TÍCH VUA THIỆN GIÁC BỊ ĐẤT RÚT DỨT PHẨM ÁC
-
 
 ## X. PHẨM ĐAO TRƯỢNG (DAṆḌAVAGGA)
 
@@ -27116,7 +26940,6 @@ Người người sợ chết, e đao trượng,
 Phải cử sát sanh, giữ Đạo hằng!
 DỨT TÍCH NHÓM LỤC SƯ HÀNH HUNG
 
-
 ### X. 2- CHUYỆN NHÓM LỤC SƯ ĐE DỌA (Chabbaggiyabhikkhuvatthu)
 
 **(PC. 130)**
@@ -27158,7 +26981,6 @@ với việc sống chết ở đời, bậc Lậu Tận cũng chỉ có tâm x�
 Ba câu kệ kia thì nghĩa như trước.
 Cuối thời pháp, nhiều Tỳ khưu đắc Thánh Quả nhất là quả Tu Đà Hườn.
 DỨT TÍCH NHÓM LỤC SƯ
-
 
 Lục Sư đã bị cấm đánh rồi
 Nên chỉ giơ tay dọa nạt thôi
@@ -27203,14 +27025,14 @@ không được hạnh phúc).
 Người nào cầu hạnh phúc cho mình, mà không lấy dao gậy phá hoại phúc của kẻ khác, thì sẽ
 được hạnh phúc (TTĐ)
 
- "-Cầu hạnh phúc cho mình
- Lại dùng dao dùng trượng
- Hại hạnh phúc kẻ khác
- Đời sau không hạnh phúc" (131)
- "-Cầu hạnh phúc cho mình
- Không dùng dao dùng trượng
- Hại hạnh phúc kẻ khác
- Đời sau được hạnh phúc" (132)
+"-Cầu hạnh phúc cho mình
+Lại dùng dao dùng trượng
+Hại hạnh phúc kẻ khác
+Đời sau không hạnh phúc" (131)
+"-Cầu hạnh phúc cho mình
+Không dùng dao dùng trượng
+Hại hạnh phúc kẻ khác
+Đời sau được hạnh phúc" (132)
 
 CHÚ THÍCH:
 Yo dañđena: Người nào làm khổ, phá hoại kẻ khác bằng gậy, hoặc bằng đá cụ, đất chẳng hạn.
@@ -27222,7 +27044,6 @@ một trong ba hạnh phúc đã được kể trên.
 
 Cuối thời pháp, cả 500 đứa trẻ đều đắc Thánh quả Tu Đà Hườn.
 DỨT TÍCH LỦ TRẺ ĐẬP RẮN.
-
 
 Lủ trẻ cầm cây đập Hổ mang
 Bất ngờ gặp đức Phật đi ngang
@@ -27412,15 +27233,15 @@ Nếu người mặc nhiên như cái đồng la bể trước những người 
 tức là người đã tự tại đi trên con đường Niếp Bàn. Người kia chẳng làm sao tìm sự tranh cải với ngươi
 được nữa) (TTĐ)
 
-_- "Chớ nói lời thô ác_
-Nói ác họ nói lại
-Khổ thay lời thù hận
-Hình phạt tất đến thân" (133)
+- _"Chớ nói lời thô ác_
+  Nói ác họ nói lại
+  Khổ thay lời thù hận
+  Hình phạt tất đến thân" (133)
 
-_- "Nếu như chiếc chuông bể_
-Tự mình giữ yên lặng
-Người đã chứng Niếp Bàn
-Tự mình không sân hận" (134) (TMC)
+- _"Nếu như chiếc chuông bể_
+  Tự mình giữ yên lặng
+  Người đã chứng Niếp Bàn
+  Tự mình không sân hận" (134) (TMC)
 
 CHÚ THÍCH:
 Kañci: Đừng nói lời thô ác với người nào.
@@ -27444,8 +27265,6 @@ Koṇḍadhāna nhờ huấn từ đức Bổn Sư ban cho mà đắc quả A La
 phiếu đầu tiên.
 
 DỨT TÍCH ĐẠI ĐỨC KOṆḌADHĀNA.
-
-
 
 Bóng người phụ nữ bám sau thầy
 Ai biết là do nghiệp báo gây
@@ -27510,7 +27329,6 @@ như tử thần cầm chiếc búa bén chặt đứt mạng căn. Đây là c�
 
 Cuối thời Pháp, nhiều Tỳ khưu chứng Thánh Quả nhất là quả Tu Đà Hườn.
 DỨT TÍCH BÁT QUAN TRAI.
-
 
 Năm trăm tín nữ bạn Visākhā
 Giữ Bát quan trai nguyện phước gì
@@ -27662,7 +27480,6 @@ Sehi: Do những nghiệp quả là của riêng họ
 Dummedho: Người vô trí bị sa địa ngục, bị lửa thiêu đốt.
 Cuối thời pháp, nhiều Tỳ khưu chứng đắc Thánh quả nhất là Tu Đà Hườn quả.
 DỨT TÍCH NGẠ QUỈ TRĂN.
-
 
 Vì câu nói trống bị căm thù
 Bá hộ không hờn giận kẻ ngu
@@ -27833,7 +27650,8 @@ Nói rồi, đức Bổn Sư thuyết pháp và kết luận bằng kệ rằng:
   bị trọng bịnh bức bách, hoặc bị tán tâm loạn ý, hoặc bị vua quan áp bách, hoặc bị vu trọng tội, hoặc
   bị quyến thuộc ly tán, hoặc bị tài sản tan nát, hoặc phòng ốc nhà cửa bị giắc thiêu đốt và sau khi
   chết bị đọa vào địa ngục) (TTĐ)
-  _- "Dùng dao phạt không dao_
+
+  - _"Dùng dao phạt không dao_
     Làm hại người vô hại
     Phải thọ gấp một loại
     Trong mười loại khổ đau" (137)
@@ -27843,14 +27661,14 @@ Nói rồi, đức Bổn Sư thuyết pháp và kết luận bằng kệ rằng:
     Hoặc thọ bịnh kịch liệt
     Hay loạn ý tán tâm" (138)
 
-_- "Hoặc bị vua áp bức_
-    Hay vu trọng tội
-    Tài sản bị nát tan (139)
+- _"Hoặc bị vua áp bức_
+  Hay vu trọng tội
+  Tài sản bị nát tan (139)
 
-_- "Hoặc phòng ốc nhà cửa_
-    Bị hỏa tai thiêu đốt
-    Khi thân hoại mệnh chung
-    Kẻ ngu sanh địa ngục" (140 (TMC).
+- _"Hoặc phòng ốc nhà cửa_
+  Bị hỏa tai thiêu đốt
+  Khi thân hoại mệnh chung
+  Kẻ ngu sanh địa ngục" (140 (TMC).
 
 CHÚ THÍCH:
 Adaṇḍesu: Những bậc Vô Lậu đã xa lìa những việc làm hại nhất và những hình phạt thân xác
@@ -28095,7 +27913,6 @@ nhiên, không tẩy sạch phiền não được.
 Cuối thời Pháp nhiều Tỳ khưu chứng đắc Thánh quả nhất là Tu Đà Hườn quả.
 DỨT TÍCH: TỶ KHƯU CÓ NHIỀU VẬT DỤNG.
 
-
 Tỳ khưu Trưởng giả thích tiện nghi
 Vật thực dồi dào, đủ thứ y
 Tăng trách: Sư sao không thiểu dục
@@ -28262,12 +28079,12 @@ Các vị Tỳ khưu ngồi trong giảng đường, đề khởi câu chuyện 
   So brānmano so samano sa bhikkhu"
 - "Người nào nghiêm giữ thân tâm, chế ngự khắc phục ráo riết. Thường hành phạm hạnh, không
   dùng dao gậy hai sanh linh, thì chính người ấy là Bà la môn, là Sa môn, là Tỳ khưu vậy) (TTĐ)
-  _- "Ai sống trang nghiêm thân_
-  Nhưng an tịnh nhiếp phục
-  Sống kiên trì phạm hạnh
-  Không gia hại sanh linh
-  Xứng danh Bà la môn
-  Hay Sa môn khất sĩ" (TMC)
+  - _"Ai sống trang nghiêm thân_
+    Nhưng an tịnh nhiếp phục
+    Sống kiên trì phạm hạnh
+    Không gia hại sanh linh
+    Xứng danh Bà la môn
+    Hay Sa môn khất sĩ" (TMC)
 
 CHÚ THÍCH:
 Alankato: Người mặc y phục tốt đẹp và đeo đồ trang sức lộng lẫy. Theo lý nầy thì một người
@@ -28375,11 +28192,11 @@ Thật khó tìm ở đời
 Ai cũng tránh chỉ trích
 Như ngựa hay tránh roi" (143)
 
-_- "Hãy nhiệt tâm tinh cần_
-Với tín, giới, tinh tấn
-Thiền định cùng trạch pháp
-Đầy đủ trí, giới đức
-Hãy trừ vô lượng khổ" (144) (TMC)
+- _"Hãy nhiệt tâm tinh cần_
+  Với tín, giới, tinh tấn
+  Thiền định cùng trạch pháp
+  Đầy đủ trí, giới đức
+  Hãy trừ vô lượng khổ" (144) (TMC)
 
 CHÚ THÍCH:
 Hirinisedho: Người biết hổ thẹn, tự ngăn cấm những ý tưởng bất thiện, không cho sanh lên
@@ -28401,8 +28218,6 @@ tiền, hãy tiêu trừ cái khổ trong vòng luân hồi nầy đi.
 
 Cuối thời Pháp, nhiều Tỳ khưu đắc Thánh quả nhất là quả Tu Đà Hườn.
 DỨT TÍCH: ĐẠI ĐỨC PILOTIKA
-
-
 
 Tỳ khưu biết thẹn tự chế mình
 Mỗi lúc tâm phiền não phát sanh
@@ -29075,7 +28890,6 @@ vào Dự Lưu Quả.
 
 DỨT TÍCH NÀNG SIRIMĀ.
 
-
 ### XI. 3- TRƯỞNG LÃO NI UTTARĀ
 
 **(PC. 148)**
@@ -29136,7 +28950,6 @@ chúng là như thế.
 
 DỨT TÍCH Trưởng lão NI UTTARA.
 
-
 ### XI. 4- NHÓM TỲ KHƯU ADHIMĀNIKA
 
 **(PC. 149)**
@@ -29196,7 +29009,6 @@ Dứt kệ ngôn, chư vị Tỳ khưu ấy chứng đắc Thánh Quả A La Há
 dương đức Thế Tôn, và đảnh lễ Ngài rồi bay đi.
 
 DỨT TÍCH NHÓM TỲ KHƯU ADHIMĀNIKA
-
 
 ### XI. 5- TRƯỞNG LÃO NI RŪPANANDĀ
 
@@ -29356,7 +29168,6 @@ Dứt kệ ngôn, Trưởng lão ni Rūpanandā chứng đạt quả Vô Lậu, 
 
 DỨT TÍCH: Trưởng lão NI RŪPANANDĀ
 
-
 ### XI. 6- HOÀNG HẬU MALLIKĀ
 
 **(PC. 151)**
@@ -29503,7 +29314,6 @@ Nhân tức là bậc thiện trí.
 Dứt thời pháp, có nhiều chúng sanh chứng đắc Thánh Qủa, nhứt là qủa Tu Đà Hườn.
 DỨT TÍCH HOÀNG HẬU MALLIKĀ
 
-
 ### XI. 7- TRƯỞNG LÃO LOḶUDĀYI
 
 **(PC. 152)**
@@ -29624,7 +29434,6 @@ dây leo... Mọc trong rừng vậy
 Dứt Pháp thoại, Đại chúng an trú vào Thánh Quả, nhất là Tu Đà Hườn quả.
 DỨT TÍCH Trưởng lão LOḶUDĀYI
 
-
 ### XI. 8- CHUYỆN ĐẦU TIÊN GIÁC NGỘ
 
 (PC. 153-154)
@@ -29697,7 +29506,6 @@ lấy Níp Bàn làm cảnh.
 
 Taṇhānaṁ khayamajjhagā: Nghĩa là: Ta đã chứng đạt A La Hán tức là đã đoạn ái dục.
 DỨT TÍCH ĐẦU TIÊN GIÁC NGỘ
-
 
 ### XI. 9- CHUYỆN CON VỊ TRƯỞNG GIẢ GIÀU CÓ
 
@@ -29821,7 +29629,6 @@ hát và hòa tấu... Mà mình đã làm trong lúc trước rằng: "Chúng t
 
 Dứt Pháp thoại rất nhiều người chứng đắc Dự Lưu quả...
 DỨT TÍCH CON VỊ TRƯỞNG GIẢ GIÀU CÓ
-
 
 ## XII. PHẨM TỰ NGÃ
 
@@ -29995,7 +29802,6 @@ lợi ích cho hội chúng là như thế.
 
 DỨT TÍCH HOÀNG TỬ BODHI
 
-
 ### XII. 2- TÔN GIẢ UPANANDA
 
 **(PC. 158)**
@@ -30110,7 +29916,6 @@ cho thính chúng rất nhiều.
 
 DỨT TÍCH TÔN GIẢ UPANANDA
 
-
 ### XII. 3- TRƯỞNG LÃO PADHĀNIKATISSA
 
 **(PC. 159)**
@@ -30189,7 +29994,6 @@ Attāhi kira duddamo: Nghĩa là gọi là mình dạy người Pháp khó thự
 thành thạo trong những Pháp ấy, hãy là người thực hành pháp ấy vậy.
 
 Dứt kệ ngôn, cả 500 vị Tỳ khưu chứng đạt A La Hán quả.
-
 
 ### XII. 4- THÂN MẪU TRƯỞNG LÃO KUMĀRASASSAPA
 
@@ -30370,7 +30174,6 @@ Nāthaṁ labhati dullabhaṁ: Đây là đức Thế Tôn, Ngài ám chỉ A la
 Dứt Pháp thoại, nhiều người chứng quả Thánh, nhất là quả Tu Đà hườn.
 DỨT TÍCH THÂN MẪU TRƯỞNG LÃO KUMĀRAKASSAPA
 
-
 ### XII. 5- CẬN SỰ NAM MĀHĀKĀḶA
 
 **(PC. 161)**
@@ -30510,10 +30313,10 @@ Rồi Ngài tuyên thuyết lên kệ ngôn rằng:
   Yathā naṁ icchatī dise".
 - Như dây Māluvā đeo xiết, làm chết cây sālā. Dường thế ấy, người nhiễm ô quá độ tự tạo cho
   mình những gì mà kẻ thù của mình được mong ước.
-  _- "Phá giới quá trầm trọng_
-      Như dây leo bám cây
-      Gieo hại cho tự thân
-      Như kẻ thù mong ước". (TMC)
+  - _"Phá giới quá trầm trọng_
+    Như dây leo bám cây
+    Gieo hại cho tự thân
+    Như kẻ thù mong ước". (TMC)
 
 CHÚ THÍCH:
 Người thuần ác giới gọi là: Accantadussīlyaṁ.
@@ -30532,7 +30335,6 @@ ra sự tổn hại.
 
 Dứt Pháp thoại, nhiều người chứng đạt Thánh Quả, nhất là Tu Đà Hườn quả...
 DỨT TÍCH TÔN GIA DEVADATTA
-
 
 ### XII. 7- CỐ Ý CHIA RẼ TĂNG
 
@@ -30570,7 +30372,7 @@ rằng:
   Taṁ ve paramadukkraṁ".
 - Làm những việc khó nhọc và bất lợi cho mình thì dễ, nhưng khó thay, quả thật vậy, làm được
   những việc hữu ích và tốt đẹp.
-  _- "Dễ làm điều ác_
+  - _"Dễ làm điều ác_
     Dễ làm tự hại mình
     Còn việc lành việc tốt
     Thật tối thượng khó làm". (TMC).
@@ -30645,7 +30447,7 @@ Rồi đức Thế Tôn thuyết lên kệ ngôn:
 - Người khờ dại vì quan kiến sai lạc của mình, khinh miệt Giáo huấn của chư vị Thinh Văn A La
   Hán, những bậc Hiền Thánh, những bậc Chánh Hạnh, sẽ đi đến chỗ hoại vong, giống như trái Kāshta
   chín muồi để tự diệt.
-  _- "Kẻ ngu si miệt thị_
+  - _"Kẻ ngu si miệt thị_
     Giáo Pháp Bậc La Hán
     Bậc Thánh Bậc Chánh Hạnh
     Chính do ác kiến này.
@@ -30665,7 +30467,6 @@ CHÚ THÍCH:
 
 Dứt pháp thoại, nàng tín nữ đắc chứng Dự Lưu.
 DỨT TÍCH TRƯỞNG LÃO KĀLA
-
 
 ### XII. 9- CẬN SỰ NAM CŪḶAKĀLA
 
@@ -30709,7 +30510,7 @@ Rồi Ngài tuyên thuyết lên kệ ngôn rằng:
 - Làm điều ác do ta. Quả thật vậy, bị ô nhiễm cũng do ta. Cũng do ta. Cũng do ta không làm
   điều ác. Quả thật vậy, do ta ta được thanh tịnh. Trong sạch hay ô nhiễm đều tùy nơi ta. Không ai làm
   cho người khác trong sạch được.
-  _- "Tự mình điều ác làm_
+  - _"Tự mình điều ác làm_
     Tự mình làm nhiễm ô
     Tự mình ác không làm
     Tự mình làm thanh tịnh
@@ -30728,7 +30529,6 @@ Dứt kệ ngôn, cận sự nam Cūḷakāla an trú vào Thánh quả Dự Lư
 ích cho thính chúng như vậy.
 
 DỨT TÍCH CẬN SỰ NAM CŪḶAKĀLA
-
 
 ### XII. 10- TRƯỞNG LÃO ATTADATTHA
 
@@ -30880,10 +30680,10 @@ Na lokavaddhano".
 
 - Không nên phục dịch mục tiêu bần tiện. Không nên sống buông ý lung phóng dật. Không nên
   ôm ấp tà kiến. Không nên nâng đỡ thế gian.
-"Chớ theo pháp hạ liệt
-Chớ sống mặc buông lung
-Chớ tin theo tà kiến
-Chớ tăng trưởng tục trần". (TMC)
+  "Chớ theo pháp hạ liệt
+  Chớ sống mặc buông lung
+  Chớ tin theo tà kiến
+  Chớ tăng trưởng tục trần". (TMC)
 
 CHÚ THÍCH:
 Hīnaṁ dhamamaṁ: Nghĩa là Pháp hạ liệt, tức là ngũ dục. Thật vậy ngũ dục ấy, dù là chúng
@@ -30897,7 +30697,6 @@ Lokavaḍḍhano nghĩa là: Người nào hành như vậy, người ấy gọi
 
 Dứt kệ ngôn, vì Tỳ khưu trẻ chứng đạt Dự Lưu quả.
 DỨT TÍCH VỊ TỲ KHƯU TRẺ
-
 
 ### XIII. 2- ĐỨC VUA SUDDHODANA
 
@@ -30966,14 +30765,14 @@ Asmiṃ loke paramhi ca".
   gian sắp tới.
 - Hãy trang nghiêm hành chánh ấy. Không dễ duôi phóng dật. Người hành chánh hạnh ấy trang
   nghiêm sẽ sống an vui, ở thế gian này và trong thế gian sắp đến.
-"Nỗ lực chớ phóng dật
-Hãy sống theo chánh hạnh
-Người chánh hạnh hưởng lạc
-Cả đời này đời sau". (168)
-"Hãy khéo sống chánh hạnh
-Chớ sống theo tà hạnh
-Người chánh hạnh hưởng lạc
-Cả đời này đời sau". (169) (TMC)
+  "Nỗ lực chớ phóng dật
+  Hãy sống theo chánh hạnh
+  Người chánh hạnh hưởng lạc
+  Cả đời này đời sau". (168)
+  "Hãy khéo sống chánh hạnh
+  Chớ sống theo tà hạnh
+  Người chánh hạnh hưởng lạc
+  Cả đời này đời sau". (169) (TMC)
 
 CHÚ THÍCH:
 
@@ -30992,7 +30791,6 @@ Na naṁ duccaritaṁ: Nghĩa là khi đi đến nơi phi chánh đạo như nơ
 
 Dứt kệ ngôn, đức vua Suddhodana chưng quả Dự Lưu.
 DỨT TÍCH ĐỨC VUA SUDDHODANA
-
 
 ### XIII. 3- CHƯ TỲ KHƯU TU THIỀN QUÁN
 
@@ -31022,10 +30820,10 @@ Maccurājā na passati"
 
 - Như ta nhìn bọt nước. Như ta nhìn ảo ảnh. Nếu người kia nhìn thế gian này như vậy Tử Thần
   không còn thấy người ấy nữa.
-"Hãy nhìn như bọt nước
-Hãy nhìn như cảnh huyền
-Quán nhìn đời như vậy
-Thần chết không bắt gặp" (TMC)
+  "Hãy nhìn như bọt nước
+  Hãy nhìn như cảnh huyền
+  Quán nhìn đời như vậy
+  Thần chết không bắt gặp" (TMC)
 
 CHÚ THÍCH:
 Marīcikaṁ tức ảo ảnh. Thật vậy, ảo ảnh hiện lên từ xa có thể có hình dáng như căn nhà... Là vật
@@ -31035,8 +30833,6 @@ bởi do ý nghĩa sanh rồi diệt (và) ví như người nhìn thấy ảo �
 như vậy. Dứt kệ ngôn, cả 500 vị Tỳ khưu chứng đạt A La Hán quả tại chính nơi mình đứng.
 
 DỨT TÍCH CHƯ TỲ KHƯU TU THIỀN QUÁN
-
-
 
 ### XIII. 4- HOÀNG TỬ ABHAYA
 
@@ -31078,10 +30874,10 @@ phán dạy tiếp rằng:
   Natthi saṅgo vijānataṁ"
 - Đến đây, hãy nhìn thế gian này, như chiếc Long xa trang hoàng lộng lẫy. Kẻ cuồng dại lặn hụp
   trong thế gian ấy, nhưng người thiện trí thì không luyến ái.
-"Hãy nhìn đời này
-Như xe vua lộng lẫy
-Người ngu mãi tham đắm
-Kẻ trí nào đắm say" (TMC)
+  "Hãy nhìn đời này
+  Như xe vua lộng lẫy
+  Người ngu mãi tham đắm
+  Kẻ trí nào đắm say" (TMC)
 
 CHÚ THÍCH:
 Ettha passatha là đức Thế Tôn chỉ vị Hoàng Tử Abhaya.
@@ -31098,7 +30894,6 @@ Dứt lời Pháp, Hoàng Tử Abhaya chứng đạt Dự Lưu quả, pháp tho�
 chúng như thế.
 
 DỨT TÍCH HOÀNG TỬ ABHAYA
-
 
 ### XIII. 5- TRƯỞNG LÃO SAMMAJJANA
 
@@ -31155,10 +30950,10 @@ Abbhā mutto'va candimā"
 
 - Người trước kia phóng dật, về sau chuyên cầu tu niệm. Người như thế rọi sáng thế gian như
   vầng trăng thoát ra khỏi đám mây mờ.
-"Ai trước sống phóng dật
-Sau sống không phóng dật
-Chói sáng rực đời này
-Như trăng thoát mây che" (TMC)
+  "Ai trước sống phóng dật
+  Sau sống không phóng dật
+  Chói sáng rực đời này
+  Như trăng thoát mây che" (TMC)
 
 CHÚ THÍCH:
 Bậc trí nên hiểu ý nghĩa của câu kệ ngôn này như sau:
@@ -31169,7 +30964,6 @@ vầng trăng thoát khỏi mây mờ... Là cơ hội giúp cho thế gian đư
 
 Dứt kệ ngôn nhiều người chứng đạt Thánh Quả, nhất là Tu Đà Hườn quả.
 DỨT TÍCH Trưởng lão SAMMAJJANA
-
 
 ### XIII. 6- TRƯỞNG LÃO AṄGULIMĀLA
 
@@ -31212,10 +31006,10 @@ Abbhā mutto'vacandimā"
 
 - Người có hành động lành để che nghiệp xấu, người ấy rọi sáng thế gian như vầng trăng ló
   dạng, thoát ra khỏi đám mây mờ.
-"Ai dùng các hạnh lành
-Làm xóa mờ nghiệp ác
-Chói sáng rực đời này
-Như trăng thoát mây che" (TMC)
+  "Ai dùng các hạnh lành
+  Làm xóa mờ nghiệp ác
+  Chói sáng rực đời này
+  Như trăng thoát mây che" (TMC)
 
 CHÚ THÍCH:
 Trông ý nghĩa kệ ngôn này, Kusalena Bậc Đạo Sư ám chỉ cho A La Hán đạo. Những câu còn lại
@@ -31374,10 +31168,10 @@ Appo saggāya gacchati"
 
 - Thế gian này mù quáng. Người thấy rõ thật hiếm hoi. Như (số) chim thoát khỏi lưới, ít người
   vào nhàn cảnh.
-"Đời này thật mù quáng
-Ít kẻ thấy rõ ràng
-Như chim thoát khỏi lưới
-Rất ít đi thiên giới" (TMC).
+  "Đời này thật mù quáng
+  Ít kẻ thấy rõ ràng
+  Như chim thoát khỏi lưới
+  Rất ít đi thiên giới" (TMC).
 
 CHÚ THÍCH:
 Trong những câu văn ấy: Ayaṁ loko nghĩa là thế gian này giống như mù, vì là người không có
@@ -31416,7 +31210,6 @@ gia sống đời Phạm hạnh trong Pháp Luật đức Thế Tôn, ông tinh 
 lâu chứng đạt A La Hán Quả.
 
 DỨT TÍCH NÀNG CON GÁI NGƯỜI THỢ DỆT
-
 
 ### XIII. 8- CHUYỆN BA MƯƠI VỊ TỲ KHƯU
 
@@ -31462,10 +31255,10 @@ Jetvā māraṁ savāhiniṃ"
 
 - Chim Thiên nga bay dài theo đường mặt trời. (Con người) nhờ thần thông hay giữa không
   trung. Bậc thiện trí thoát ra khỏi thế gian này, nhờ chính phục Ma Vương và khách của Ma Vương.
-"Như chim Thiên nga bay
-Thần thông liệng giữa trời.
-Chiến thắng ma, ma quân
-Kẻ trí thoát đời này" (TMC)
+  "Như chim Thiên nga bay
+  Thần thông liệng giữa trời.
+  Chiến thắng ma, ma quân
+  Kẻ trí thoát đời này" (TMC)
 
 CHÚ THÍCH:
 Bậc trí nên hiểu câu kệ ngôn này như vầy:
@@ -31478,7 +31271,6 @@ là có được phương tiện thoát ra khỏi luân hồi, nghĩa là chứn
 
 Dứt Pháp thoại, có nhiều chúng sanh chứng đắc Pháp nhãn.
 DỨT TÍCH CHUYỆN BA MƯƠI VỊ Tỳ khưu
-
 
 ### XIII. 9- NÀNG CIÑCAMĀṆAVIKA
 
@@ -31656,10 +31448,10 @@ Natthi pāpaṁ akāriyaṁ".
 
 - Không có điều ác nào mà người vọng ngữ vi phạm định luật (chơn thật), và dửng dưng trước
   thế giới bên kia, không làm được.
-"Ai vi phạm một pháp
-Ai nói lời vọng ngữ
-Ai bác bỏ đời sau
-Không ác nào không làm" (TMC)
+  "Ai vi phạm một pháp
+  Ai nói lời vọng ngữ
+  Ai bác bỏ đời sau
+  Không ác nào không làm" (TMC)
 
 CHÚ THÍCH:
 Ekaṁ dhamaṁ nghĩa là pháp độc nhất, chính là pháp chân thật.
@@ -31674,8 +31466,6 @@ làm thì không có.
 
 Dứt Pháp thoại nhiều người an trú vào Dự Lưu Quả...
 DỨT TÍCH NÀNG CIÑCAMĀṆAVIKĀ
-
-
 
 ### XIII. 10- ĐẠI THÍ VÔ SONG
 
@@ -31884,10 +31674,10 @@ Ten'eva so hoti sukhī paratha".
 
 - Đúng như vậy, người hà tiện không lên cảnh trời. Kẻ cuồng si không tán dương đức quảng đại.
   Người thiện trí hoan hỷ bố thí, do đó được hạnh phúc về sau.
-"Keo kiệt không sanh thiên
-Kẻ ngu ghét bố thí
-Người trí thích bố thí
-Đời sau được hưởng lạc" (TMC).
+  "Keo kiệt không sanh thiên
+  Kẻ ngu ghét bố thí
+  Người trí thích bố thí
+  Đời sau được hưởng lạc" (TMC).
 
 CHÚ THÍCH:
 Kadariyā nghĩa là: Người có sự bỏn sẻn, bón rít. Người không biết lợi ích đời này và đời sau, gọi
@@ -31903,7 +31693,6 @@ như thế.
 Pasenadi thường làm.
 
 DỨT TÍCH ĐẠI THÍ VÔ SONG
-
 
 ### XIII. 11- CÔNG TỬ KĀḶA
 
@@ -32015,10 +31804,10 @@ Sotāpattiphalaṁ varaṁ".
 
 - Hơn quyền bá chủ trên quả địa cầu, hơn tài sản nơi Thiên giới, hơn quyền chúa tể của toàn
   thể vũ trụ, là quả bậc Nhập Lưu.
-"Hơn thống lãnh trái đất
-Hơn được sanh cõi trời
-Hơn chủ trì vũ trụ
-Quả Dự Lưu tối thắng" (TMC).
+  "Hơn thống lãnh trái đất
+  Hơn được sanh cõi trời
+  Hơn chủ trì vũ trụ
+  Quả Dự Lưu tối thắng" (TMC).
 
 CHÚ THÍCH:
 Paṭhayyā ekarajjena: Tức là con quí hơn ngôi vu Chuyên Luân.
@@ -32216,19 +32005,20 @@ Apadaṁ kena padena nessatha"
   sẽ dẫn dắt Ngài bằng đường lối nào?
 - Người không còn bị ái dục, hỗn tạp và rối ren dẫn dắt đến kiếp sống nào. Oai lực của vị Phật
   không dấu vết ấy thật vô cùng tận. Ngươi sẽ dẫn dắt Ngài bằng đường lối nào?
-  _- "Vị chiến thắng không bại_
-Vị bước đi trên đời
-Không dấu tích chiến thắng
-Phật giới rộng mênh mông
-Ai dùng chân theo dõi
-Bậc không để dấu tích"
 
-_- "Ai giải lửa, lưới tham_
-Ái phước hết dắt dẫn
-Phật giới rộng mênh mông
-Không dấu tích chiến thắng
-Ai dùng chân theo dõi
-Bậc không để dấu tích" (TMC).
+  - _"Vị chiến thắng không bại_
+    Vị bước đi trên đời
+    Không dấu tích chiến thắng
+    Phật giới rộng mênh mông
+    Ai dùng chân theo dõi
+    Bậc không để dấu tích"
+
+- _"Ai giải lửa, lưới tham_
+  Ái phước hết dắt dẫn
+  Phật giới rộng mênh mông
+  Không dấu tích chiến thắng
+  Ai dùng chân theo dõi
+  Bậc không để dấu tích" (TMC).
 
 CHÚ THÍCH:
 Yassa jitaṁ n'āvajīyati nghĩa là: Bản chất phiền não như ái... Mà đức Chánh Đẳng Giác đã chinh
@@ -32272,7 +32062,6 @@ pháp được. Thậm chí chân của ta còn chẳng hề muốn đụng vào
 Dứt kệ ngôn, hai ông bà Māgandiya đắc quả A Na Hàm.
 
 DỨT TÍCH CON GÁI MA VƯƠNG
-
 
 ### XIV. 2- THỂ HIỆN SONG THÔNG NHIẾP NGOẠI ĐẠO
 
@@ -33103,10 +32892,10 @@ Sambuddhāpanaṁ satīmataṁ".
 
 - Bậc trí chuyên cần hành thiền, đã thỏa thích trong sự an tịnh của hạnh khước từ (tức Níp
   Bàn), những vị Phật giác tỉnh toàn hảo như vậy, chí đến chư Thiên cũng hết lòng ngưỡng mộ".
-"Người trí chuyên thiền định
-Thích an tịnh viễn ly
-Chư thiên đều ái kính
-Bậc Chánh Giác chánh niệm" (TMC).
+  "Người trí chuyên thiền định
+  Thích an tịnh viễn ly
+  Chư thiên đều ái kính
+  Bậc Chánh Giác chánh niệm" (TMC).
 
 CHÚ THÍCH:
 
@@ -33207,7 +32996,6 @@ Rồi Ngài thuyết lên Bổn Sanh với đầy đủ chi tiết rằng:
 cũng không thấu đáo được ý nghĩa của Phật ngôn. Duy chỉ có bậc trí là cao quí hơn cả".
 
 DỨT TÍCH THỂ HIỆN SONG THÔNG NHIẾP NGOẠI ĐẠO
-
 
 ### XIV. 3- LONG VƯƠNG ERAKAPATTA
 
@@ -33364,10 +33152,10 @@ Kiccho buddhānaṁ uppādo"
 
 - Được sanh làm người quả thật hiếm hoi. Kiếp sống làm người quả thật khó. Nghe được chân lý
   tối thượng quả là khó. Hy hữu thay, có được vị Phật ra đời.
-  _- "Khó thay được làm người_
-Khó thay còn được sống
-Khó thay nghe Diệu Pháp
-Khó thay Phật ra đời" (TM. TMC)
+  - _"Khó thay được làm người_
+    Khó thay còn được sống
+    Khó thay nghe Diệu Pháp
+    Khó thay Phật ra đời" (TM. TMC)
 
 GIẢI NGHĨA:
 Ý nghĩa kệ ngôn nầy nên hiểu như sau:
@@ -33391,7 +33179,6 @@ khi giao hợp cùng Long Nữ đồng chủng và khi chết. Vì Long Vương 
 nên Long Vương Erakapatta thường hóa thân thành thanh niên để đi.
 
 DỨT TÍCH LONG VƯƠNG ERAKAPATTA
-
 
 ### XIV. 4- VỊ TỲ KHƯU KHÔNG HOAN HỶ
 
@@ -33470,15 +33257,16 @@ Rồi Ngài tuyên thuyết lên kệ ngôn rằng:
 - Trận mưa bạc mưa vàng không làm cho hạnh tri túc phát sanh đến người dục lạc. Khoái lạc
   vật chất đem lại chút ít êm đềm và nhiều đau khổ. Biết như thế, người thiện trí không tìm được thỏa
   mãn trong khoái lạc, dầu ở cảnh giới trời. Hàng môn đệ của Đấng Toàn Giác hoan hỉ tận diệt ái dục.
-  _- "Dầu mưa bằng tiền vàng_
-Dục tình khó thỏa mãn
-Dục, đắng nhiều ngọt ít
-Biết vậy là bậc tri"
 
-_- "Đệ tử Bậc Chánh Giác_
-Không tìm cầu dục lạc.
-Dầu ở cõi chư Thiên
-Chỉ ưa thích ái diệt" (TMC).
+  - _"Dầu mưa bằng tiền vàng_
+    Dục tình khó thỏa mãn
+    Dục, đắng nhiều ngọt ít
+    Biết vậy là bậc tri"
+
+- _"Đệ tử Bậc Chánh Giác_
+  Không tìm cầu dục lạc.
+  Dầu ở cõi chư Thiên
+  Chỉ ưa thích ái diệt" (TMC).
 
 CHÚ THÍCH:
 Kahāpaṇavassena nghĩa là: Bậc trí vỗ tay khiến cho mưa 7 báu rơi xuống, mưa bảy báu nầy
@@ -33562,22 +33350,23 @@ Etaṁ buddhāna sāsanaṁ".
   vậy, người gây tổn hại cho kẻ khác không phải là bậc xuất gia. Bậc Sa môn không hề áp bức ai.
 - Không lăng mạ, không gây tổn hại, tự thu thúc đúng theo Giới Luật Căn Bản, ẩm thực tiết độ,
   sống ẩn dật, chuyên cần chú niệm cao thượng. Đó là Giáo Huấn của chư Phật.
-  _- "Không làm mọi điều ác_
-Thành tựu các hạnh lành
-Tâm ý giữ trong sạch
-Chính lời chư Phật dạy" (183)
 
-_- "Nhẫn, khổ hạnh tối thượng_
-Níp Bàn quả tối thượng
-Xuất gia không phá người
-Sa môn không hại người" (184)
+  - _"Không làm mọi điều ác_
+    Thành tựu các hạnh lành
+    Tâm ý giữ trong sạch
+    Chính lời chư Phật dạy" (183)
 
-_- "Không phỉ báng, phá hoại_
-Bảo vệ giới căn bản
-Ăn uống có tiết độ
-Sàng tọa chỗ nhàn tịnh
-Chuyên chú tăng thượng tâm.
-Chính lời chư Phật dạy". (185)
+- _"Nhẫn, khổ hạnh tối thượng_
+  Níp Bàn quả tối thượng
+  Xuất gia không phá người
+  Sa môn không hại người" (184)
+
+- _"Không phỉ báng, phá hoại_
+  Bảo vệ giới căn bản
+  Ăn uống có tiết độ
+  Sàng tọa chỗ nhàn tịnh
+  Chuyên chú tăng thượng tâm.
+  Chính lời chư Phật dạy". (185)
 
 CHÚ THÍCH:
 Sabbapāpassa: Tức là mỗi điều ác pháp.
@@ -33610,7 +33399,6 @@ câu pantaschāsana. Nói về Tám bậc Thiên bằng
 Adhicitta. Cả ba điều học nầy, Ngài đã nói lên như thế.
 Dứt kệ ngôn, nhiều vị Tỳ khưu chứng đắc Thánh Quả như là quả Dự Lưu.
 DỨT TÍCH VỀ CÂU HỎI CỦA Trưởng lão ĀNANDA
-
 
 ### XIV. 6- QUỐC SƯ AGGIDATTA
 
@@ -33860,7 +33648,6 @@ nhỉ?". Và họ lại xác nhận trong tâm:
 
 DỨT TÍCH QUỐC SƯ AGGIDATTA
 
-
 ### XIV. 7- CÂU HỎI TRƯỞNG LÃO ĀNANDA
 
 **(PC. 193)**
@@ -33892,10 +33679,10 @@ Taṁ kulaṁ sukkhaṁ ed- hati"
 
 - Khó tìm được hạng người trí tuệ cao siêu. Người như thế không sanh ra tại nơi nào. Nơi nào có
   người thiện trí đản sanh, gia đình ấy dồi dào hạnh phúc.
-  _- "Khó gặp bậc Thánh_
-Nhân Không phải đâu cũng có
-Chỗ nào kẻ trí sanh
-Gia đình tất an lạc". (TMC)
+  - _"Khó gặp bậc Thánh_
+    Nhân Không phải đâu cũng có
+    Chỗ nào kẻ trí sanh
+    Gia đình tất an lạc". (TMC)
 
 CHÚ THÍCH:
 Dullabho... nghĩa là Bậc Đại Nhân là người khó tìm, giống như voi thuần chủng... Bậc Đại Nhân
@@ -33908,8 +33695,6 @@ vậy, thường sanh vào gia tộc nào thì gia tộc ấy hằng được s�
 
 Dứt Pháp thoại nhiều người chứng đạt Thánh Quả.
 DỨT TÍCH CÂU HỎI CỦA Trưởng lão ĀNANDA
-
-
 
 ### XIV. 8- CHUYỆN CHƯ TỲ KHƯU
 
@@ -33944,10 +33729,10 @@ Samaggānaṁ tapo sukho"
 
 - Hạnh phúc thay chư Phật giáng sanh. Hạnh phúc thay Giáo Pháp cao minh. Hạnh phúc thay
   Tăng Già hòa hợp. Hạnh phúc thay giới luật của người đồng tu.
-"Vui thay Phật ra đời
-Vui thay, Pháp được giảng
-Vui thay Tăng hòa hợp
-Hòa hợp tu, vui thay" (TMC).
+  "Vui thay Phật ra đời
+  Vui thay, Pháp được giảng
+  Vui thay Tăng hòa hợp
+  Hòa hợp tu, vui thay" (TMC).
 
 CHÚ THÍCH:
 Buddhānaṁ uppādo: Chư Phật khi giáng sanh thường tế độ đại chúng thoát khỏi mọi sự trở
@@ -33968,7 +33753,6 @@ Dứt pháp thoại có rất nhiều Tỳ khưu chứng ngộ Vô Lậu quả G
 Pháp thoại mang lại nhiều lợi ích cho đại chúng.
 
 DỨT CHUYỆN CHƯ Tỳ khưu
-
 
 ### XIV. 9- BẢO THÁP CỦA ĐẤNG KASSAPA
 
@@ -34025,15 +33809,16 @@ Im "ettaṁ" iti kena ci".
 - Người tôn kính những bậc xứng đáng thọ lãnh sự tôn kính, chư Phật hay chư Thinh Văn đệ tử,
   những bậc đã khắc phục mọi chướng ngại và đã thoát khỏi mọi phiền não ẩu sầu - công đức của
   người tôn kính cúng dường bậc an tịnh, bậc vô úy thật là vô lượng.
-  _- "Cúng dường bậc đáng cúng_
-Chư Phật hoặc đệ tử
-Các vật vượt ma chướng
-Đoạn diệt mọi sầu bi"
 
-_- "Cúng dường bậc như vậy_
-Bậc tịch tịnh vô úy.
-Các công đức như vậy
-Không ai ước lượng được" (TMC)
+  - _"Cúng dường bậc đáng cúng_
+    Chư Phật hoặc đệ tử
+    Các vật vượt ma chướng
+    Đoạn diệt mọi sầu bi"
+
+- _"Cúng dường bậc như vậy_
+  Bậc tịch tịnh vô úy.
+  Các công đức như vậy
+  Không ai ước lượng được" (TMC)
 
 CHÚ THÍCH:
 Người đáng cúng dường gọi trong kệ ngôn nầy là pūjārahapuggala. Câu nói của người đáng
@@ -34084,7 +33869,6 @@ nơi cũ do Phật Lực, trên nền cẩm thạch của Bảo Tháp ở chính
 
 Trong hội chúng ấy có khoảng 84 ngàn chúng sanh chứng ngộ Pháp.
 DỨT TÍCH BẢO THÁP CỦA ĐỨC PHẬT KASSAPA
-
 
 ## XV. PHẨM HẠNH PHÚC
 
@@ -34199,7 +33983,6 @@ Quả, nhứt là Tu Đà Hườn quả.
 
 DỨT TÍCH: HÒA GIẢI GIA TỘC
 
-
 Hai họ Hoàng Gia suýt giết nhau
 Bởi tranh chút nước tưới hoa màu
 Khi thương lựa nói lời ngon ngọt
@@ -34257,7 +34040,6 @@ cũng sẽ có cơm hỉ lạc như thế ấy.
 Cuối thời Pháp, năm trăm thiếu nữ chứng đắc Tu Đà Hườn.
 DỨT TÍCH: MA VƯƠNG TRÊU PHẬT
 
-
 Dân thành điên đảo tại ma xui
 Ôm bát về không, Phật vẫn vui
 Lại độ nửa ngàn cô thiếu nữ
@@ -34292,10 +34074,10 @@ Nghe Chư Tăng thuật lại câu chuyện, đức Bổn Sư phán dạy:
   Dukkhaṁ seti parājito
   Upasanto sukhaṁ seti
   Hitvā jayyaparājayaṁ"
-  _- "Thắng lợi sinh thù oán_
-Thất bại chịu khổ đau
-Bỏ sau mọi thắng bại
-Sống an bình tịnh lạc".
+  - _"Thắng lợi sinh thù oán_
+    Thất bại chịu khổ đau
+    Bỏ sau mọi thắng bại
+    Sống an bình tịnh lạc".
 
 CHÚ THÍCH:
 Jayaṁ: Người thắng ắt bị thù oán.
@@ -34347,10 +34129,10 @@ Rồi Ngài thuyết lên kệ ngôn rằng:
   Natthi dosasamo kali
   Natthi khandhassamā duk- khà
   Natthi santiparaṁ sukhaṁ"
-  _- "Lửa nào sánh lửa tham_
-Ác nào bằng ác hận
-Khổ nào bằng khổ thân
-Lạc nào bằng tịnh lạc"
+  - _"Lửa nào sánh lửa tham_
+    Ác nào bằng ác hận
+    Khổ nào bằng khổ thân
+    Lạc nào bằng tịnh lạc"
 
 CHÚ THÍCH
 Natthi rāgasamo: Tuy không thấy khói hoặc lửa ngọn hoặc tham lửa đỏ, nhưng lửa tham ái có
@@ -34367,7 +34149,6 @@ thượng.
 Cuối thời Pháp, cô dâu và chàng rể chứng đắc quả vị Tu Đà Hườn.
 Ngay lúc đó, đức Thế Tôn thu hồi Phật Lực và hai người đã thấy mặt nhau trở lại.
 Dứt tích: THIẾU NỮ CON NHÀ GIA GIÁO
-
 
 Ngày lễ vu quy thỉnh Phật Đà
 Nàng dâu chẳng bận tiếp thông gia
@@ -34440,10 +34221,10 @@ Nói rồi, Ngài thuyết lên kệ ngôn rằng:
   Samkhārā paramā dukhà
   Etaṁ ñatvā yathābhūtaṁ
   Nibbānaṁ paramaṁ suk- haṁ"
-  _- "Đói khát bịnh tối thượng_
-Các hành khổ tối thượng
-Hiểu chơn thực như vậy
-Níp Bàn lạc tối thượng".
+  - _"Đói khát bịnh tối thượng_
+    Các hành khổ tối thượng
+    Hiểu chơn thực như vậy
+    Níp Bàn lạc tối thượng".
 
 CHÚ THÍCH:
 Jighachā paramā rogā: Mọi bịnh khác chỉ chữa một lần là dứt tuyệt hoặc tạm thời biến mất.
@@ -34490,10 +34271,10 @@ nhưng không dám nằm dài xuống. Đức vua ngồi qua một bên. Khi ấ
   Niddāyitvā sampari vattusayi
   Mahāvarāhova nivāpaputthu
   Punappunaṁ gabbhamupetimamdeti".
-  _- "Người ưa ngủ tham ăn_
-Lăn lóc nằm qua lại
-Chẳng khác heo no bụng
-Tục sanh mãi luân hồi". (PC. 325)
+  - _"Người ưa ngủ tham ăn_
+    Lăn lóc nằm qua lại
+    Chẳng khác heo no bụng
+    Tục sanh mãi luân hồi". (PC. 325)
 
 Sau bài kệ nầy, đức Bổn Sư dạy tiếp rằng:
 
@@ -34506,10 +34287,10 @@ Rồi Ngài dạy thêm câu kệ ngôn:
   Mattaṁ jānato haddhabhojane
   Tanukassa bhavanti devanā
   Sanikaṁ jīrati āyu pālayanti".
-  _- "Nếu người luôn có chánh niệm_
-Nếu người biết độ lượng khi thọ vật thực
-Sự đau khổ của người sẽ ít ỏi
-Người sẽ lâu già, bảo trì được tuổi thọ".
+  - _"Nếu người luôn có chánh niệm_
+    Nếu người biết độ lượng khi thọ vật thực
+    Sự đau khổ của người sẽ ít ỏi
+    Người sẽ lâu già, bảo trì được tuổi thọ".
 
 Đức vua không thể học thuộc được bài kệ nầy, đức Bổn Sư bảo Hoàng điệt Sudassana học
 thuộc bài kệ, đức Bổn Sư được Sudassana hỏi rằng:
@@ -34545,10 +34326,10 @@ Rồi Ngài thuyết lên kệ ngôn rằng:
   Santuṭṭhi paramaṁ dha- naṁ
   Vissāsa paramā ñāti
   Nibbānaṁ paramaṁ suk- haṁ".
-"Vô bịnh là tối thương
-Biết đủ là tối thượng
-Thành tín, bạn tối thượng
-Níp Bàn lạc tối thượng" (TMC)
+  "Vô bịnh là tối thương
+  Biết đủ là tối thượng
+  Thành tín, bạn tối thượng
+  Níp Bàn lạc tối thượng" (TMC)
 
 CHÚ THÍCH:
 ārogya paramā: Trạng thái vô bịnh là tối thượng. Quả vậy, những người có bịnh dầu đang có lợi
@@ -34614,10 +34395,10 @@ Rồi Ngài nói lên kệ ngôn rằng:
   Rasaṁ upasamassa ca
   Niddaro hoti nippāpo
   Dhammapītirasaṁ pibaṁ".
-  _- "Ai nếm vị độc cư_
-Ai hưởng mùi nhàn tịnh
-Không còn ác khổ đau
-Nhờ mến ưa vị pháp" (TMC).
+  - _"Ai nếm vị độc cư_
+    Ai hưởng mùi nhàn tịnh
+    Không còn ác khổ đau
+    Nhờ mến ưa vị pháp" (TMC).
 
 CHÚ THÍCH
 Pavivekarasaṁ: Vị phát sanh từ nơi thanh vắng, ám chỉ sự an vui của trạng thái độc cư.
@@ -34717,19 +34498,19 @@ Dhorayhasilaṁ vatavantaṁ āriyaṁ
 Taṁ tādisaṁ sappurisaṁ sumedhaṁ
 Bhajetha nakkhattapathaṁ'va candimā" (208)
 
-_- "Lành thay, gặp Thánh nhân_
-Sống chung thường hưởng lạc
-Không thấy các người ngu
-Thường được hưởng an lạc" (206)
+- _"Lành thay, gặp Thánh nhân_
+  Sống chung thường hưởng lạc
+  Không thấy các người ngu
+  Thường được hưởng an lạc" (206)
 
-_- "Khổ thay gần người ngu_
-Như thường sống kẻ thù
-Lành thay gặp người hiền
-Như sống với bà con" (207)
+- _"Khổ thay gần người ngu_
+  Như thường sống kẻ thù
+  Lành thay gặp người hiền
+  Như sống với bà con" (207)
 
-_- "Do vậy: Bậc hiền trí nghe nhiều Bậc Thánh nhân trì giới._
-Hãy gần gũi nương tựa Thiện nhân trí giả ấy.
-Như trăng theo đường sao" (TMC). (208)
+- _"Do vậy: Bậc hiền trí nghe nhiều Bậc Thánh nhân trì giới._
+  Hãy gần gũi nương tựa Thiện nhân trí giả ấy.
+  Như trăng theo đường sao" (TMC). (208)
 
 CHÚ THÍCH:
 Sādhu: Lành thay, tốt đẹp thay.
@@ -34760,7 +34541,6 @@ trăng nơi theo đường tinh khiết của sao đi trong hư không.
 Cuối thời pháp, nhiều vị Tỳ khưu chứng đắc Thánh Quả, nhất là Tu Đà Hườn quả.
 DỨT TÍCH: ĐẾ THÍCH SĂN SÓC PHẬT
 
-
 Phật đau kiết lỵ, khiến vua Trời
 Tự xuống lo nuôi khỏi đợi mời.
 Giới Thánh lòng ghi hằng cảm mến
@@ -34768,7 +34548,7 @@ Phẩn phàm, đầu đội tạm quên hôi.
 Gần hiền mới thấy vui vì đạo
 Xa trí, còn nghe khổ tại đời.
 Tăng chúng luận bàn câu chuyện lạ.
-[Yêu thì phải vậy, bạn vàng ơi.
+Yêu thì phải vậy, bạn vàng ơi.
 
 ## XVI. PHẨM THÂN ÁI
 
@@ -34845,20 +34625,21 @@ Rồi đức Bổn Sư thuyết lên kệ ngôn như sau:
   Piyapāyo hi pāpako
   Ganthà tesaṁ na vijjanti
   Yesaṁ natthi piyappiyaṁ" (211).
-  _- "Làm việc không đáng làm_
-Không làm việc đáng làm
-Bỏ lợi theo hỷ ái
-Ghét bỏ kẻ tự lực" (209)
 
-_- "Chớ gần gủi kẻ yêu_
-Cũng không gần kẻ ác
-Không gặp thân, gần ác.
-Cả hai đều đau khổ" (210)
+  - _"Làm việc không đáng làm_
+    Không làm việc đáng làm
+    Bỏ lợi theo hỷ ái
+    Ghét bỏ kẻ tự lực" (209)
 
-_- "Yêu không gặp là khổ_
-Ái biệt ly là khổ.
-Những ai không yêu ghét
-Không thể có buộc ràng" (211).
+- _"Chớ gần gủi kẻ yêu_
+  Cũng không gần kẻ ác
+  Không gặp thân, gần ác.
+  Cả hai đều đau khổ" (210)
+
+- _"Yêu không gặp là khổ_
+  Ái biệt ly là khổ.
+  Những ai không yêu ghét
+  Không thể có buộc ràng" (211).
 
 CHÚ THÍCH
 Ayogo: Trong việc không đáng cố gắng, không đáng cố ý làm. Như sáu chỗ không thường đến,
@@ -34964,10 +34745,10 @@ Rồi Ngài ngâm lên bài kệ rằng:
   Piyato jāyati bhayaṁ
   Piyato vippamuttassa
   Natthi soko kuto bhayaṁ".
-  _- "Thân ái sinh ưu tư_
-Thân ái sinh sợ hãi
-Ai giải thoát thân ái
-Không ưu không sợ hãi" (TMC)
+  - _"Thân ái sinh ưu tư_
+    Thân ái sinh sợ hãi
+    Ai giải thoát thân ái
+    Không ưu không sợ hãi" (TMC)
 
 CHÚ THÍCH:
 Sự ưu tư, sự sợ hãi là nguồn gốc của vòng sanh tử luân hồi, sau khi sanh lên, bao giờ cũng
@@ -35021,7 +34802,7 @@ trông có vẻ sầu thảm.
   Mgoài chữ pemato nầy, ý nghĩa kệ ngôn nầy giống như câu kệ trên.
   Cuối thời Pháp nhiều người đắc Thánh Quả, nhất là Dự Lưu.
   DỨT TÍCH BÀ VisāKHA KHÓC CHÁU
-  
+
 Buồn thay tín nữ Visākhā
 Khóc cháu còn xuân, đủ nết na
 Góp mặt, chung lòng làm thí chủ
@@ -35061,10 +34842,10 @@ Vương tử bị khiên đến, thì bạch với đức Thế Tôn rằng:
   Ratiyā jāyati bhayaṁ
   Ratiyā vippamuttassa
   Natthi soko kuto bhayaṁ".
-  _- "Luyến ái sanh sầu muộn_
-Luyến ái sanh sợ hãi
-Ai giải thoát luyến ái
-Không ưu tư, sợ hãi".
+  - _"Luyến ái sanh sầu muộn_
+    Luyến ái sanh sợ hãi
+    Ai giải thoát luyến ái
+    Không ưu tư, sợ hãi".
 
 CHÚ THÍCH:
 Ratiyā: Sự đam mê ngũ trần dục lạc. Kỳ dư bài kệ nầy có ý nghĩa giống như hai kệ ngôn trước.
@@ -35184,10 +34965,10 @@ Nói rồi, Ngài ngâm lên kệ ngôn rằng:
   Kāmato jāyati bhayaṁ
   Kāmato vippamuttassa
   Natthi soko kuto bhayaṁ".
-  _- "Tham dục sanh sầu muộn_
-Tham dục sanh sợ hãi
-Ai giải thoát tham dục
-Không ưu không sơ hãi". (TMC)
+  - _"Tham dục sanh sầu muộn_
+    Tham dục sanh sợ hãi
+    Ai giải thoát tham dục
+    Không ưu không sơ hãi". (TMC)
 
 CHÚ THÍCH:
 Kāmato: Từ hai thư dục ái là vật dục (vatthukāma) và phiền não dục (kilesakāma) mà phát khởi
@@ -35261,15 +35042,15 @@ môn ấy. Sau khi an tọa, đức Bổn Sư phán hỏi rằng:
 
 Nói rồi, Ngài ngâm lên kệ ngôn rằng:
 
-_- "Taṇhāya jāyati soko_
-Taṇhāya jāyati bhayaṁ
-Taṇhāya vippamuttasa
-Natthi soko kuto bhayaṁ".
+- _"Taṇhāya jāyati soko_
+  Taṇhāya jāyati bhayaṁ
+  Taṇhāya vippamuttasa
+  Natthi soko kuto bhayaṁ".
 
-_- "Ái dục sanh sầu muộn_
-Ái dục sanh sợ hãi
-Ai giải thoát ái dục
-Không ưu tư không sợ hãi" (TMC).
+- _"Ái dục sanh sầu muộn_
+  Ái dục sanh sợ hãi
+  Ai giải thoát ái dục
+  Không ưu tư không sợ hãi" (TMC).
 
 CHÚ THÍCH:
 Tanhāya: Mỗi thứ tham ái trong sáu cửa đếu do nơi dục ái làm góc mà phát khởi lên.
@@ -35339,10 +35120,10 @@ Rồi Ngài nói lên kệ ngôn rằng:
   Dhammatthaṁ saccavādi- naṁ
   Attano kammakubbānaṁ
   Taṁ jano kurute piyanti"
-  _- "Đủ giới đức, trí đức_
-An trú pháp, chân lý
-Tự làm tròn bổn phận
-Là người đáng kính mến" (TMC)
+  - _"Đủ giới đức, trí đức_
+    An trú pháp, chân lý
+    Tự làm tròn bổn phận
+    Là người đáng kính mến" (TMC)
 
 CHÚ THÍCH:
 Sīla dassanasampannaṁ: Có đầy đủ Tứ thanh tịnh giới và Tương ưng đạo quả, tức là đầy đủ
@@ -35405,10 +35186,10 @@ Nói rồi, Ngài ngâm lên kệ ngôn rằng:
   Manasā ca phuṭo siyā
   Kāmesu ca appaṭibaddha- citto
   Uddhaṁsoto'ti vuccati".
-  _- "Khát cầu pháp ly ngôn (Níp Bàn)_
-Tâm xúc cảm thượng quả (ba thánh quả)
-Không đắm say ái dục
-Thật xứng bậc Thượng Lưu". (TMC)
+  - _"Khát cầu pháp ly ngôn (Níp Bàn)_
+    Tâm xúc cảm thượng quả (ba thánh quả)
+    Không đắm say ái dục
+    Thật xứng bậc Thượng Lưu". (TMC)
 
 CHÚ THÍCH:
 Chandajāto: Do sự ước ao mong mõi, muốn làm phát sanh, khát cầu mãnh liệt.
@@ -35519,15 +35300,16 @@ Rồi Ngài thuyết lên kệ ngôn rằng:
   Asmā lokā paraṁ gataṁ
   Puññāni paṭigaṇhanti
   Piyaṁ ñātiṃ'va āgataṁ" (220)
-  _- "Khách lâu ngày ly hương_
-Từ viễn xứ về làng
-Bà con cùng thân hữu
-Hân hoan đến chào mừng". (219)
 
-_- "Cũng vậy, các phước thiện_
-Đón chào người làm lành
-Đời nầy đến đời kia
-Như thân nhân chào đón" (TMC).
+  - _"Khách lâu ngày ly hương_
+    Từ viễn xứ về làng
+    Bà con cùng thân hữu
+    Hân hoan đến chào mừng". (219)
+
+- _"Cũng vậy, các phước thiện_
+  Đón chào người làm lành
+  Đời nầy đến đời kia
+  Như thân nhân chào đón" (TMC).
 
 CHÚ THÍCH:
 Cirappavāsiṃ: Cūrappavutthaṁ: Người ly hương ở hải ngoại đã lâu.
@@ -35648,17 +35430,17 @@ Sau khi nhắc lại tiền tích, đức Bổn Sư dạy rằng:
 
 Nói rồi Ngài thuyết lên kệ ngôn rằng:
 
-_- "Kodhaṁ jahe vippajaheyya mà naṁ_
-Saññojanaṁ sabbaṁ atikhameyya
-Taṁ nāmārūpasmiṃ asajjamānaṁ
-Akincanaṁ nānupatanti dukkhā".
+- _"Kodhaṁ jahe vippajaheyya mà naṁ_
+  Saññojanaṁ sabbaṁ atikhameyya
+  Taṁ nāmārūpasmiṃ asajjamānaṁ
+  Akincanaṁ nānupatanti dukkhā".
 
-_- "Xả bỏ lòng giận dữ_
-Trừ diệt tánh kiêu căng
-Vượt ngoài mọi ràng buộc
-Không chấp trước danh sắc
-Người không còn một vật
-Khổ không sao theo dõi". (TMC)
+- _"Xả bỏ lòng giận dữ_
+  Trừ diệt tánh kiêu căng
+  Vượt ngoài mọi ràng buộc
+  Không chấp trước danh sắc
+  Người không còn một vật
+  Khổ không sao theo dõi". (TMC)
 
 CHÚ THÍCH
 Kodhaṁ Tất cả các mức độ của sự phẩn nộ và chín lớp ngã mạn đều bỏ cả (kho tàng Pháp Bảo
@@ -35702,7 +35484,7 @@ Thiên nữ là người yêu mến của đức Đế Thích. Mỗi khi nàng �
 - Chúng ta hãy đi dự cuộc vui đó.
   Đức Đế Thích không thể nào từ chối, bác bỏ lời nói của nàng.
   DỨT TÍCH: THÍCH NƯ ROHINĪ
-  
+
 Vì nhân hại vũ nữ sần mình
 Thích nữ không ngờ quả lác sinh
 Xấu mặt, ngán mừng Tăng Đại đức
@@ -35754,10 +35536,10 @@ như người kềm chế được chiếc xe đang chạy nhanh, thật là t�
   Rathaṁ bhantaṁ'va ưhà- raye
   Taṁ ahaṁ sārathiṃ brūmi
   Rasmiggāho itaro jano"
-  _- "Ai chận được cơn giận_
-Như dừng xe đang lăn
-Ta gọi người đánh xe
-Kẻ khác cầm cương hờ". (TMC)
+  - _"Ai chận được cơn giận_
+    Như dừng xe đang lăn
+    Ta gọi người đánh xe
+    Kẻ khác cầm cương hờ". (TMC)
 
 CHÚ THÍCH
 Uppatitaṁ: Uppannaṁ: đã nổi dậy, đã sanh khởi.
@@ -36077,10 +35859,10 @@ Nói rồi, Ngài thuyết lên kệ ngôn rằng:
   Asādhuṃ sādhūna jine
   Jine kadaroyaṁ dānena
   Saccena alikavādinaṁ"
-  _- "Lấy không giận thắng giận_
-Lấy thiện thắng bất thiện
-Lấy thí thắng xan tham
-Lấy chân thật thắng hư ngụy" (TMC)
+  - _"Lấy không giận thắng giận_
+    Lấy thiện thắng bất thiện
+    Lấy thí thắng xan tham
+    Lấy chân thật thắng hư ngụy" (TMC)
 
 CHÚ THÍCH:
 Akkodhena: Gặp người đang nóng giận, con nên lấy tâm từ hòa mà thắng họ.
@@ -36157,18 +35939,18 @@ Tôn và bạch hỏi rằng:
 
 Nói rồi, Ngài thuyết lên kệ ngôn rằng:
 
-_- "Saccaṁ bhaṇe na kujjheyya_
-Dajjā appampi yācito
-Etehi tīhi ṭhāchi
-Gacche devjana santike"
+- _"Saccaṁ bhaṇe na kujjheyya_
+  Dajjā appampi yācito
+  Etehi tīhi ṭhāchi
+  Gacche devjana santike"
 
 (^9) Hay Tinduka, là cây Diaspyros thường mọc miền Nhiệt đới.
 1 0 Cây ở miền Bắc ấn, trái hột làm dầu thơm.
 
-_- "Nói thật, không nóng giận_
-Của ít thí người xin
-Nhờ ba việc lành nầy
-Đưa người gần thiên giới" (TMC)
+- _"Nói thật, không nóng giận_
+  Của ít thí người xin
+  Nhờ ba việc lành nầy
+  Đưa người gần thiên giới" (TMC)
 
 CHÚ THÍCH
 Saccaṁ bhaṇe: Nói năng, thuyết giảng lẽ thật, trú vững trong sự chân thật.
@@ -36252,14 +36034,14 @@ Sau khi giải rõ tiền tích, đức Thế Tôn ngâm lên kệ ngôn rằng:
   Adiṭṭhapubbake pase kāmaṁ tasmīpi vissase
   Pubbe va sanivāsena paccuppannahitena và
   Evantaṁ jāyate penaṁ uppalaṁya yatho dakoti".
-  _- "Trong tâm nếu thấy bình yên_
-Trọn lòng tin kẻ có duyên với mình
-Dẩu rằng gặp gở thình lình
-Cũng nên tín nhiệm như tình thâm giao
-Xưa từng chung chạ ra vào
-Giờ may tái hội, lòng nào chẳng lay?
-Men tình vừa nhắp đã say
-Bảo xanh gặp nước ngày ngày gia tăng...".
+  - _"Trong tâm nếu thấy bình yên_
+    Trọn lòng tin kẻ có duyên với mình
+    Dẩu rằng gặp gở thình lình
+    Cũng nên tín nhiệm như tình thâm giao
+    Xưa từng chung chạ ra vào
+    Giờ may tái hội, lòng nào chẳng lay?
+    Men tình vừa nhắp đã say
+    Bảo xanh gặp nước ngày ngày gia tăng...".
 
 Đức Thế Tôn an cư suốt ba tháng hạ, nhờ gia định ấy hộ độ. Mãn mùa an cư, hai ông bà chứng
 đạt A la Hán quả và viên tịch Vô Dư Thiện tín làm ma chay cúng dường hai ông bà trọng thể, cho xe
@@ -36272,10 +36054,10 @@ táng, nhiều người đến đảnh lễ Ngài xong rồi, tỏ lời phân �
   chúng, rồi Ngài thuyết lên pháp thoại hợp cơ tánh căn duyên trong hoàn cảnh đặc biệt nầy rằng:
 - "Appaṁ vata jīvitaṁ idaṁ ūraṁ vassasatāpi mīyati
   Ye cepi atcca jīvati athekho sojarasāpi mīyatiti".
-  _- "Đời người ngắn ngủi mong manh_
-Trăm năm chưa trọn đã thành qủi ma
-Nếu ai chết lúc về già
-Quá trăm tuổi thọ thật là sống dai!".
+  - _"Đời người ngắn ngủi mong manh_
+    Trăm năm chưa trọn đã thành qủi ma
+    Nếu ai chết lúc về già
+    Quá trăm tuổi thọ thật là sống dai!".
 
 Đức Thế Tôn thuyết lên Lão Kinh (Jarāsutta). Cuối thời Pháp có tám muôn tám ngàn chúng
 sanh chứng đắc Pháp Nhãn. Chư Tỳ khưu không biết ông bà Bà la môn đã viên tịch, nên bạch hỏi
@@ -36291,10 +36073,10 @@ Rồi Ngài thuyết lên kệ ngôn rằng:
   Niccaṁ kāyena saṁvutā
   Te yanti accutaṁ ṭhānaṁ
   Yattha gantvā na socare".
-  _- "Không hại người thanh tịnh_
-Thường chế ngự thân tâm
-Đạt được cảnh Bất tử
-Đến đây không sầu bi" (TMC)
+  - _"Không hại người thanh tịnh_
+    Thường chế ngự thân tâm
+    Đạt được cảnh Bất tử
+    Đến đây không sầu bi" (TMC)
 
 CHÚ THÍCH
 Munayo: Chỉ bậc Tịnh giả Vô học đã đắc Đạo Quả nhờ lối tu hành hoàn hảo.
@@ -36377,10 +36159,10 @@ Rồi Ngài thuyết lên kệ ngộn rằng:
   Ahorattānusikkhinaṁ
   Nibbānaṁ adhimuttānaṁ
   Atthaṁ gacchanti āsavā"
-  _- "Những người thường giác tỉnh_
-Ngày đêm năng tu tập
-Chuyên tâm hưởng Níp Bàn
-Mọi lậu hoặc được tiêu" (TMC)
+  - _"Những người thường giác tỉnh_
+    Ngày đêm năng tu tập
+    Chuyên tâm hưởng Níp Bàn
+    Mọi lậu hoặc được tiêu" (TMC)
 
 CHÚ THÍCH
 Ahorathānusikkhinaṁ: Cả ngày lẫn đêm đều lo tu tập Giới, định, tuệ.
@@ -36412,18 +36194,18 @@ Nói đoạn, Ngài ngâm lên bài kệ dẫn chứng tích xưa rằng:
   Bahu taṭṭha māhā brahme api ācāma kuṇḍakaṁ tvañca kho ma
   Tvañca kho naṁ pajānāsi yādisāyaṁ hayuttamo
   Jānanto jānamāgamma nate bhakkhāmi kuṇḍakanti".
-  _- "Quen ăn ròng cỏ dư thừa_
-Quen dùng cháo cám cả trưa lẫn chiều
-Đã từng ăn uống hẩm hiu
-Nay sao ngươi lại làm kiêu chẳng dùng?
-Nơi nào thiên hạ chẳng thông
-Người do Luật nắn hay dòng bẩm sinh?
-Này ông Đại Phạm bất minh
-Nơi đó cháo cám cũng đành phải ăn
-Nhưng ông đã biết dư rằng
-Ta là tuấn mã giòng sang trên đời
-Cháo ông, ta chẳng thèm xơi
-Vì ta biết rõ giống nòi của ta".
+  - _"Quen ăn ròng cỏ dư thừa_
+    Quen dùng cháo cám cả trưa lẫn chiều
+    Đã từng ăn uống hẩm hiu
+    Nay sao ngươi lại làm kiêu chẳng dùng?
+    Nơi nào thiên hạ chẳng thông
+    Người do Luật nắn hay dòng bẩm sinh?
+    Này ông Đại Phạm bất minh
+    Nơi đó cháo cám cũng đành phải ăn
+    Nhưng ông đã biết dư rằng
+    Ta là tuấn mã giòng sang trên đời
+    Cháo ông, ta chẳng thèm xơi
+    Vì ta biết rõ giống nòi của ta".
 
 Đức Bổn Sư thuật lại chi tiết trong Bổn Sanh Kuṇḍakasindhavapotaka (Jātaka 254).
 
@@ -36502,30 +36284,31 @@ Ekantaṁ nindito poso Ekantaṁ và pasaṁ santin"
   Acchiddavuttiṃ medhaviṃ Paññāsīlasamāhitaṁ"
 - "Nekkhaṁ jambonaddas eva Ko taṁ ninditum arahati
   Devā pi taṁ pasaṁsanti Brahmuṇā pi pasaṁsito"
-  _- "A tu La nên biết_
-Chẳng phải chuyện đời nay
-Đời xưa cũng từng nói
-Ngồi im bị người chê"
 
-_- "Nói nhiều bị người chê_
-Nói vừa phải bị chê
-Làm người không bị chê
-Thật khó tìm ở đời" (227)
+  - _"A tu La nên biết_
+    Chẳng phải chuyện đời nay
+    Đời xưa cũng từng nói
+    Ngồi im bị người chê"
 
-_- "Xưa, vị lai và nay_
-Đâu có sự kiện nầy
-Người hoàn toàn bị chê
-Người trọn vẹn được khen" (228)
+- _"Nói nhiều bị người chê_
+  Nói vừa phải bị chê
+  Làm người không bị chê
+  Thật khó tìm ở đời" (227)
 
-_- "Sáng sáng, thẩm xét kỹ_
-Bậc có trí tán thán
-Có hạnh không tỳ vết
-Đầy đủ Giới, định, tuệ". (229)
+- _"Xưa, vị lai và nay_
+  Đâu có sự kiện nầy
+  Người hoàn toàn bị chê
+  Người trọn vẹn được khen" (228)
 
-_- "Hạnh sáng như vàng ròng_
-Ai dám chê vị ấy
-Chư thiên cũng tán dương
-Phạm Thiên phải khen thưởng". (TMC)
+- _"Sáng sáng, thẩm xét kỹ_
+  Bậc có trí tán thán
+  Có hạnh không tỳ vết
+  Đầy đủ Giới, định, tuệ". (229)
+
+- _"Hạnh sáng như vàng ròng_
+  Ai dám chê vị ấy
+  Chư thiên cũng tán dương
+  Phạm Thiên phải khen thưởng". (TMC)
 
 CHÚ THÍCH
 Parāmametaṁ (Purānakaṁ etaṁ) Chuyện ấy đã xưa, đã có từ xưa.
@@ -36583,22 +36366,22 @@ nghe tiếng guốc khua lộp cộp, Ngài hỏi Đại đức Ānanda rằng: 
 - Bạch Ngài! Nhóm Lục Sư mang guốc gỗ đi kinh hành, mới có tiếng khua lộp cộp vậy.
   Nhân dịp nầy, đức Thế Tôn chế định học giới, dạy rằng: "Vị Tỳ khưu cần giữ gìn thân, khẩu, ý
   của mình". Rồi Ngài thuyết lên kệ ngôn rằng:
--"Giữ thân đừng nóng giận
-Chế thân khéo điều phục
-Xa lìa thân làm ác
-Dùng thân làm hạnh lành" (231)
--"Giữ lời đừng nóng giận
-Chế lời khéo điều phục
-Xa lìa lời thô ác
-Dùng lời nói điều lành" (232)
--"Giữ ý đừng nóng giận
-Chế ý nghĩ hạnh lành"
-Xa lìa ý độc hại
-Dùng ý nghĩ hạnh lành" (233)
--"Kẻ trí điều phục thân
-Điều phục luôn lời nói
-Điều phục cả tâm tư
-Ba nghiệp thảy tự điều" (234)
+  -"Giữ thân đừng nóng giận
+  Chế thân khéo điều phục
+  Xa lìa thân làm ác
+  Dùng thân làm hạnh lành" (231)
+  -"Giữ lời đừng nóng giận
+  Chế lời khéo điều phục
+  Xa lìa lời thô ác
+  Dùng lời nói điều lành" (232)
+  -"Giữ ý đừng nóng giận
+  Chế ý nghĩ hạnh lành"
+  Xa lìa ý độc hại
+  Dùng ý nghĩ hạnh lành" (233)
+  -"Kẻ trí điều phục thân
+  Điều phục luôn lời nói
+  Điều phục cả tâm tư
+  Ba nghiệp thảy tự điều" (234)
 
 CHÚ THÍCH:
 Kāyappakopaṁ: Hãy ráng giữ ba thân ác hạnh (sát sanh, trộm cắp, tà dâm)
@@ -36707,15 +36490,15 @@ Khippaṁ vāyāma paṇḍito bhava
 Niddhantamalo anaṅgaṇo
 Dibbaṁ ariyabhūmim ehisi".
 
-_- "Người nay giống lá khô_
-Diên Sứ đang chờ người
-Hãy tự tạo hòn đảo
-Đường trường thiếu tư lương" (235)
+- _"Người nay giống lá khô_
+  Diên Sứ đang chờ người
+  Hãy tự tạo hòn đảo
+  Đường trường thiếu tư lương" (235)
 
-_- "Người đứng trước cửa chết_
-Hãy tinh cần sáng suốt
-Trừ cấu uế, thanh tịnh
-Người đạt chứng Thánh địa" (236)
+- _"Người đứng trước cửa chết_
+  Hãy tinh cần sáng suốt
+  Trừ cấu uế, thanh tịnh
+  Người đạt chứng Thánh địa" (236)
 
 CHÚ THÍCH:
 Paṇḍupalāso va dānisi: Nầy Thiện nam, ông giờ đây chẳng khác gì lá vàng khô đã lìa cành, rụng
@@ -36760,15 +36543,15 @@ Khippaṁ vāyama paṇḍito bhava
 Niddhantamato anaṅgaṇo
 Napuna jātijaraṁ upehisi"
 
-_- "Đời người sắp lụn tàn_
-Tiến gần đến Diêm Vương
-Giữa đường không ngơi nghỉ
-Đường trường thiếu tư lương"
+- _"Đời người sắp lụn tàn_
+  Tiến gần đến Diêm Vương
+  Giữa đường không ngơi nghỉ
+  Đường trường thiếu tư lương"
 
-_- "Hãy tự làm hòn đảo_
-Tinh cần và sáng suốt
-Trừ cấu uế, thanh tinh
-Chẳng trở lại sanh tử" (238)
+- _"Hãy tự làm hòn đảo_
+  Tinh cần và sáng suốt
+  Trừ cấu uế, thanh tinh
+  Chẳng trở lại sanh tử" (238)
 
 CHÚ THÍCH:
 Upanītavayo: Upa tiếp đầu ngữ có nghĩa là rơi xuống, đi xuống, tàn tạ. Nītavayo là tuổi thọ đã
@@ -36848,10 +36631,10 @@ Kammāro rajatass'eva
 
 Niddhame malam attano"
 
-_- "Người trí theo tuần tự_
-Từng sát na trừ dần
-Những cấu uế nơi mình
-Như thợ vàng lọc quặng" (TMC)
+- _"Người trí theo tuần tự_
+  Từng sát na trừ dần
+  Những cấu uế nơi mình
+  Như thợ vàng lọc quặng" (TMC)
 
 CHÚ THÍCH
 Anupubbena: Lần lượt theo thứ tự.
@@ -36953,10 +36736,10 @@ Taduṭṭhāya taṁ'eva khà- dati
 Evaṁ atidhonacārinaṁ
 Sakakammāni nayanti dug- gatiṃ"
 
-_- "Như sét do sắt sanh_
-Trở lại ăn thân sắt
-Ác nghiệp tự mình tạo
-Dẫn mình đến cõi ác" (TMC)
+- _"Như sét do sắt sanh_
+  Trở lại ăn thân sắt
+  Ác nghiệp tự mình tạo
+  Dẫn mình đến cõi ác" (TMC)
 
 CHÚ THÍCH
 
@@ -37145,15 +36928,15 @@ Avijjā paramaṁ malaṁ
 Etaṁ malaṁ pahatvāna
 Nimmalā hotha bhikkhavo"
 
-_- "Tà hạnh nhơ đàn bà_
-Xan tham nhơ kẻ thí
-Tội ác là vết nhơ
-Đời nầy và đời sau" (242)
+- _"Tà hạnh nhơ đàn bà_
+  Xan tham nhơ kẻ thí
+  Tội ác là vết nhơ
+  Đời nầy và đời sau" (242)
 
-_- "Trong hàng cấu uế ấy_
-Vô minh nhơ tối thượng
-Hãy trừ bỏ nhơ ấy
-Thành Tỳ kheo vô cấu" (243) (TMC)
+- _"Trong hàng cấu uế ấy_
+  Vô minh nhơ tối thượng
+  Hãy trừ bỏ nhơ ấy
+  Thành Tỳ kheo vô cấu" (243) (TMC)
 
 CHÚ THÍCH
 Duccaritaṁ: Aticaro: Tà hành, chỉ sự lăng loàn trắc nết, gian dâm, ngoại tình. Phàm đàn bà
@@ -37217,15 +37000,15 @@ Niccaṁ sucigavesinā
 alīnen'appasabbhena
 Suddhājīvena passatā"
 
-_- "Sống không biết tàm quý_
-Sống lổ mãng như quạ
-Sống chê bai khoác lác
-Sống ngạo mạn nhiễm ô" (244)
+- _"Sống không biết tàm quý_
+  Sống lổ mãng như quạ
+  Sống chê bai khoác lác
+  Sống ngạo mạn nhiễm ô" (244)
 
-_- "Sống vô cầu khiêm tốn_
-Sống thường cầu thanh tịnh
-Sống thanh tịnh sáng suốt
-Khó thay đời sống ấy". (245)
+- _"Sống vô cầu khiêm tốn_
+  Sống thường cầu thanh tịnh
+  Sống thanh tịnh sáng suốt
+  Khó thay đời sống ấy". (245)
 
 CHÚ THÍCH
 "Ahirikenà: Sống mà không có sự hổ thẹn và ghê sợ tội lỗi. Tỳ khưu không có tàm quý, gặp
@@ -37331,20 +37114,21 @@ nào khó giữ nhất, là kém nhất mà Ngài lại dạy rằng:
   Pāpadhammā asaññatā
   Mā taṁ lobho adhammo ca
   Ciraṁ dukkhāya rand- hayuô"
-  _- "Ai sống hại sanh linh_
-Nói láo trong đời nầy
-Lấy của người không cho
-Qua lại với vợ người" (246)
 
-_- "Lại rượu chè say sưa_
-Người sống đời sống ấy
-Tất chính ngay đời nầy
-Tự đào bỏ thiên căn". (247)
+  - _"Ai sống hại sanh linh_
+    Nói láo trong đời nầy
+    Lấy của người không cho
+    Qua lại với vợ người" (246)
 
-_- "Vậy người hãy nên biết_
-Chế ác chẳng dễ gì
-Chớ tham lam phi pháp
-Mà trường khổ lụy thân". (248)
+- _"Lại rượu chè say sưa_
+  Người sống đời sống ấy
+  Tất chính ngay đời nầy
+  Tự đào bỏ thiên căn". (247)
+
+- _"Vậy người hãy nên biết_
+  Chế ác chẳng dễ gì
+  Chớ tham lam phi pháp
+  Mà trường khổ lụy thân". (248)
 
 CHÚ THÍCH
 Yo pāịaṁ attiteti: Bằng một lối nào trong sáu payoga (phương thế) bằng thân, khẩu hoặc ý cắt
@@ -37430,10 +37214,10 @@ Các vị Tỳ khưu biết được vị Sa môn trẻ Tissa kia không có quy
   Chư Tỳ khưu thỉnh cầu đức Bổn Sư thuyết giảng Bổn Sanh, Ngài thuật lại tiền tích với kệ ngôn rằng:
 - "Bahumpi so vikattheyya sññaṁ janapadaṁ gato
   Anvāgantvāna dùseyya bhuñja bhoge katāhakāti".
-  _- "Khoe khoang, khoác lác lung tung_
-Đã qua xứ lá ai lùng mà lo
-Hại thay, bị kẻ theo dò...
-Kaṭāhaka, ăn no đi nò!...".
+  - _"Khoe khoang, khoác lác lung tung_
+    Đã qua xứ lá ai lùng mà lo
+    Hại thay, bị kẻ theo dò...
+    Kaṭāhaka, ăn no đi nò!...".
 
 Sau khi thật xong Bổn sanh Kaṭāhaka, đức Bổn Sư dạy rằng:
 
@@ -37456,16 +37240,16 @@ Mūlaghacchaṁ samùhātaṁ
 Save divā vārattiṃ và
 Samādhiṃ adhigavvhati".
 
-_- " Do tín tâm, hỷ tâm_
-Loài người mới bố thí
-Kẻ sanh lòng đố kỵ
-Vật thực cúng đến người
-Ngày đêm không an tịnh". (249)
+- _" Do tín tâm, hỷ tâm_
+  Loài người mới bố thí
+  Kẻ sanh lòng đố kỵ
+  Vật thực cúng đến người
+  Ngày đêm không an tịnh". (249)
 
-_- "Những ai đã đoạn tận_
-Dứt trừ tâm ganh tỵ
-Ban ngày lẫn ban đêm
-Tâm hằng được tịnh lạc". (TMC)
+- _"Những ai đã đoạn tận_
+  Dứt trừ tâm ganh tỵ
+  Ban ngày lẫn ban đêm
+  Tâm hằng được tịnh lạc". (TMC)
 
 CHÚ THÍCH:
 Dadāti ve yathāsaddhaṁ: Con người ta khi dâng cúng món chi dầu thô bạc hay thanh quí cũng
@@ -37572,10 +37356,10 @@ Natthi dosasamo gaho
 Natthi mohasamaṁ jālaṁ
 Natthi taṇhāsamā nadi".
 
-_- "Không lửa nào bằng lửa tham_
-Không chấp nào bằng sân
-Không lưới nào bằng si
-Không sông nào bằng ái". (TMC)
+- _"Không lửa nào bằng lửa tham_
+  Không chấp nào bằng sân
+  Không lưới nào bằng si
+  Không sông nào bằng ái". (TMC)
 
 CHÚ THÍCH:
 Rāgasamo aggi: Mặc dầu bên ngoài không thấy có khói, nhưng sức thiêu đốt của tham phát
@@ -37596,31 +37380,30 @@ cũng được hưởng nhiều sự lợi ích.
 
 DỨT TÍCH: NĂM ÔNG THIỆN NAM NGHE PHÁP.
 
+- _Ông ngồi nhắm mắt ngáy o o..._
+  Mặc Pháp cao siêu, cứ ngủ khò
+  Thuở trước đã từng quen tánh rắn
+  Năm trăm kiếp ngủ ít buồn lo.
 
-_- Ông ngồi nhắm mắt ngáy o o..._
-Mặc Pháp cao siêu, cứ ngủ khò
-Thuở trước đã từng quen tánh rắn
-Năm trăm kiếp ngủ ít buồn lo.
+- _Ông ngồi xủi đất chẳng nghe kinh_
+  Tánh cũ thường quên lủi xuống sình
+  Sợ đói đêm ngày, trùn kiếm đất
+  Ngờ đâu đất vẫn ở quanh mình
 
-_- Ông ngồi xủi đất chẳng nghe kinh_
-Tánh cũ thường quên lủi xuống sình
-Sợ đói đêm ngày, trùn kiếm đất
-Ngờ đâu đất vẫn ở quanh mình
+- _Ông lắc cây kia giữ tánh xưa_
+  Năm trăm kiếp khỉ, nết không chừa
+  Ngồi nghe thuyết Pháp tai dường điếc
+  Tâm đông, người ông cứ đẩy đưa
 
-_- Ông lắc cây kia giữ tánh xưa_
-Năm trăm kiếp khỉ, nết không chừa
-Ngồi nghe thuyết Pháp tai dường điếc
-Tâm đông, người ông cứ đẩy đưa
+- _Ông nầy ngồi cứ ngó trên không_
+  Quen tánh xem trời, đoán kiết hung
+  Tai chẳng buôn nghe Kinh Phật thuyết
+  Tâm còn bận nghĩ chuyện mông lung.
 
-_- Ông nầy ngồi cứ ngó trên không_
-Quen tánh xem trời, đoán kiết hung
-Tai chẳng buôn nghe Kinh Phật thuyết
-Tâm còn bận nghĩ chuyện mông lung.
-
-_- Còn ông kính cẩn ráng nghe kinh_
-Do biết tham thiền, đắc quả linh
-Được Pháp nhắc vài câu Pháp Cú
-Năm trăm kiếp đạo đủ công trình.
+- _Còn ông kính cẩn ráng nghe kinh_
+  Do biết tham thiền, đắc quả linh
+  Được Pháp nhắc vài câu Pháp Cú
+  Năm trăm kiếp đạo đủ công trình.
 
 ### XVIII. 10- TRƯỞNG GIẢ MEṆḌAKA
 
@@ -37881,12 +37664,12 @@ Nói rồi Ngài thuyết lên kệ ngôn rằng:
   Oppuṇāti yathā bhusaṁ
   Attano pana chādeti
   Kalim'va kitavā saṭho".
-  _- "Thấy lỗi người thì đễ_
-Thấy lỗi mình mới khó
-Lỗi người ta phanh tìm
-Như tìm trấu trong gạo
-Còn lỗi mình dấu
-Như thợ săn dấu mình". (TMC)
+  - _"Thấy lỗi người thì đễ_
+    Thấy lỗi mình mới khó
+    Lỗi người ta phanh tìm
+    Như tìm trấu trong gạo
+    Còn lỗi mình dấu
+    Như thợ săn dấu mình". (TMC)
 
 CHÚ THÍCH:
 Sudassaṁ: Một mảy may tội lỗi của người khác cũng dễ thấy, ta có thể thấy được dễ dàng. Trái
@@ -37937,10 +37720,10 @@ Niccaṁ ujjhānasaññino
 āsavā tassa vaḍḍhanti
 ārā so āsavakkhayā".
 
-_- "Ai thấy rõ lỗi người_
-Thường sanh lòng nóng giận
-Lậu hoặc ắt tăng trưởng
-Rất xa, lậu hoặc trừ". (TMC)
+- _"Ai thấy rõ lỗi người_
+  Thường sanh lòng nóng giận
+  Lậu hoặc ắt tăng trưởng
+  Rất xa, lậu hoặc trừ". (TMC)
 
 CHÚ THÍCH
 Ujjhānasaññino: Phải mặc y nội như vầy, phải đấp y vai trái như vầy... "Người nào mà ưa đi tìm
@@ -38001,15 +37784,15 @@ Samaṇo natthi Bāhine
 Saṅkhārā sassatā natthi
 Natthi Buddhānaṁ iñji- taṁ".
 
-_- "Hư không không dấu vết_
-Ngoại đạo không Sa môn
-Chúng sanh thích hư vọng
-Như Lai vọng diệt trừ".
+- _"Hư không không dấu vết_
+  Ngoại đạo không Sa môn
+  Chúng sanh thích hư vọng
+  Như Lai vọng diệt trừ".
 
-_- "Hư không không đấu vết_
-Ngoại đạo không Sa Môn
-Hữu vi không thường trú
-Chư Phật không loạn động". (255)
+- _"Hư không không đấu vết_
+  Ngoại đạo không Sa Môn
+  Hữu vi không thường trú
+  Chư Phật không loạn động". (255)
 
 CHÚ THÍCH:
 Padaṁ: Trên hư không nầy không có vết tích của ai cả, ví như ta không thể làm hiển lộ vật gì
@@ -38075,15 +37858,15 @@ Samena nayatī pare
 Dhammassa gutto medhavī
 Dhammaṭṭho'ti pavuccati".
 
-_- " Người đâu phải pháp trụ_
-Nếu xử sự khinh suất
-Kẻ trí cần phân biệt
-Đâu chánh, đâu tà vậy".
+- _" Người đâu phải pháp trụ_
+  Nếu xử sự khinh suất
+  Kẻ trí cần phân biệt
+  Đâu chánh, đâu tà vậy".
 
-_- "Không khinh suất, đúng pháp_
-Công bằng đất dẫn người
-Kẻ trí hộ trì Pháp
-Thật xứng danh Pháp trụ". (TMC)
+- _"Không khinh suất, đúng pháp_
+  Công bằng đất dẫn người
+  Kẻ trí hộ trì Pháp
+  Thật xứng danh Pháp trụ". (TMC)
 
 CHÚ THÍCH:
 Tena: Do nhưng lẽ trên đây
@@ -38157,10 +37940,10 @@ Yāvatā bahu bhāsati
 Khemì averì abhayo
 Paṇḍito' ti pavuccati".
 
-_- "Không phải vì nói nhiều_
-Mới xúng danh kẻ trí
-An tịnh, không oán sợ
-Mới xứng danh kẻ trí". (TMC)
+- _"Không phải vì nói nhiều_
+  Mới xúng danh kẻ trí
+  An tịnh, không oán sợ
+  Mới xứng danh kẻ trí". (TMC)
 
 CHú THíCH:
 Yāvatā: Kẻ nào vì mình mà nói nhiều ở giữa Tăng chúng, kẻ ấy không phải là bậc hiền trí. Kẻ
@@ -38191,10 +37974,10 @@ ngôn "Tự thuyết (Udāna)" như vầy:
 
 - Adhicetaso appamajjato munino monapathesu sikkhato
   Sokāna bhavanti tādino upasantassa sadā satīmototi
-  _- Với tâm cao thượng, chí cần chuyên_
-Học tập đường tu tịnh, định thiền
-Bậc đắc tâm hình, thường chánh niệm
-Như trên những chổ chứa ưu phiền.
+  - _Với tâm cao thượng, chí cần chuyên_
+    Học tập đường tu tịnh, định thiền
+    Bậc đắc tâm hình, thường chánh niệm
+    Như trên những chổ chứa ưu phiền.
 
 Tương truyền rằng: Trong ngày lễ phát lồ, Đại đức tự mình lớn tiếng kêu gọi người nghe pháp,
 rồi đọc bài kệ trên đây. Chư Thiên đồng thanh tán dương, tiếng vang rền như nổ tung cả địa đại.
@@ -38235,12 +38018,12 @@ Dhammaṁ kāyena passati
 Sa ve dhammadharo hoti
 Yo dhammaṁ nappama- jjati".
 
-_- "Không phải vì nói nhiều_
-Mới xứng danh Pháp Hộ
-Những ai tuy nghe ít
-Nhưng tâm hành chánh Pháp
-Không buông lung chánh pháp
-Mới xứng danh Pháp Hộ". (TMC)
+- _"Không phải vì nói nhiều_
+  Mới xứng danh Pháp Hộ
+  Những ai tuy nghe ít
+  Nhưng tâm hành chánh Pháp
+  Không buông lung chánh pháp
+  Mới xứng danh Pháp Hộ". (TMC)
 
 CHÚ THÍCH:
 Yāvatā: Không phải do nơi học nhớ cho nhiều Phật ngôn và Chú giải... Rồi đem thuyết giảng
@@ -38304,10 +38087,10 @@ Mà được gọi là Trưởng Lão
 Chỉ có tuổi tác cao
 Danh chỉ xứng "Lão ngu"
 
-_- "Ai chân thật đúng pháp_
-Bất hại biết chế phục
-Kẻ trí không cấu uế
-Mới xứng danh Trưởng lão". (TMC)
+- _"Ai chân thật đúng pháp_
+  Bất hại biết chế phục
+  Kẻ trí không cấu uế
+  Mới xứng danh Trưởng lão". (TMC)
 
 CHÚ THÍCH:
 Paripakho: (Chín muồi) là già mùa, đã đến tuổi lão rồi.
@@ -38372,16 +38155,16 @@ Sādhurūpo'ti vuccati
 
 Mūlaghaccaṁ samùhataṁ".
 
-_- "Không phải nói lưu loát_
-Không phải sắc mặt đẹp
-Mà thành người lương thiện
-Nếu con người ganh tỵ
-Xan tham và dối trá". (262)
+- _"Không phải nói lưu loát_
+  Không phải sắc mặt đẹp
+  Mà thành người lương thiện
+  Nếu con người ganh tỵ
+  Xan tham và dối trá". (262)
 
-_- "Chỉ những ai cắt tuyệt_
-Nhổ tận gốc đoạn trừ
-Người trí tận diệt sân
-Mới phải người lương thiện". (TMC)
+- _"Chỉ những ai cắt tuyệt_
+  Nhổ tận gốc đoạn trừ
+  Người trí tận diệt sân
+  Mới phải người lương thiện". (TMC)
 
 CHÚ THÍCH:
 Na vākkaraṇamattena: Không phải bằng lời nói, không phải bằng cái tướng có đầy đủ thiện xảo
@@ -38442,15 +38225,15 @@ Aṇuṃ thūlāni sabbaso
 Samitattā hi pāpānaṁ
 Samaṇo'ti pavuccati".
 
-_- " Không tự chế, nói láo_
-Dầu cạo tóc trọc đầu.
-Ai còn đầy dục ái
-Sao được gọi Sa Môn" (264)
+- _" Không tự chế, nói láo_
+  Dầu cạo tóc trọc đầu.
+  Ai còn đầy dục ái
+  Sao được gọi Sa Môn" (264)
 
-_- " Ai trừ tiệt điều ác_
-Không luận nhỏ hay lớn
-Điều phục được ác pháp
-Xứng danh là Sa môn" (TMC)
+- _" Ai trừ tiệt điều ác_
+  Không luận nhỏ hay lớn
+  Điều phục được ác pháp
+  Xứng danh là Sa môn" (TMC)
 
 CHÚ THÍCH:
 Muṇḍạkena: Chỉ với đầu trọc thôi
@@ -38498,15 +38281,15 @@ Bāhetvā brahmacariyavā
 Sánkhāya loke carati
 Sa ve bhikkhù' ti vuccati".
 
-_- " Chỉ mang bình khất thực_
-Đâu phải là Tỳ khưu
-Phải theo Giới pháp bổn
-Mới xứng danh Tỳ khưu".
+- _" Chỉ mang bình khất thực_
+  Đâu phải là Tỳ khưu
+  Phải theo Giới pháp bổn
+  Mới xứng danh Tỳ khưu".
 
-_- "Ai bỏ cả thiện ác_
-Chuyên tu hành thanh tịnh
-Lấy hiểu biết ở đời
-Mới xứng danh Tỳ khưu". (267) (TMC)
+- _"Ai bỏ cả thiện ác_
+  Chuyên tu hành thanh tịnh
+  Lấy hiểu biết ở đời
+  Mới xứng danh Tỳ khưu". (267) (TMC)
 
 CHÚ THÍCH
 Yāvatā: Chỉ bấy nhiều đó, là chỉ có một việc ôm bát đi khất thực thì không đáng gọi là Tỳ khưu.
@@ -38575,16 +38358,16 @@ Sa munī tena pavuccati
 Yo munāti ubho loke
 Munī tena so munī".
 
-_- "Im lặng nhưng ngu đần_
-Đâu được gọi Tịnh giả
-Như người cầm cán cân
-Kẻ trí chọn điều lành".
+- _"Im lặng nhưng ngu đần_
+  Đâu được gọi Tịnh giả
+  Như người cầm cán cân
+  Kẻ trí chọn điều lành".
 
-_- "Từ bỏ các ác pháp_
-Mới thật là Tịnh giả
-Ai thật hiểu hai đời
-Mới xứng danh tịnh giả"
-(269) (TMC)
+- _"Từ bỏ các ác pháp_
+  Mới thật là Tịnh giả
+  Ai thật hiểu hai đời
+  Mới xứng danh tịnh giả"
+  (269) (TMC)
 
 CHÚ THÍCH:
 Na monena: Tịnh giả là người đã làm im lặng tình dục bằng sự im lặng của Đạo tuệ, bằng sự im
@@ -38653,10 +38436,10 @@ Yena pāṇāni hiṃsati
 Ahiṃsa sabbapāṇānaṁ
 Ariyo' ti pavuccati"
 
-_- "Còn sát hại chúng sanh_
-Đâu được gọi hiền thánh
-Không hại mọi chúng sanh
-Xứng danh bậc Hiền thánh"
+- _"Còn sát hại chúng sanh_
+  Đâu được gọi hiền thánh
+  Không hại mọi chúng sanh
+  Xứng danh bậc Hiền thánh"
 
 CHÚ THÍCH:
 Bằng sự vô não hại. Như trên đã nói người nào não hại chúng sanh thì vì lẽ đó không phải là
@@ -38714,15 +38497,16 @@ Nghe chư Tăng phúc đáp như thế, đức Bổn Sư cảnh cáo rằng:
   Aputhujjanasevitaṁ
   Bhikkhu vissāsam āpādi
   Appatto āsavakkhayaṁ". (272)
-  _- "Chẳng phải giữ giới cấm,_
-Cũng chẳng phải nghe nhiều
-Hoặc chứng được thiền định
-Sống cô độc một mình". (271)
 
-_- "Tự xem đã thọ hưởng_
-Hạnh phúc giải thoát lạc
-Phàm phu chưa hưởng được Tỳ khưu chớ bằng lòng
-Nếu lậu hoặc chưa đoạn điệt". (272)
+  - _"Chẳng phải giữ giới cấm,_
+    Cũng chẳng phải nghe nhiều
+    Hoặc chứng được thiền định
+    Sống cô độc một mình". (271)
+
+- _"Tự xem đã thọ hưởng_
+  Hạnh phúc giải thoát lạc
+  Phàm phu chưa hưởng được Tỳ khưu chớ bằng lòng
+  Nếu lậu hoặc chưa đoạn điệt". (272)
 
 CHÚ THÍCH:
 Sīlabbatamattena: Do nơi sự giữ Tứ Thanh Tịnh giới hoặc thọ trì mười ba chi đầu đà, hoặc là do
@@ -38796,25 +38580,25 @@ Akkhātāro tathāgatā
 Paṇipannā pamokkhanti
 Jhāyino māra bandhamā".
 
-_- "Bát chánh đường thù thắng_
-Bốn đế lý thù thắng
-Ly dục pháp thù thắng
-Giác nhân người thù thắng"
+- _"Bát chánh đường thù thắng_
+  Bốn đế lý thù thắng
+  Ly dục pháp thù thắng
+  Giác nhân người thù thắng"
 
-_- "Chỉ đường nầy độc nhất_
-Khiến tri kiến thanh tịnh
-Nếu ngươi theo đường nầy
-Ma quân sẽ mê loạn" (274)
+- _"Chỉ đường nầy độc nhất_
+  Khiến tri kiến thanh tịnh
+  Nếu ngươi theo đường nầy
+  Ma quân sẽ mê loạn" (274)
 
-_- "Nếu ngươi theo đường- nầy_
-Đau khổ được diệt trừ
-Hiểu được diệt gai chướng
-Ta dạy người con đường" (275)
+- _"Nếu ngươi theo đường- nầy_
+  Đau khổ được diệt trừ
+  Hiểu được diệt gai chướng
+  Ta dạy người con đường" (275)
 
-_- "Người hãy tự nổ lực_
-Như lai chỉ thuyết dạy
-Người thiền định tu đạo
-Thoát khỏi lưới ma quân". (276)
+- _"Người hãy tự nổ lực_
+  Như lai chỉ thuyết dạy
+  Người thiền định tu đạo
+  Thoát khỏi lưới ma quân". (276)
 
 CHÚ THÍCH:
 Maggānatthaṅgiko: Dầu kể tất cả những con đường, nhất là các con đường của sau mươi hai
@@ -38900,10 +38684,10 @@ Rồi Ngài thuyết lên kệ ngôn rằng:
   Yadāpaññāya passati
   Atha nibbindati dukke
   Esa maggo visuddhiyā"
-  _- "Các hành là vô thường_
-Nhờ trí quán xét vậy
-Sẽ nhàm chán thống khổ
-Chính là đạo thanh tịnh" (277)
+  - _"Các hành là vô thường_
+    Nhờ trí quán xét vậy
+    Sẽ nhàm chán thống khổ
+    Chính là đạo thanh tịnh" (277)
 
 CHÚ THÍCH:
 Sabbe saṅkhārā: Trong các cõi nhất là cõi Dục, các uẩn sanh lên tại đâu thì diệt tại nơi đó, nên
@@ -38937,10 +38721,10 @@ khưu, do quán xét Khổ não tướng, nên Ngài phán dạy rằng:
   Yadā paññaya passati
   Atha nibbindati dukke
   Esa maggo visuddhiỳa"
-"Chư hành là khổ não
-Nhờ trí quán xét vậy
-Sẽ nhàm chán thống khổ
-Chính là đạo thanh tịnh" (279)
+  "Chư hành là khổ não
+  Nhờ trí quán xét vậy
+  Sẽ nhàm chán thống khổ
+  Chính là đạo thanh tịnh" (279)
 
 GIẢI NGHĨA:
 Dukkhā: nghĩa là khổ não, hằng bị áp bức. Những câu sau có ý nghĩa như đã giải ở kệ ngôn
@@ -39234,10 +39018,10 @@ Sau khi thuật lại tiền nghiệp của ngạ quỷ heo, đức Thế Tôn d
   kāyena ca akusalaṁnakayirā
   Ete tayo kammapathe visodhaye
   ārādhaye maggaṁ isippaveditaṁ"
-"Ý điều lời thận trọng
-Thân không làm điều ác
-Ba nghiệp nầy thanh tịnh
-Chứng đạo Thánh nhân dạy". (TMC)
+  "Ý điều lời thận trọng
+  Thân không làm điều ác
+  Ba nghiệp nầy thanh tịnh
+  Chứng đạo Thánh nhân dạy". (TMC)
 
 CHÚ THÍCH:
 Vācānurakkhī: Giữ gìn lời nói, đừng để phạm giới vọng ngữ, lưỡng thiệt, ác ngữ, ỷ ngữ.
@@ -39408,10 +39192,10 @@ Chư Tỳ khưu đem việc nầy ra thảo lậu tại Giảng đường. đứ
   Mukhañca Parisassati
   Cramāma na pārema
   Pūrateva mahodathati"
-" Quai hàm ta đã mõi
-Miệng mồn ta đã khô
-Ta không tát vơi nước
-Biển lớn lại đầy tràn"
+  " Quai hàm ta đã mõi
+  Miệng mồn ta đã khô
+  Ta không tát vơi nước
+  Biển lớn lại đầy tràn"
 
 Sau khi thuật xong Bổn sanh con quạ. Đức Thế Tôn gọi chư Tỳ khưu già đến bảo rằng:
 
@@ -39428,15 +39212,15 @@ Aịumatto' pi narassa nārisù
 Paṭibaddhamano va tāva so
 Vaccho khīrapako'va mātari"
 
-_- " Đốn rừng không đốn cây (dục vọng)_
-Từ rừng sinh sợ hãi
-Đốn rừng và củi gỗ (dục)
-Tỳ kheo hãy thoát ly" (283)
+- _" Đốn rừng không đốn cây (dục vọng)_
+  Từ rừng sinh sợ hãi
+  Đốn rừng và củi gỗ (dục)
+  Tỳ kheo hãy thoát ly" (283)
 
-_- " Khi nào chưa dứt sạch_
-Dây tình giữa trai gái
-Tâm ý vẫn buộc ràng
-Như bò con vú mẹ". (284)
+- _" Khi nào chưa dứt sạch_
+  Dây tình giữa trai gái
+  Tâm ý vẫn buộc ràng
+  Như bò con vú mẹ". (284)
 
 CHÚ THÍCH:
 nā rukhaṁ: Nghe đức Bổn Sư bảo: Hãy đốn rừng. Những vị mới tu ngỡ rằng: Đức Bổn Sư bảo ta
@@ -39647,10 +39431,10 @@ sống một đêm thôi. Bậc Tịnh giả đã tuyên bố như thế)
   Idha hemantagimhisu
   Iti bālo vicinteti
   Antarāyaṁ na bujjhati"
-" Mùa mưa ta ở đây Đông,
-Hạ cũng ở đây
-Người ngu tâm tưởng vậy
-Không tự giác hiểm nguy" (286)
+  " Mùa mưa ta ở đây Đông,
+  Hạ cũng ở đây
+  Người ngu tâm tưởng vậy
+  Không tự giác hiểm nguy" (286)
 
 CHÚ THÍCH:
 Idha vassaṁ: Trong chỗ nầy ta sẽ kiết hạ an cư trong bốn tháng, vừa làm việc nầy việc nọ.
@@ -39667,7 +39451,7 @@ Thương nhân theo tiển chân đức Phật, khi quay trở lại, ông kêu:
 
 - Tôi nhức đầu quá. Rồi ông lên giường nằm và mệnh chung, tái sanh về cõi Tusita.
   Dứt Tích: ĐẠI PHU THƯƠNG
-  
+
 Điều cần hãy gấp rút làm đi
 Chớ để dây dưa trễ hạn kỳ
 Ai chắc ngày mai ta vẫn sống
@@ -39699,10 +39483,10 @@ Byāsattamanasaṁ naraṁ
 Suttaṁ gāmaṁ mahogho'va
 Maccu ādāya gacchati"
 
-_- "Tâm còn bị đắm say_
-Con cái và súc vật
-Bị tử thần bắt đi
-Như nước trôi làng ngủ" (TMC)
+- _"Tâm còn bị đắm say_
+  Con cái và súc vật
+  Bị tử thần bắt đi
+  Như nước trôi làng ngủ" (TMC)
 
 CHÚ THÍCH:
 Taṁ puttapasusammattaṁ: Người nào có con cái và súc vật, đầy đủ các hạnh phúc như sức
@@ -39748,15 +39532,15 @@ Paṇḍito sīlasaṁvuto
 Nibbānagamanaṁ maggaṁ
 Kippaṁ'eva visodhaye"
 
-_- "Một khi tử thần đến_
-Không có con che chở"
-Không cha không bà con
-Không thân thích che chở" (288)
+- _"Một khi tử thần đến_
+  Không có con che chở"
+  Không cha không bà con
+  Không thân thích che chở" (288)
 
-_- "Biết rõ lý lẽ trên_
-Kẻ trí siêng trì giới
-Thấu triệt đường Niết Bàn
-Sớm chứng thanh tịnh đạo" (289)
+- _"Biết rõ lý lẽ trên_
+  Kẻ trí siêng trì giới
+  Thấu triệt đường Niết Bàn
+  Sớm chứng thanh tịnh đạo" (289)
 
 CHÚ THÍCH:
 Tāṇāya: Để che chở giúp đở cho mình.
@@ -39989,8 +39773,8 @@ Passe ce vipulaṁ sukhaṁ
 Caje mattā sukhaṁ dhīro
 Sampassaṁ vipulaṁ suk- kaṁ"
 
-_- Nếu từ bỏ hạnh phúc nhỏ mà có thể thành đạt hạnh phúc lớn, người thiện_
-trí hãy từ bỏ hạnh phúc nhỏ để mưu cầu hạnh phúc lớn.
+- _Nếu từ bỏ hạnh phúc nhỏ mà có thể thành đạt hạnh phúc lớn, người thiện_
+  trí hãy từ bỏ hạnh phúc nhỏ để mưu cầu hạnh phúc lớn.
 
 CHÚ THÍCH:
 Mattāsukhapariccāgā: là từ bỏ hạnh phúc nhỏ mà đức Thế Tôn gọi là Mattāsukhaṁ, thành đạt
@@ -40003,7 +39787,6 @@ hạnh phúc chân chánh.
 
 Dứt thời Pháp rất nhiều người chứng đạt Quả Dự Lưu
 Dứt CHUYỆN HẠNH NGHIỆP CỦA ĐỨC PHẬT
-
 
 ### XXI. 2- THIẾU NỮ ĂN TRỨNG GÀ
 
@@ -40034,8 +39817,8 @@ cột oan trái.
   Attano sukhaṁ icchati
   Verasaṁsaggasaṁveṭṭho
   Verà so na parimuccati"
-  _- Người gây đau thương cho kẻ khác để mưu cầu hạnh phúc cho mình không_
-thoát khỏi hận thù. Vì sẽ vương vấn vào nguồn máy phức tập của hận thù.
+  - _Người gây đau thương cho kẻ khác để mưu cầu hạnh phúc cho mình không_
+    thoát khỏi hận thù. Vì sẽ vương vấn vào nguồn máy phức tập của hận thù.
 
 CHÚ THÍCH:
 Paradukkhūpadhānena: Gây đau khổ cho kẻ khác.
@@ -40107,7 +39890,6 @@ chúng vậy
 
 Dứt Tích NHÓM Tỳ khưu XỨ BHADDIYA
 
-
 ### XXI. 4- TRƯỞNG LÃO LAKUṆṬAKABHADDIYA
 
 **(PC. 294-295)**
@@ -40133,12 +39915,12 @@ Rajano dve ca setthiye
 Veyyagghapañcanaṁ hantvā
 Anīgho yati brāhmaṇo".
 
-_- "Đã giết mẹ (ái dục), cha (ngã mạn) và hai vua hiếu chiến (thường kiến và_
-đoạn kiến) và đã tiêu diệt một quốc gia (Lục căn và lục trần) cùng với vị Đại thần phụ trách
-quốc khố (ái luyến). Vị A la hán ra đi không sầu muộn". (294)
+- _"Đã giết mẹ (ái dục), cha (ngã mạn) và hai vua hiếu chiến (thường kiến và_
+  đoạn kiến) và đã tiêu diệt một quốc gia (Lục căn và lục trần) cùng với vị Đại thần phụ trách
+  quốc khố (ái luyến). Vị A la hán ra đi không sầu muộn". (294)
 
-_- "Đã giết mẹ, cha và hai ông vua của giai cấp Bà la môn và tiêu diệt con_
-đường nguy hiểm (chướng ngại), vị A la hán ra đi không sầu muộn".
+- _"Đã giết mẹ, cha và hai ông vua của giai cấp Bà la môn và tiêu diệt con_
+  đường nguy hiểm (chướng ngại), vị A la hán ra đi không sầu muộn".
 
 CHÚ THÍCH
 Sānucaraṁ là cùng với vị quan Đại thần phụ trách quốc khổ, người thu thuế.
@@ -40173,7 +39955,6 @@ muộn".
 
 Những câu như trên.
 DỨT TÍCH: TRƯỞNG LÃO LAKUṇṭAKABHADDIYA.
-
 
 ### XXI. 5- CON TRAI ÔNG DĀRUSĀKAṬIKA
 
@@ -40251,23 +40032,23 @@ Sadā Gotamasāvakā
 Yesaṁ divā ca ratto ca
 Bhāvanāya rato mano...".
 
-_- " Chư đệ tử của Đấng Cồ Đàm ngày đêm luôn giác tỉnh, hằng suy niệm về_
-Phật". (296)
+- _" Chư đệ tử của Đấng Cồ Đàm ngày đêm luôn giác tỉnh, hằng suy niệm về_
+  Phật". (296)
 
-_- "Chư đề tử của Đấng Cồ Đàm, ngày đêm luôn giác tỉnh, hằng suy niệm về_
-Giáo pháp". (297)
+- _"Chư đề tử của Đấng Cồ Đàm, ngày đêm luôn giác tỉnh, hằng suy niệm về_
+  Giáo pháp". (297)
 
-_- "Chư đề tử của Đấng Cồ Đàm, ngày đêm luôn giác tỉnh, hằng suy niệm về_
-Tăng gìa". 298)
+- _"Chư đề tử của Đấng Cồ Đàm, ngày đêm luôn giác tỉnh, hằng suy niệm về_
+  Tăng gìa". 298)
 
-_- "Chư đề tử của Đấng Cồ Đàm, ngày đêm luôn giác tỉnh, hằng suy niệm về_
-thân". (299)
+- _"Chư đề tử của Đấng Cồ Đàm, ngày đêm luôn giác tỉnh, hằng suy niệm về_
+  thân". (299)
 
-_- "Chư đề tử của Đấng Cồ Đàm, ngày đêm luôn giác tỉnh, hằng suy niệm về_
-đức vô hại". (300)
+- _"Chư đề tử của Đấng Cồ Đàm, ngày đêm luôn giác tỉnh, hằng suy niệm về_
+  đức vô hại". (300)
 
-_- "Chư đề tử của Đấng Cồ Đàm, ngày đêm luôn giác tỉnh, hằng suy niệm,_
-thoả thích trong thiền định. (301)
+- _"Chư đề tử của Đấng Cồ Đàm, ngày đêm luôn giác tỉnh, hằng suy niệm,_
+  thoả thích trong thiền định. (301)
 
 CHÚ THÍCH
 Câu Suppabuddhaṁ pabụhanti là ngày đêm giác tỉnh, hằng suy niệm về phật lúc ngủ hay lúc
@@ -40297,7 +40078,6 @@ Dứt thời pháp thoại ấy, đứa bé cùng cha mẹ chứng quả dự l�
 A la hán. Pháp thoại kết quả lợi ích cho hội chúng.
 
 DỨT TÍCH:CON TRAI ÔNG DārUDAKaṭIKA
-
 
 ### XXI. 6- TỲ KHƯU VAJJĪPUTTA
 
@@ -40362,7 +40142,6 @@ quả A la hán.
 
 DỨT TÍCH Tỳ khưu VAJJŪPUTTA.
 
-
 ### XXI. 7- TRƯỞNG GIẢ CITTA
 
 **(PC. 303)**
@@ -40386,8 +40165,8 @@ Yasogbhogasamappito
 Yaṁ yaṁ padesaṁ bhajati
 Tattha yaṁ tatth eva pū- jito".
 
-_- Người có niềm tin và giới hạnh, có thiên tài thành đạt địa vị và tài sản (của_
-bậc Thánh giả) người ấy ở đâu cũng được quí trọng bất cứ trên lãnh thổ nào.
+- _Người có niềm tin và giới hạnh, có thiên tài thành đạt địa vị và tài sản (của_
+  bậc Thánh giả) người ấy ở đâu cũng được quí trọng bất cứ trên lãnh thổ nào.
 
 CHÚ THÍCH:
 Saddho là người có niềm tin, thế gian và siêu thế.
@@ -40400,7 +40179,6 @@ loại gia sản là: Tài sản phàm nhân và Thất Thánh sản.
 Yaṁ taṁ... Là nam tử ấy đi bất cứ nơi nào cũng được ái mộ, trọng đãi như vậy.
 Dứt pháp thoại, nhiều người chứng đạt Thánh quả Dự lưu...
 Dứt tích: TRƯỞNG GIẢ C ITTA
-
 
 ### XXI. 8- NÀNG CŪḶASUBHADDĀ
 
@@ -40453,8 +40231,8 @@ Bà hỏi dâu rằng:
 
 - Các vị sa môn của con ra sao? Phẩm hạnh trang nghiêm như thế nào? Nghe con thường tán
   dương đạo mạo.
-Khiến lòng mẹ nôn nao
-Con hãy thuật lại mau.
+  Khiến lòng mẹ nôn nao
+  Con hãy thuật lại mau.
 
 Muốn mẹ chồng phát tâm tín ngưỡng, nàng tán thán công hạnh của đức Phật và chư Thánh
 Thinh văn như sau:
@@ -40502,8 +40280,8 @@ mai để ông cúng dường. Bậc Đạo Sư trả lời rằng:
   Asante'ttha na díanti
   Ratti khitta yathā sarā".
   - "Người thiện nổi bậc từ đằng xa tựa như là Hi Mã Lạp Sơn, lộ rõ trước mọi
-người. Người hạ liệt tội lỗi, dù ở kề cận cũng không ai trông thấy tựa như mũi tên bay trong
-đêm tối".
+    người. Người hạ liệt tội lỗi, dù ở kề cận cũng không ai trông thấy tựa như mũi tên bay trong
+    đêm tối".
 
 CHÚ THÍCH
 Santo... Bậc chân nhân như đức Phật... Vị các ngài đã tận diệt gốc rễ của ái dục.. Nhưng ở đây
@@ -40538,8 +40316,6 @@ với 84.000 chúng sanh chứng ngộ pháp.
 - Ngươi hãy trú tại đây.
   Và Ngài ngự về kinh thành Sāvatthī. Kể từ đó kinh thành ấy tín thành Giáo pháp.
   DỨT TÍCH: NÀNG CūḷSUBHAddā
-
-
 
 ### XXI. 9- TRƯỞNG LÃO EKAVIHĀRĪ
 
@@ -40623,9 +40399,9 @@ Yo c'āpi katvā na karomīti c'āha
 Ubho pi te pecca samā bhavanti
 Nihīnakammā manujā paratha"
 
-_- Người nói điều không thật vào khổ cảnh, người đã làm rồi nói "tôi không có_
-làm cũng vậy. Sau khi chết cả hai đều bằng nhau, người có hành động ti tiện trong thế giới
-khác.
+- _Người nói điều không thật vào khổ cảnh, người đã làm rồi nói "tôi không có_
+  làm cũng vậy. Sau khi chết cả hai đều bằng nhau, người có hành động ti tiện trong thế giới
+  khác.
 
 CHÚ THÍCH
 Trong những câu văn ấy, câu Abhūtavādì: Không thấy lỗi người khác nhưng nói thấy (nói dối).
@@ -40696,7 +40472,6 @@ nghiệp ở địa ngục sanh làm ngạ quỉ bị thiêu đốt do quả dư
 Dứt thời pháp thoại rất nhiều người chứng quả Dự Lưu...
 DỨT TÍCH: CHUYỆN KHỔ NHÂN
 
-
 ### XXII. 2- CHUYỆN CHƯ TỲ KHƯU TRÚ GẦN SÔNG VAGGUMUDA
 
 **(PC. 308)**
@@ -40728,7 +40503,6 @@ cúng với lòng tin, bị thiêu đốt trong địa ngục cả nhiều trăm
 
 Dứt thời pháp rất nhiều người chứng quả Dự Lưu...
 DỨT TÍCH CHƯ Tỳ khưu TRÚ GẦN SÔNG VAGGUMudā
-
 
 ### XXII. 3- THANH NIÊN KHEMAKA
 
@@ -40785,7 +40559,6 @@ lá cờ màu vàng trên ngôi Bảo tháp của Đấng Thập Lực, phát ng
 
 Đây là tiền nghiệp của y. Vì vậy, các nữ nhân vừa thấy y đã sanh khởi và trao thân cho y.
 DỨT TÍCH THANH NIÊN KHEMAKA
-
 
 ### XXII. 4- TỲ KHƯU ĐA NGÔN
 
@@ -40881,7 +40654,6 @@ Dứt thời pháp cả hai vợi chồng chứng quả Dự Lưu... Tất cả 
 Chánh Pháp.
 
 DỨT TÍCH: NỮ NHÂN HỜN GHEN
-
 
 ### XXII. 6- CHUYỆN TĂNG KHÁCH
 
@@ -41032,7 +40804,6 @@ Bài kệ thứ hai, Bậc Trí hãy hiểu nghịch lý như đã nói trên.
 Dứt thời Pháp, cả những người ấy đều quy y Tam Bảo và chứng quả Dự Lưu.
 DỨT CHUYỆN MÔN ĐỒ NGOẠI GIÁO
 
-
 ## XXIII. PHẨM VOI
 
 ### XXIII. 1- CHUYỆN BẬC ĐẠO SƯ
@@ -41122,7 +40893,6 @@ quí hơn tất cả những loài thuần chủng ấy.
 
 Dứt thời Pháp, những người đứng lăng mạ Ngài ở ngã ba đường chứng quả Dự Lưu.
 
-
 #### CHUYỆN MỘT TĂNG SĨ
 
 **(PC. 323)**
@@ -41161,7 +40931,6 @@ khắc phục tự ngã tối thượng.
 
 Dứt thời pháp, nhiều ngươi chứng quả Dự Lưu...
 DỨT TÍCH: MỘT TĂNG SĨ
-
 
 ### XXIII. 2- BÀ LA MÔN LÃO NIÊN
 
@@ -41294,8 +41063,6 @@ tình phụ tử nổi lên dào dạt và thấm nhập lạc pháp, rồi Ngà
 Dứt thời Pháp Bà la môn cùng các con chứng quả Dự Lưu.
 DỨT TÍCH: BÀ LA MÔN LÃO NIÊN
 
-
-
 ### XXIII. 3- QUỐC VƯƠNG PASENADIKOSALA
 
 **(PC. 325)**
@@ -41388,42 +41155,42 @@ Sa di, bẻ vô mắt trợn ngược, sôi bọt miếng, té sấp dưới đ�
 nầy Sa di", rồi ôm con vào lòng. Tất cả mọi người chung quanh tụ lại cúng vái khẩn cầu". Bà tín nữ
 than khóc bằng kệ ngôn rằng:
 
-_- "Người thọ trì Bát quan_
-Trong một tháng tám ngày
-14, 15 và mùng tám
-Giữ tròn ngày đưa rước
-Thực hành phạm hạnh ấy
-Dạ xoa không uy hiếp
-Tôi tín thọ lời nầy
-Từ những bậc La Hán
-Tại sao ngày hôm nay
-Tôi thấy các Dạ xoa
-Bắt ta đi Sānu".
+- _"Người thọ trì Bát quan_
+  Trong một tháng tám ngày
+  14, 15 và mùng tám
+  Giữ tròn ngày đưa rước
+  Thực hành phạm hạnh ấy
+  Dạ xoa không uy hiếp
+  Tôi tín thọ lời nầy
+  Từ những bậc La Hán
+  Tại sao ngày hôm nay
+  Tôi thấy các Dạ xoa
+  Bắt ta đi Sānu".
 
 Nữ Dạ xoa nghe bài nói kệ như thế, liền đáp rằng:
 
-_- "Dạ xoa không uy hiếp_
-Những người thọ rất quen
-Trong một tháng tám ngày
-14, 15 và mùng tám
-Giữ tròn ngày nguyện xả
-Thực hành phạm hạnh ấy
-Đó là lời giảng dạy
-Của các Bậc La Hán
-Chân chánh và thuần mỹ".
+- _"Dạ xoa không uy hiếp_
+  Những người thọ rất quen
+  Trong một tháng tám ngày
+  14, 15 và mùng tám
+  Giữ tròn ngày nguyện xả
+  Thực hành phạm hạnh ấy
+  Đó là lời giảng dạy
+  Của các Bậc La Hán
+  Chân chánh và thuần mỹ".
 
 Rồi bà nói tiếp rằng:
 
-_- "Xin bà hãy thuật lại_
-Những lời của Dạ Xoa
-Cho Sa di Sānu
-Tỉnh ngộ và chánh niệm
-Ông không nên tạo ác nghiệp
-Chỗ thanh vắng hay kín đáo
-Một khi ông sắp làm
-Đây đang làm một tội nào
-Dù ông bay trốn đâu
-Cũng không thoát khỏi khổ đau".
+- _"Xin bà hãy thuật lại_
+  Những lời của Dạ Xoa
+  Cho Sa di Sānu
+  Tỉnh ngộ và chánh niệm
+  Ông không nên tạo ác nghiệp
+  Chỗ thanh vắng hay kín đáo
+  Một khi ông sắp làm
+  Đây đang làm một tội nào
+  Dù ông bay trốn đâu
+  Cũng không thoát khỏi khổ đau".
 
 Nữ Dạ Xoa nói: "Một khi đã tạo các ác nghiệp, dù có cánh bay như các loài chim cũng không
 tránh khỏi". Rồi bà xuất ra.
@@ -41433,13 +41200,13 @@ mình đã bị phi nhơn nhập vào, ông ngạc nhiên hỏi mẹ rằng:
 
 - Khi nãy con ngồi trên ghế, mẹ ngồi nấu cơm gần đây, sao giờ con lại nằm dưới đất.
   Ông lại hỏi mẹ bằng kệ ngôn rằng:
-  _- "Mẹ ơi người ta khóc_
-Những người chết hay sống?
-Ở đây không thấy nói
-Mẹ ơi! Mẹ có thấy
-Con vẫn cón sống mà
-Mà sao lại khóc than
-Tại sao vậy hở mẹ".
+  - _"Mẹ ơi người ta khóc_
+    Những người chết hay sống?
+    Ở đây không thấy nói
+    Mẹ ơi! Mẹ có thấy
+    Con vẫn cón sống mà
+    Mà sao lại khóc than
+    Tại sao vậy hở mẹ".
 
 Bà liền nói về các tai hại của đời sống thế tục, cùng ác quả của người đã từng xuất gia, từ bỏ
 lạc thú ở đời và bây giờ định hoàn tục. Bà đáp rằng:
@@ -41466,14 +41233,14 @@ Vào trói buộc vực thẳm".
   quí của tôi, xuất gia trong đạo Pháp ví như người đem vật quí trong nhà đang cháy ra ngoài, mà hôm
   nay lại trở vào căn nhà cháy. Xin quí vị giúp tôi khuyên ngăn Sa di Sānu việc nầy. Rồi Bà nói lên kệ
   ngôn rằng:
-  _- "Xin quí vị giúp tôi_
-Sách tấn cho Sa di
-Tôi nhờ ai giải quyết
-Nỗi khổ tâm khó xử
-Sa di như vật báu
-Được đem từ nhà cháy
-Bây giờ trở lại vào
-Căn nhà đang bị cháy".
+  - _"Xin quí vị giúp tôi_
+    Sách tấn cho Sa di
+    Tôi nhờ ai giải quyết
+    Nỗi khổ tâm khó xử
+    Sa di như vật báu
+    Được đem từ nhà cháy
+    Bây giờ trở lại vào
+    Căn nhà đang bị cháy".
 
 Sa di Sānu nghe vậy chán nản "không hoàn tục nữa". Và khi đúng tuổi thọ Tỳ khưu. Mẹ ông rất
 hoan hỷ lo lễ cho ông xuất gia Tỳ khưu.
@@ -41502,7 +41269,6 @@ Dứt thời pháp vô số chư thiên và Sānu đặt thành Thánh nhân. T�
 thông suốt Tam Tạng trở thành vị Pháp Sư lỗi lạc và sống đến 120 tuổi mới Níp Bàn.
 
 DỨT TÍCH: SA DI Sānu
-
 
 ### XXIII. 5- THỚT TƯỢNG PĀVERAKA
 
@@ -41540,7 +41306,6 @@ ngươi cũng hãy nhiệt tâm nổ lực rút khỏi đầm lầy phiền não
 
 Dứt thời Pháp chư Tỳ khưu ấy chứng quả La Hán.
 DỨT TÍCH: TƯỢNG PāvERAKA
-
 
 ### XXIII. 6- CHUYỆN CHƯ TỲ KHƯU
 
@@ -41647,7 +41412,6 @@ Vì thế, Bậc Đạo Sư giảng giải:
 - Nếu các ngươi không gặp được thiện hữu, chỉ nên sống một mình.
   Dứt thời Pháp, cả 500 vị Tỳ khưu ấy chứng đạt quả A la Hán.
   DỨT TÍCH: CHƯ Tỳ khưu
-  
 
 ### XXIII. 7- CHUYỆN MA VƯƠNG
 
@@ -41677,19 +41441,19 @@ Lúc đó Ngài phán hỏi Ma Vương:
 
 Rồi Ma Vương nói lên bài kệ rằng:
 
-_- "Núi hãy trở thành vàng_
-Dù tăng gấp hai lần
-Cũng chưa thỏa mãn người
-Ai hiểu được như vậy
-Hãy thực hành chân chánh
-Người đã sinh tồn ra
-Thấy khổ đau của Dục
-Tại sao người ấy lại
-Chìm đắm trong Dục lạc
-Ai hiểu rõ sinh tồn
-Là trói buộc thế gian
-Sao không chịu thực hành
-Để thoát khỏi sinh tồn".
+- _"Núi hãy trở thành vàng_
+  Dù tăng gấp hai lần
+  Cũng chưa thỏa mãn người
+  Ai hiểu được như vậy
+  Hãy thực hành chân chánh
+  Người đã sinh tồn ra
+  Thấy khổ đau của Dục
+  Tại sao người ấy lại
+  Chìm đắm trong Dục lạc
+  Ai hiểu rõ sinh tồn
+  Là trói buộc thế gian
+  Sao không chịu thực hành
+  Để thoát khỏi sinh tồn".
 
 Đức Thế Tôn phán rằng:
 
@@ -41931,27 +41695,27 @@ Usīrattho'va bīraṅaṁ
 Māvo nalaṁ va soto'va
 Māro bhañfi punappunaṁ".
 
-_- "Người sống đời phóng dật_
-Ái tăng như dây leo
-Nhảy đời này đời khác
-Như vượn tham trái rừng". (334)
+- _"Người sống đời phóng dật_
+  Ái tăng như dây leo
+  Nhảy đời này đời khác
+  Như vượn tham trái rừng". (334)
 
-_- "Ai sống trong đời này_
-Bị ái dục ràng buộc
-Sầu khổ sẽ tăng trưởng
-Như cỏ bị ngập mưa". (335)
+- _"Ai sống trong đời này_
+  Bị ái dục ràng buộc
+  Sầu khổ sẽ tăng trưởng
+  Như cỏ bị ngập mưa". (335)
 
-_- "Ai sống trong đời nầy_
-Ái dục được hàng phục
-Sầu rời khỏi người ấy
-Như giọt nước lá sen". (336)
+- _"Ai sống trong đời nầy_
+  Ái dục được hàng phục
+  Sầu rời khỏi người ấy
+  Như giọt nước lá sen". (336)
 
-_- "Đây điều lành ta dạy_
-Các ngươi tụ họp đây
-Hãy nhỏ tận gốc ái
-Như nhỏ gốc cỏ bi
-Chớ để ma phá hoại
-Như giòng nước cỏ lau". (HT. TMC)
+- _"Đây điều lành ta dạy_
+  Các ngươi tụ họp đây
+  Hãy nhỏ tận gốc ái
+  Như nhỏ gốc cỏ bi
+  Chớ để ma phá hoại
+  Như giòng nước cỏ lau". (HT. TMC)
 
 CHÚ THÍCH
 Pamattacārino nghĩa là: Thiền không phát triển Minh sát, Đạo quả cũng không phát triển với
@@ -42004,7 +41768,6 @@ niên xin xuất gia sống đời Phạm hạnh trong Giáo Pháp của đức 
 Bậc Đạo Sư.
 
 DỨT TÍCH: CON CÁ KAPILA
-
 
 ### XXIV. 2- CHUYỆN CON HEO NÁI
 
@@ -42061,44 +41824,44 @@ Parisappanti saso' va badhito
 Tasmā tasiṇaṁ vinodaye
 Bhikkhu ākaṇkhì virāgam attano".
 
-_- "Như cây bị chặt đốn_
-Rễ chưa hại vẫn bền
-Sẽ được mọc lên lại
-Ái tuỳ miên chưa nhổ
-Khổ nầy vẫn sanh hoài". (338)
+- _"Như cây bị chặt đốn_
+  Rễ chưa hại vẫn bền
+  Sẽ được mọc lên lại
+  Ái tuỳ miên chưa nhổ
+  Khổ nầy vẫn sanh hoài". (338)
 
-_- "Ba mươi sáu dòng ái_
-Còn đẩy mạnh người nầy
-Đến cảnh giới ái lạc
-Các tư tưởng ái dục
-Như giòng nước cuốn trôi
-Người có ác tà kiến".
-(339)
+- _"Ba mươi sáu dòng ái_
+  Còn đẩy mạnh người nầy
+  Đến cảnh giới ái lạc
+  Các tư tưởng ái dục
+  Như giòng nước cuốn trôi
+  Người có ác tà kiến".
+  (339)
 
-_- "Dòng ái dục chảy khắp_
-Như dây leo mọc tràn
-Thấy dây leo vừa sanh
-Với tuệ leo mọc tràn".
-(340)
+- _"Dòng ái dục chảy khắp_
+  Như dây leo mọc tràn
+  Thấy dây leo vừa sanh
+  Với tuệ leo mọc tràn".
+  (340)
 
-_- "Người đời nhớ ái dục_
-Ưa thích các hỷ lạc
-Tuy mong cầu hạnh phúc
-Chúng vẫn phải sanh già". (341)
+- _"Người đời nhớ ái dục_
+  Ưa thích các hỷ lạc
+  Tuy mong cầu hạnh phúc
+  Chúng vẫn phải sanh già". (341)
 
-_- "Người bị ái buộc ràng_
-Vùng vẫy và lăn lóc
-Như thỏ bị sa lưới
-Bị kiết sử trói buộc
-Chúng sanh chịu khổ đau
-Tiếp tục và lâu dài". (342)
+- _"Người bị ái buộc ràng_
+  Vùng vẫy và lăn lóc
+  Như thỏ bị sa lưới
+  Bị kiết sử trói buộc
+  Chúng sanh chịu khổ đau
+  Tiếp tục và lâu dài". (342)
 
-_- " Người bị ái buộc ràng_
-Vùng vẫy và lăn lóc
-Như thỏ bị sa lưới
-Do vậy, vị Tỳ kheo
-Nên nhiếp phúc ái dục
-Tự ly tham vô cầu". (HT. TMC.)
+- _" Người bị ái buộc ràng_
+  Vùng vẫy và lăn lóc
+  Như thỏ bị sa lưới
+  Do vậy, vị Tỳ kheo
+  Nên nhiếp phúc ái dục
+  Tự ly tham vô cầu". (HT. TMC.)
 
 CHÚ THÍCH:
 Câu Mūle... Punappunaṁ: nghĩa là khi cả năm rễ cây, bốn rễ đâm ra bốn hướng, một rễ chính
@@ -42201,7 +41964,6 @@ rằng:
 Trưởng lão ni sau khi làm đại chúng động tâm kinh cảm rồi, bà liền Vô Dư Níp Bàn.
 DỨT TÍCH: CON HEO NÁI TƠ
 
-
 ### XXIV. 3- CHUYỆN VỊ TỲ KHƯU HOÀN TỤC
 
 **(PC. 345-346)**
@@ -42245,12 +42007,12 @@ Tiếng thán phục y lan rộng ra, những người hành quyết thấy vậ
   Vanamuotto vanam eva dhāvati
   Taṁ puggalaṁ etha passatha
   Mutto banuhanam eva dhāvati"
-  _- "Người lìa được xuất gia_
-Sống khổ hạnh rừng núi
-Thoát rừng chạy theo rừng
-Nên xem người như vậy
-Được thoát khỏi buộc ràng
-Lại chạy theo ràng buộc". (HT. TMC)
+  - _"Người lìa được xuất gia_
+    Sống khổ hạnh rừng núi
+    Thoát rừng chạy theo rừng
+    Nên xem người như vậy
+    Được thoát khỏi buộc ràng
+    Lại chạy theo ràng buộc". (HT. TMC)
 
 CHÚ THÍCH
 Ý nghĩa của kệ ngôn nầy là: Người nào có sự quyến luyến như đám cây trong rừng mà mình đã
@@ -42267,8 +42029,6 @@ Tôn, xin được xuất gia lại. Đức Thế Tôn nhận lời, và sau đ�
 xong chứng đắc quả A la Hán giữa hội chúng có cả Đức vua nơi ấy.
 
 DỨT TÍCH: VỊ Tỳ khưu HOÀN TỤC
-
-
 
 ### XXIV. 4- CHUYỆN KHÁM ĐƯỜNG
 
@@ -42338,17 +42098,17 @@ Ohārinaṁ sithilaṁ duppamuñcaṁ
 Etaṁ pi chetvāna vajanti dhīrā
 Anapekkhino kāmasukhaṁ pahāya".
 
-_- "Sắt, cây, gai trói buộc_
-Người trí xem chưa bền
-Tham châu báu trang sức
-Tham vọng vợ và con". (345)
+- _"Sắt, cây, gai trói buộc_
+  Người trí xem chưa bền
+  Tham châu báu trang sức
+  Tham vọng vợ và con". (345)
 
-_- "Người có trí nói rằng:_
-Trói buộc nầy thật bền
-Trì kéo xuống, lỏng lẻo
-Nhưng thật sự khó thoát
-Người trí cắt trừ nó
-Bỏ dục lạc, không màng". (TMC)
+- _"Người có trí nói rằng:_
+  Trói buộc nầy thật bền
+  Trì kéo xuống, lỏng lẻo
+  Nhưng thật sự khó thoát
+  Người trí cắt trừ nó
+  Bỏ dục lạc, không màng". (TMC)
 
 CHÚ THÍCH
 Câu Dhīrā... Nghĩa là các Bậc trí như đức Phật... Gọi các loại gông xiềng làm bằng sắt, bằng gỗ,
@@ -42378,8 +42138,6 @@ gia.
 
 Dứt thời pháp thoại, nhiều người chứng đạt Thánh quả như Dự Lưu quả.
 DỨT TÍCH: CHUYỆN KHÁM ĐƯỜNG
-
-
 
 ### XXIV. 5- HOÀNG HẬU KHEMĀ
 
@@ -42438,8 +42196,8 @@ Bạc Đạo Sư thấu rõ tâm trạng chán nãn của Hoàng Hậu Khemā, N
 
 Rồi Ngài tuyên thuyết lên kệ ngôn rằng:
 
-_- Nầy Khemā! Ngươi hãy nhìn xác thân bịnh tật nầy, đầy dẫy chất bất tịnh,_
-sình thúi chảy ra cả phía trên, phía dưới mà kẻ ngu ham thích (đắm say) vô cùng.
+- _Nầy Khemā! Ngươi hãy nhìn xác thân bịnh tật nầy, đầy dẫy chất bất tịnh,_
+  sình thúi chảy ra cả phía trên, phía dưới mà kẻ ngu ham thích (đắm say) vô cùng.
 
 Dứt kệ ngôn Hoàng Hậu Khemā an trú vào Dự Lưu Thánh Quả. Kế tiếp, đức Thế Tôn phán dạy
 nàng rằng:
@@ -42453,10 +42211,10 @@ Sayaṁ kataṁ makkatako'va jātaṁ
 Etaṁ pi chetvāna vanjanti dhīrā
 Anapekkhino sabbadukhhaṁ pahāya".
 
-_- "Người đắm say ái dục_
-Tự lao mình xuống dòng
-Như nhận sa lưới dệt
-Người trí cắt đứt nó". (HT. TMC)
+- _"Người đắm say ái dục_
+  Tự lao mình xuống dòng
+  Như nhận sa lưới dệt
+  Người trí cắt đứt nó". (HT. TMC)
 
 CHÚ THÍCH:
 Makkaṭoko va jātaṁ nghĩa là: Giống như con nhện làm lưới, tức là nó nằm ngay giữa lưới được
@@ -42477,7 +42235,6 @@ vua Bimbisāra rằng:
   về hạnh trí tuệ.
 
 DỨT TÍCH: HOÀNG HẬU KHEMĀ
-
 
 ### XXIV. 6- CÔNG TỬ UGGASENA
 
@@ -42607,10 +42364,10 @@ Majjhe muñca bhavassa pāragū.
 Sabbattha vimuttamānaso
 Na puna jātijaraṁ upehisi".
 
-_- "Bỏ quá, hiện, vị lai_
-Đến bờ kia cuộc đời
-Ý giải thoát tất cả
-Chớ vướng lại sinh già". (TMC)
+- _"Bỏ quá, hiện, vị lai_
+  Đến bờ kia cuộc đời
+  Ý giải thoát tất cả
+  Chớ vướng lại sinh già". (TMC)
 
 CHÚ THÍCH
 Muñca pure nghĩa là hãy dứt bỏ sự ái luyến, sự vui thích, say mê, mong muốn, tầm cầu, sự chấp
@@ -42701,7 +42458,6 @@ Và nàng cũng xin được xuất gia trong ni chúng. Chẳng bao lâu nàng 
 Môn, chứng đắc được Vô Lậu Thánh quả.
 
 DỨT TÍCH CÔNG TỬ UGGASENA
-
 
 ### XXIV. 7- HIỀN TRÍ CŪḶA DHANUGGAHA
 
@@ -42807,15 +42563,15 @@ Asubhaṁ bhāyayati sadāsato
 Esa kho vyantikāhiti
 Eso checchati mārabandhanaṁ".
 
-_- "Người tà ý nhiếp phục_
-Đi sắc bén nhiệt nồng
-Thường quán nhìn tịnh tướng
-Người ấy ái tăng trưởng". (349)
+- _"Người tà ý nhiếp phục_
+  Đi sắc bén nhiệt nồng
+  Thường quán nhìn tịnh tướng
+  Người ấy ái tăng trưởng". (349)
 
-_- "An vui an tịnh ý_
-Quán bất tịnh thường niệm
-Người ấy sẽ diệt ái
-Cắt đứt ma trói buộc". (350)
+- _"An vui an tịnh ý_
+  Quán bất tịnh thường niệm
+  Người ấy sẽ diệt ái
+  Cắt đứt ma trói buộc". (350)
 
 CHÚ THÍCH
 Vitakkapamathitassa tức là người bị ba loại tầm như dục tầm... Chi phối.
@@ -42842,7 +42598,6 @@ Dứt pháp thoại vị Tỳ khưu trẻ chứng đạt quả vị Tu Đà Hu�
 chúng là như thế.
 
 DỨT TÍCH HIỀN TRÍ CŪḶAHANUGGAHA
-
 
 ### XXIV. 8- CHUYỆN MA VƯƠNG
 
@@ -42881,18 +42636,19 @@ hóa thân, Ngài phán rằng:
   Jaññā pubbaparāni ca
   Sa ve antimasārīro
   Mahāpañño mahāpuriso'ti vuccati".
-  _- "Ai đến đích không sợ_
-Lìa ái không nhiễm ô
-Nhỗ mũi tên sanh tử
-Thân nầy thân cuối cùng". (351)
 
-_- "Ai lìa không chấp thủ_
-Cú pháp khéo biện tài
-Thấu suốt từ vô ngại
-Hiểu thứ lớp trước sau
-Thân nầy thân cuối cùng
-Vì như vậy được gọi
-Bậc Đại trí, đại nhân". (HT. TMC)
+  - _"Ai đến đích không sợ_
+    Lìa ái không nhiễm ô
+    Nhỗ mũi tên sanh tử
+    Thân nầy thân cuối cùng". (351)
+
+- _"Ai lìa không chấp thủ_
+  Cú pháp khéo biện tài
+  Thấu suốt từ vô ngại
+  Hiểu thứ lớp trước sau
+  Thân nầy thân cuối cùng
+  Vì như vậy được gọi
+  Bậc Đại trí, đại nhân". (HT. TMC)
 
 CHÚ THÍCH
 Niṭṭhaṁ gato nghĩa là Bậc A la Hán, được gọi là vị thành tựu cứu cánh của Bậc xuất gia trong
@@ -42937,18 +42693,19 @@ hóa thân, Ngài phán rằng:
   Jaññā pubbaparāni ca
   Sa ve antimasārīro
   Mahāpañño mahāpuriso'ti vuccati".
-  _- "Ai đến đích không sợ_
-Lìa ái không nhiễm ô
-Nhỗ mũi tên sanh tử
-Thân nầy thân cuối cùng". (351)
 
-_- "Ai lìa không chấp thủ_
-Cú pháp khéo biện tài
-Thấu suốt từ vô ngại
-Hiểu thứ lớp trước sau
-Thân nầy thân cuối cùng
-Vì như vậy được gọi
-Bậc Đại trí, đại nhân". (HT. TMC)
+  - _"Ai đến đích không sợ_
+    Lìa ái không nhiễm ô
+    Nhỗ mũi tên sanh tử
+    Thân nầy thân cuối cùng". (351)
+
+- _"Ai lìa không chấp thủ_
+  Cú pháp khéo biện tài
+  Thấu suốt từ vô ngại
+  Hiểu thứ lớp trước sau
+  Thân nầy thân cuối cùng
+  Vì như vậy được gọi
+  Bậc Đại trí, đại nhân". (HT. TMC)
 
 CHÚ THÍCH
 Niṭṭhaṁ gato nghĩa là Bậc A la Hán, được gọi là vị thành tựu cứu cánh của Bậc xuất gia trong
@@ -42980,7 +42737,6 @@ Dứt pháp thoại, nhiều chúng sanh chứng đạt Đạo Quả. Riêng Ma 
 - Sa Môn Gotama biết được ta.
   Ma Vương bèn biến mất tại chỗ.
   DỨT TÍCH: CHUYỆN MA VƯƠNG
-  
 
 ### XXIV. 10- TU SĨ UPAKA
 
@@ -43006,13 +42762,13 @@ Lục căn thanh tịnh, màu da trong sáng như vàng ròng tinh anh của B�
   Sabbesu dhammesu anūpalitto
   Sabbañjaho taṇhakkhaya vimutto
   Sayaṁ abhiññāya kam uddiseyyaṁ".
-  _- "Ta hàng phục tất cả_
-Ta biết rõ tất cả
-Không uế nhiễm pháp nào
-Ta từ bỏ tất cả
-Ái diệt tự giải thoát
-Đã tự mình thắng trí
-Ta cần học việc gì?". (HT. TMC)
+  - _"Ta hàng phục tất cả_
+    Ta biết rõ tất cả
+    Không uế nhiễm pháp nào
+    Ta từ bỏ tất cả
+    Ái diệt tự giải thoát
+    Đã tự mình thắng trí
+    Ta cần học việc gì?". (HT. TMC)
 
 CHÚ THÍCH
 Sabbābhibhū: Tức là bậc toàn thắng tất cả các diễn tiến trong ba cõi.
@@ -43031,7 +42787,6 @@ lắc đầu le lưỡi nói rằng:
 - Này Hiền giả! Mong rằng Hiền giả sẽ là như thế.
   Rồi y tiếp tục du phương theo con đường của mình, đi đến nhà người thợ săn.
   DỨT TÍCH: DU SĨ UPAKA
-  
 
 ### XXIV. 11- ĐỨC THIÊN VƯƠNG ĐẾ THÍCH
 
@@ -43088,10 +42843,10 @@ Sabba rasaṁ dhammaraso jināti.
 Sabbaratiṃ dhammaratī jināti
 Taṇhakkhayo sabbadukkhaṁ jināti".
 
-_- "Pháp thí thắng mọi thí_
-Pháp vị thắng mọi vị
-Pháp hỷ thắng mọi hỷ
-Ái diệt thắng mọi khổ".
+- _"Pháp thí thắng mọi thí_
+  Pháp vị thắng mọi vị
+  Pháp hỷ thắng mọi hỷ
+  Ái diệt thắng mọi khổ".
 
 CHÚ THÍCH
 Sabba dānaṁ... Nghĩa là người cúng dường như là tam y, vật thực... đến chư Phật Chánh Đẳng
@@ -43151,7 +42906,6 @@ Nhận lời thỉnh cầu của Thiên Vương Đế Thích, Ngài đã phán d
   chánh pháp, chí đến sự tùy hỷ pháp, các ngươi nên chia phước đến tất cả chúng sanh vậy.
 
 DỨT TÍCH: ĐỨC THIÊN VƯƠNG ĐẾ THÍCH
-
 
 ### XXIV. 12- VỊ TRƯỞNG GIẢ KHÔNG CON
 
@@ -43242,11 +42996,11 @@ No ve pāraagavesino
 Bhogataṇhāya dummedho
 Hanti añña'va attanaṁ".
 
-_- "Giàu sang hại người ngu_
-Không hại người cầu tìm
-Đến được bờ bên kia
-Kẻ ngu vì ham giàu.
-Hại mình và hại người". (TMC).
+- _"Giàu sang hại người ngu_
+  Không hại người cầu tìm
+  Đến được bờ bên kia
+  Kẻ ngu vì ham giàu.
+  Hại mình và hại người". (TMC).
 
 CHÚ THÍCH
 No ve pāragavesino là tài sản hằng không hại người tầm cầu bờ thường hằng, tức là Níp Bàn.
@@ -43255,8 +43009,6 @@ vì tham muốn do tài sản mà phát sanh lên.
 
 Dứt kệ ngôn, nhiều người chứng đạt Thánh quả như Dự Lưu....
 DỨT TÍCH: TRƯỞNG GIẢ VÔ TỰ
-
-
 
 ### XXIV. 13- THIÊN TỬ AṄKURA
 
@@ -43302,25 +43054,25 @@ Icchādosā ayaṁ pajā
 Tasmā hi vigaticchesu
 Dinnaṁ hoti mahappha- laṁ".
 
-_- "Cỏ làm hại ruộng vườn_
-Tham làm hại người đời
-Bố thí người lìa tham
-Do vậy, được quả lớn". (356)
+- _"Cỏ làm hại ruộng vườn_
+  Tham làm hại người đời
+  Bố thí người lìa tham
+  Do vậy, được quả lớn". (356)
 
-_- "Cỏ làm hại ruộng vườn_
-Sân hận hại người đời
-Bố thí người lìa sân
-Do vậy, được quả lớn". (357)
+- _"Cỏ làm hại ruộng vườn_
+  Sân hận hại người đời
+  Bố thí người lìa sân
+  Do vậy, được quả lớn". (357)
 
-_- "Cỏ làm hại ruộng vườn_
-Si làm hại người đời
-Bố thí người lìa si
-Do vậy được quả lớn". (358)
+- _"Cỏ làm hại ruộng vườn_
+  Si làm hại người đời
+  Bố thí người lìa si
+  Do vậy được quả lớn". (358)
 
-_- "Cỏ làm hại ruộng vườn_
-Dục làm hại người đời
-Bố thí người lìa dục
-Do vậy, được quả lớn". (HT. TMC)
+- _"Cỏ làm hại ruộng vườn_
+  Dục làm hại người đời
+  Bố thí người lìa dục
+  Do vậy, được quả lớn". (HT. TMC)
 
 CHÚ THÍCH
 Tiṇadosāni nghĩa là: Sự thật các loại cỏ như cỏ rơm... Khi sanh trưởng sẽ làm hại ruộng của
@@ -43335,7 +43087,6 @@ cao thượng".
 Những câu còn lại cũng tương tự như trên.
 Dứt Pháp thoại, Thiên Tử Aṅkura và Indaka chứng đạt quả vị Dự Lưu.
 DỨT TÍCH: THIÊN TỬ AṄKURA
-
 
 ## XXV. PHẨM TỲ KHƯU
 
@@ -43412,17 +43163,17 @@ Sādhu sabbattha saṁvaro
 Sabbattha saṁvuto bhik- khu
 Sabbadukkhā pamuccati".
 
-_- "Lành thay phòng hộ mắt_
-Lành thay phòng hộ tai
-Lành thay phòng hộ lưỡi
-Lành thay phòng hộ mũi". (360)
+- _"Lành thay phòng hộ mắt_
+  Lành thay phòng hộ tai
+  Lành thay phòng hộ lưỡi
+  Lành thay phòng hộ mũi". (360)
 
-_- "Lành thay, phòng hộ thân_
-Lành thay phòng hộ khẩu
-Lành thay phòng hộ ý
-Tỷ kheo khéo phòng hộ
-Phòng hộ khắp tất cả
-Thoát được mọi khổ đau". (HT. TMC)
+- _"Lành thay, phòng hộ thân_
+  Lành thay phòng hộ khẩu
+  Lành thay phòng hộ ý
+  Tỷ kheo khéo phòng hộ
+  Phòng hộ khắp tất cả
+  Thoát được mọi khổ đau". (HT. TMC)
 
 CHÚ THÍCH
 
@@ -43463,7 +43214,6 @@ Vì thế, đức Thế Tôn dạy: "Sabbattha samvuto bhikkhu, sabbadukkhā pam
 
 Dứt pháp thoại cả năm vị tỳ khưu chứng đạt quả Dự Lưu...
 DỨT TÍCH: NĂM VỊ TỲ KHƯU
-
 
 ### XXV. 2- VỊ TỲ KHƯU GIẾT HẠC
 
@@ -43570,11 +43320,11 @@ Vācāya saññato saññatuttamo
 Ajjhattarato samāhito
 Eko santusito tam āhu bhikkhuṃ".
 
-_- "Người chế ngự tay chân_
-Chế ngự lời và đầu
-Vui thích nội thiền định
-Độc thân biết vừa đủ
-Thật xứng gọi tỳ kheo". (HT. TMC)
+- _"Người chế ngự tay chân_
+  Chế ngự lời và đầu
+  Vui thích nội thiền định
+  Độc thân biết vừa đủ
+  Thật xứng gọi tỳ kheo". (HT. TMC)
 
 CHÚ THÍCH
 Hatthasaññato: Nghĩa là người tự điều chế tay, vì không có sự múa tay... Hoặc đánh đập chúng
@@ -43597,7 +43347,6 @@ A la Hán, nên Ngài thuyết rằng: Eko santusito.
 
 Dứt Pháp thoại nhiều người chứng đắc quả Thánh.
 DỨT TÍCH: VỊ TỲ KHƯU GIẾT HẠC
-
 
 ### XXV. 3- TỲ KHƯU KOKĀLIKA
 
@@ -43655,10 +43404,10 @@ Mantabhāṇī anuddato
 Atthaṁ dhammañ ca dīpeti
 Medhuraṁ tassa bhāsitaṁ"
 
-_- "Tỳ kheo chế ngự lưỡi_
-Vừa lời, không cống cao
-Khi trình bày Pháp nghĩa
-Lời lẽ dịu ngọt ngào". (HT. TMC)
+- _"Tỳ kheo chế ngự lưỡi_
+  Vừa lời, không cống cao
+  Khi trình bày Pháp nghĩa
+  Lời lẽ dịu ngọt ngào". (HT. TMC)
 
 CHÚ THÍCH
 Mukhassaññato nghĩa là đã thu thúc khẩu, do không nói rằng: Ngươi là dòng hạ tiện, ngươi là
@@ -43675,7 +43424,6 @@ có ý nghĩa, hoặc không có cả hai. Văn ngôn của vị tỳ khưu ấy
 
 Dứt pháp thoại nhiều người chứng đắc quả thánh như quả Dự Lưu...
 DỨT TÍCH TỲ KHƯU KOKĀLIKA
-
 
 ### XXV. 4- TRƯỞNG LÃO DHAMMĀRĀMA
 
@@ -43731,10 +43479,10 @@ Dhammaṁ anivicintayaṁ
 Dhammaṁ anussaraṁ bhikkhu
 Saddhammā na paruhāyati".
 
-_- "Vị tỳ kheo thích Pháp_
-Mến pháp suy tư Pháp
-Tâm tư niệm Chánh Pháp
-Không rời bỏ Chánh Pháp". (HT. TMC)
+- _"Vị tỳ kheo thích Pháp_
+  Mến pháp suy tư Pháp
+  Tâm tư niệm Chánh Pháp
+  Không rời bỏ Chánh Pháp". (HT. TMC)
 
 CHÚ THÍCH
 Hãy hiểu ý nghĩa những câu này như vậy: "PHáP" tức là Thiền Chỉ hay Thiền quán, vị tỳ khưu
@@ -43748,7 +43496,6 @@ Thế.
 
 Dứt pháp thoại, Tỳ khưu Dhammārāma chứng đạt A la Hán quả.
 Dứt Tích: TỲ KHƯU DHAMMĀRĀMA
-
 
 ### XXV. 5- HAI VỊ TỲ KHƯU NGHỊCH GẶP NHAU
 
@@ -43802,15 +43549,15 @@ Salābhaṁ n'ātimaññati
 Taṁ ve devā pasaṁsanti
 Suddhājīviṃ atanditaṁ".
 
-_- "Không khinh điều mình được_
-Không ganh người khác được
-Tỳ khưu ganh ty người
-Không sao chứng thiền định".
+- _"Không khinh điều mình được_
+  Không ganh người khác được
+  Tỳ khưu ganh ty người
+  Không sao chứng thiền định".
 
-_- "Tỳ kheo dù được ít_
-Không khinh điều mình được
-Sống thanh tịnh không nhác
-Chư thiên khen vị này". (TMC)
+- _"Tỳ kheo dù được ít_
+  Không khinh điều mình được
+  Sống thanh tịnh không nhác
+  Chư thiên khen vị này". (TMC)
 
 CHÚ THÍCH
 Salābhaṁ tức là lợi lộc phát sanh cho mình. Thật vậy, vị tỳ khưu từ bỏ hạnh đi khất thực từng
@@ -43830,7 +43577,6 @@ ngần ngại với sự nổ lực nuôi sống.
 
 Dứt pháp thoại nhiều chúng sanh chứng đạt đạo quả, như Thánh Quả Dự Lưu...
 DỨT TÍCH: HAI VỊ TỲ KHƯU NGHỊCH
-
 
 ### XXV. 6- BÀ LA MÔN PANCAGGADĀYAKA
 
@@ -43912,10 +43658,10 @@ Yassa natthi mamāyitaṁ
 Asatā ca na socati
 Sa ve bbikkhù'ti vuccati".
 
-_- "Hoàn toàn đối danh sắc_
-Không chấp TA, CỦA TA
-Không chấp không sầu não
-Thật xứng danh tỳ khưu." (TMC)
+- _"Hoàn toàn đối danh sắc_
+  Không chấp TA, CỦA TA
+  Không chấp không sầu não
+  Thật xứng danh tỳ khưu." (TMC)
 
 - CHÚ THÍCH:
   Sabbaso là Danh sắc diễn tiến theo năng lực của ngũ uẩn, gồm sắc uẩn và tứ danh uẩn như thọ
@@ -43931,7 +43677,6 @@ ta hay của ta, hay không sầu muộn vì danh sắc cũng có, Bậc Đạo 
 
 Dứt pháp thoại hai vợ chồng Bà la môn chứng đắc A Na Hàm quả.
 Dứt tích: ÔNG BÀ LA MÔN PANCAGGADĀYAKA
-
 
 ### XXV. 7- NHIỀU VỊ TỲ KHƯU
 
@@ -44142,53 +43887,53 @@ Suddh'ajīve atandito".
 Tato pāmojjahulo
 Dukkhass'antaṁ karissati".
 
-_- "Tỷ kheo trú từ bi_
-Tín thành Giáo Pháp Phật
-Chứng cảnh giới tịch tịnh
-Các hạnh an tịnh lạc" (378)
+- _"Tỷ kheo trú từ bi_
+  Tín thành Giáo Pháp Phật
+  Chứng cảnh giới tịch tịnh
+  Các hạnh an tịnh lạc" (378)
 
-_- "Tỷ kheo tát thuyền này_
-Thuyền không nhẹ đi mau
-Trừ tham, diệt sân hận
-Tất mau chứng Níp Bàn". (369)
+- _"Tỷ kheo tát thuyền này_
+  Thuyền không nhẹ đi mau
+  Trừ tham, diệt sân hận
+  Tất mau chứng Níp Bàn". (369)
 
-_- "Đoạn năm, từ bỏ năm_
-Tu tập năm tối thượng
-Vượt khỏi năm say đắm
-Tỷ kheo xứng vượt dòng". (370)
+- _"Đoạn năm, từ bỏ năm_
+  Tu tập năm tối thượng
+  Vượt khỏi năm say đắm
+  Tỷ kheo xứng vượt dòng". (370)
 
-_- "Tỷ kheo hãy tu thiền_
-Chớ buông lung phóng dật
-Tâm chớ đắm say dục
-Phóng dật nuốt sắt nóng
-Bị đốt chớ than khổ". (371)
+- _"Tỷ kheo hãy tu thiền_
+  Chớ buông lung phóng dật
+  Tâm chớ đắm say dục
+  Phóng dật nuốt sắt nóng
+  Bị đốt chớ than khổ". (371)
 
-_- "Không trí tuệ không thiền_
-Không thiền không trí tuệ
-Người có thiền có tuệ
-Nhất định gần Níp Bàn". (372)
+- _"Không trí tuệ không thiền_
+  Không thiền không trí tuệ
+  Người có thiền có tuệ
+  Nhất định gần Níp Bàn". (372)
 
-_- "Sống bước vào nhà trống_
-Tỷ kheo tâm an tịnh
-Tịnh quán theo chánh pháp
-Thọ hưởng vui Siêu nhân". (373)
+- _"Sống bước vào nhà trống_
+  Tỷ kheo tâm an tịnh
+  Tịnh quán theo chánh pháp
+  Thọ hưởng vui Siêu nhân". (373)
 
-_- "Người luôn luôn chánh niệm_
-Sự sanh diệt các uẩn
-Được hưởng hỷ hân hoan
-Dành bậc biết Bất Tử". (374)
+- _"Người luôn luôn chánh niệm_
+  Sự sanh diệt các uẩn
+  Được hưởng hỷ hân hoan
+  Dành bậc biết Bất Tử". (374)
 
-_- "Vị tỷ kheo có trí_
-Tu tập Pháp căn bản
-Hộ căn biết vừa đủ
-Gìn giữ căn bản giới
-Thường gần gủi bạn lành
-Sống thanh tịnh tinh cần." (375)
+- _"Vị tỷ kheo có trí_
+  Tu tập Pháp căn bản
+  Hộ căn biết vừa đủ
+  Gìn giữ căn bản giới
+  Thường gần gủi bạn lành
+  Sống thanh tịnh tinh cần." (375)
 
-_- "Giao thiệp khéo thân thiện_
-Cử chỉ mực đoan trang
-Do vậy hưởng vui nhiều
-Sẽ dứt mọi khổ đau". (376)
+- _"Giao thiệp khéo thân thiện_
+  Cử chỉ mực đoan trang
+  Do vậy hưởng vui nhiều
+  Sẽ dứt mọi khổ đau". (376)
 
 CHÚ THÍCH:
 Cắt đứt năm: Nghĩa là cắt đứt năm hạ phần kiết sử là: Thân kiến hoài nghi, giới cấm thủ, dục ái
@@ -44294,7 +44039,6 @@ bay lên hư không đi đến Tinh xá Jetavana cách đó 120 do tuần, đả
 
 DỨT TÍCH: NHIỀU VỊ TỲ KHƯU
 
-
 #### CHUYỆN 500 VỊ TỲ KHƯU
 
 **(PC. 377)**
@@ -44313,16 +44057,16 @@ hiện đến phán dạy rằng:
 - "Này chư Tỳ khưu, lẽ thường vị Tỳ khưu nên tinh cần để thoát khỏi khổ luân hồi như cánh hoa
   rụng khỏi cuống vậy". Rồi từ Hương Thất, Ngài phóng hào quan đến trước mặt những vị ấy, tuyên
   thuyết lên kệ ngôn:
-377-
-"Vassikā viya pipphāni
-Maddavāni pamuñcati
-Evaṁ rāgañca dosañ ca
-Vippamuñcetha bhikkhavo".
+  377-
+  "Vassikā viya pipphāni
+  Maddavāni pamuñcati
+  Evaṁ rāgañca dosañ ca
+  Vippamuñcetha bhikkhavo".
 
-_- "Như hoa Vassikā_
-Quăng bỏ cánh úa tàn
-Cũng vậy, vị tỷ kheo
-Hãy giải thoát tham sân". (HT. TMC)
+- _"Như hoa Vassikā_
+  Quăng bỏ cánh úa tàn
+  Cũng vậy, vị tỷ kheo
+  Hãy giải thoát tham sân". (HT. TMC)
 
 CHÚ THÍCH
 Hoa lài gọi là Vassikā trong kệ ngôn này.
@@ -44332,7 +44076,6 @@ các ngươi hãy dứt bỏ các tai hại như tham...
 
 Dứt Pháp thoại, chư tỳ khưu ấy chứng đạt A la Hán.
 DỨT TÍCH: CHUYỆN 500 VỊ TỲ KHƯU
-
 
 ### XXV. 8- TRƯỞNG LÃO SANTAKĀYA
 
@@ -44368,10 +44111,10 @@ Santavā susamāhito
 Vantalokāmiso bhikkhu
 Upasanto ti vuccati".
 
-_- "Thân tịnh lời an tịnh_
-An tịnh khéo Thiền định
-Tỷ kheo bỏ thế vật
-Xứng danh người tịch tịch". (HT. TMC)
+- _"Thân tịnh lời an tịnh_
+  An tịnh khéo Thiền định
+  Tỷ kheo bỏ thế vật
+  Xứng danh người tịch tịch". (HT. TMC)
 
 CHÚ THÍCH
 
@@ -44387,7 +44130,6 @@ Dứt Pháp thoại, Trưởng Lão Santakāya chứng đạt A La Hán quả. P
 chúng như thế.
 
 DỨT TÍCH TRƯỞNG LÃO SANTAKĀYA.
-
 
 ### XXV. 9- TRƯỞNG LÃO NAṆGALAKŪṬA
 
@@ -44451,14 +44193,14 @@ Attā hi attano gati
 Tasmā saññanay'attānaṁ
 Assaṁ bhadraṁ'va vāṇijo".
 
-_- "Tự mình chỉ trích mình_
-Tự mình dò xét mình
-Tỷ kheo tự phòng hộ
-Chánh niệm trú an lạc". (379)
--"Tự mình che chở mình
-Tự mình nương tựa mình
-Vậy hãy tự điều phục
-Như thương khách ngựa hiền". (380)
+- _"Tự mình chỉ trích mình_
+  Tự mình dò xét mình
+  Tỷ kheo tự phòng hộ
+  Chánh niệm trú an lạc". (379)
+  -"Tự mình che chở mình
+  Tự mình nương tựa mình
+  Vậy hãy tự điều phục
+  Như thương khách ngựa hiền". (380)
 
 CHÚ THÍCH
 Day'attānaṁ là hãy tự kiểm soát mình. Tức là tự mình biết mình.
@@ -44478,7 +44220,6 @@ pháp đã sanh do thất niệm, gọi là sự canh giữ, phòng hộ. Khi ng
 Siêu Thế Pháp và Hiệp thế thượng nhân Pháp, kể từ Sơ Thiền.
 
 DỨT TÍCH: TRƯỞNG LÃO NAṆGALAKŪṬA.
-
 
 #### TRƯỞNG LÃO VAKKALI
 
@@ -44561,7 +44302,6 @@ Thời gian sau, đức Thế Tôn ban cho Trưởng Lão Vakkali địa vị đ
 (Sandhādhimutta).
 
 DỨT TÍCH: TRƯỞNG LÃO VAKKALI
-
 
 #### SA DI SUMANA
 
@@ -44995,10 +44735,10 @@ Sa di Sumana đặt bát nước xuống, đảnh lễ đức Thế Tôn xong r�
   Yuñjati buddhasāsane
   So imaṁ lokaṁ pabhāseti
   Abhā mutto va canimā".
-  _- "Tỷ kheo tuy nhỏ tuổi_
-Siêng tu Giáo Pháp Phật
-Soi sáng thế gian nầy
-Như trăng thoát khỏi mây". (HT. TMC)
+  - _"Tỷ kheo tuy nhỏ tuổi_
+    Siêng tu Giáo Pháp Phật
+    Soi sáng thế gian nầy
+    Như trăng thoát khỏi mây". (HT. TMC)
 
 CHÚ THÍCH
 Yuñjati là tính cần siêng năng.
@@ -45007,7 +44747,6 @@ Pabhāseti nghĩa là vị tỳ khưu hằng làm cho thế gian như uẩn, x�
 
 Dứt Pháp thoại, nhiều người chứng đạt Thánh quả như Dự lưu.
 DỨT TÍCH: SA DI SUMANA
-
 
 ## XXVI. PHẨM BÀ LA MÔN
 
@@ -45045,11 +44784,11 @@ Kāmo panuda brāhmaṇa
 Saṅkhārānaṁ Khayaṁ ñattvā
 Akataññūsi brāhmaṇa".
 
-_- "Hỡi nầy Bà la Môn_
-Hãy tinh tấn đoạn dòng
-Từ bỏ các dục lạc
-Biệt được hành đoạn diệt.
-Người là bậc Vô si". (HT. TMC)
+- _"Hỡi nầy Bà la Môn_
+  Hãy tinh tấn đoạn dòng
+  Từ bỏ các dục lạc
+  Biệt được hành đoạn diệt.
+  Người là bậc Vô si". (HT. TMC)
 
 CHÚ THÍCH
 Parakkamma:... Nghĩa là: dòng ái dục không ai có thể cắt dứt bằng sự tinh cần yếu kém được.
@@ -45065,7 +44804,6 @@ mục đích cứu cánh chứ.
 
 Dứt Pháp thoại nhiều người chứng đạt Thánh quả.
 DỨT TÍCH: VỊ BÀ LA MÔN NHIỀU ĐỨC TIN
-
 
 ### XXVI. 2- NHIỀU VỊ TỲ KHƯU
 
@@ -45084,10 +44822,10 @@ chư tỳ khưu ấy, Ngài đi vào yết kiến đức Thế Tôn bạch hỏi
   Pāragū hoti brāhmaṇo
   Thassa sabbe saṁyogā
   Atthaṁ gacchanti janato".
-  _- "Nhờ thường rú hai pháp_
-Đến được bờ bên kia
-Bà la môn có trí
-Mọi kiết sử dứt sạch". (HT. TMC)
+  - _"Nhờ thường rú hai pháp_
+    Đến được bờ bên kia
+    Bà la môn có trí
+    Mọi kiết sử dứt sạch". (HT. TMC)
 
 CHÚ THÍCH
 Yadā... nghĩa là: Trong thời nào vị Vô Lậu đạt đến bờ bên kia, do nhờ hai pháp là CHỉ và QUáN
@@ -45096,7 +44834,6 @@ Bậc Vô Liệu đó, bậc tỉnh giác như vậy không còn tồn tại t�
 
 Dứt pháp thoại, ba mươi vị tỳ khưu ấy chứng đạt A la Hán quả.
 DỨT TÍCH: NHIỀU VỊ TỲ KHƯU
-
 
 ### XXVI. 3- CHUYỆN MA VƯƠNG
 
@@ -45117,10 +44854,10 @@ Pārāpāraṁ na vijjati
 Vītaddaraṁ visaṃyuttaṁ
 Taṁ ahaṁ brūmi brāhmaṇaṁ".
 
-_- "Không bờ nầy bờ kia_
-Cả hai bờ không có
-Lìa khổ không trói buộc
-Ta gọi Bà la môn". (HT. TMC)
+- _"Không bờ nầy bờ kia_
+  Cả hai bờ không có
+  Lìa khổ không trói buộc
+  Ta gọi Bà la môn". (HT. TMC)
 
 CHÚ THÍCH
 Bờ kia là sáu nội xứ. Bờ kia cũng ám chỉ cho sáu ngoại xứ. Tiếng Bờ ở đây chỉ cho 12 xứ.
@@ -45130,7 +44867,6 @@ hay là Của ta người ấy chấm dứt sầu, chấm dứt được phiền
 được gọi là Bà la môn.
 
 DỨT TÍCH MA VƯƠNG
-
 
 ### XXVI. 4- MỘT VỊ BÀ LA MÔN
 
@@ -45223,12 +44959,12 @@ Rồi Ngài thuyết lên kệ ngôn rằng:
 
 Buddho tapati tejasā".
 
-_- "Mặt trời sáng ban ngày_
-Mặt trăng sáng ban đêm
-Khí giới sáng Sát Lỵ
-Thiền sáng Bà la môn
-Còn hào quang đức Phật
-Chói sáng cả ngày đêm". (TMC)
+- _"Mặt trời sáng ban ngày_
+  Mặt trăng sáng ban đêm
+  Khí giới sáng Sát Lỵ
+  Thiền sáng Bà la môn
+  Còn hào quang đức Phật
+  Chói sáng cả ngày đêm". (TMC)
 
 CHÚ THÍCH
 Divā tapati nghĩa là mặt trời chỉ chiếu sáng ban ngày nhưng ban đêm không xuất hiện
@@ -45245,7 +44981,6 @@ phục các bất thiện pháp là thiện pháp. Ngài thường hằng chói 
 
 Dứt Pháp thoại nhiều người chứng đạt A la Hán cùng với các Thánh Quả.
 DỨT TÍCH: TRƯỞNG LÃO ĀNANDA
-
 
 ### XXVI. 6- CHUYỆN MỘT NGƯỜI XUẤT GIA
 
@@ -45282,7 +45017,6 @@ Sư gọi là bậc xuất gia, do đã tẩy sạch các cấu uế đó.
 
 Dứt pháp thoại, ngoại đạo Bà La môn chứng đạt Thánh quả Dự Lưu.
 DỨT TÍCH: CHUYỆN MỘT NGUOI XUAT GIA
-
 
 ### XXVI. 7- TRƯỞNG LÃO SĀRIPUTTA
 
@@ -45391,7 +45125,6 @@ Tato tato nghĩa là sự chấm dứt từ vật ấy, tức là chấm dứt k
 Dứt kệ ngôn, nhiều người chứng đạt Thánh Quả.
 DỨT TÍCH: TRƯỞNG LÃO SĀRIPUTTA
 
-
 ### XXVI. 8- TRƯỞNG LÃO NI MAHĀ PAJĀPATIGOTAMĪ
 
 **(PC. 391)**
@@ -45433,10 +45166,10 @@ Rồi ngài tuyên thuyết lên kệ ngôn rằng:
   Manasā natthi dukkataṁ
   Saṁvutaṁ tīhi ṭhānehi
   Tam ahaṁ brūmi brāhmaṇaṁ"
-  _- "Với người thân, khẩu ý_
-Không làm các ác hạnh
-Ba nghiệp được phòng hộ
-Ta gọi Bà la Môn" (HT. TMC)
+  - _"Với người thân, khẩu ý_
+    Không làm các ác hạnh
+    Ba nghiệp được phòng hộ
+    Ta gọi Bà la Môn" (HT. TMC)
 
 CHÚ THÍCH:
 Ác nghiệp có quả là khổ, hằng đưa chúng sanh đến khổ cảnh, gọi là dukkataṁ.
@@ -45488,7 +45221,6 @@ phải thành kính tôn thờ vị ấy, giống như là Bà la môn tôn th�
 Dứt Pháp thoại nhiều người chứng đạt Thánh quả
 DỨT TÍCH: CHUYỆN TRƯỞNG LÃO SĀRIPUTTA
 
-
 ### XXVI. 10- CHUYỆN BÀ LA MÔN JAṬILA
 
 **(PC. 393)**
@@ -45524,7 +45256,6 @@ người ấy là người trong sạch và là Bà la Môn.
 
 Dứt Pháp thoại nhiều người chứng đạt Thánh Quả như Dự Lưu.
 DỨT TÍCH: BÀ LA MÔN JAṬILA
-
 
 ### XXVI. 11- BÀ LA MÔN KUHAKA
 
@@ -45610,8 +45341,6 @@ khéo tô điểm như phẩn đê, phẩn ngựa sơn phết bên ngoài.
 
 DỨT TÍCH: BÀ LA MÔN KUHAKA
 
-
-
 ### XXVI. 12- NÀNG KISĀGOTAMĪ
 
 **(PC. 395)**
@@ -45647,7 +45376,6 @@ lộ gân xanh. Do vậy đức Thế Tôn phán như thế.
 Ekaṁ vanasmiṃ nghĩa là ta gọi người hành thiền một mình trong nơi thanh vắng là Bà la Môn.
 Dứt pháp thoại nhiều người chứng đạt thánh quả như là Dự lưu.
 DỨT TÍCH: NÀNG KISĀ GOTAMĪ
-
 
 ### XXVI. 13- CHUYỆN VỊ BÀ LA MÔN
 
@@ -45689,7 +45417,6 @@ Bhovādi. Vì rằng chính y vẫn còn phiền não như ái.. Nhưng ta gọi
 Dứt pháp thoại, vị Bà la Môn ấy chứng quả Dự lưu.
 DỨT TÍCH: CHUYỆN VỊ BÀ LA MÔN
 
-
 ### XXVI. 14- NGÀI UGGASENA
 
 **(PC. 397)**
@@ -45712,10 +45439,10 @@ Bấy giờ chư Tỳ khưu ngồi lại giảng đường, bàn luận với nh
   Yo ve na paritassati
   Saṅgātigaṁ visaṁyuttaṁ
   Taṁ ahaṃ brùhmi brāhmaṇaṁ"
-  _- "Đoạn hết các kiết sử_
-Không còn gì lo lắng
-Không đắm trước buộc ràng
-Ta gọi Bà La Môn" (HT. TMC)
+  - _"Đoạn hết các kiết sử_
+    Không còn gì lo lắng
+    Không đắm trước buộc ràng
+    Ta gọi Bà La Môn" (HT. TMC)
 
 CHÚ THÍCH
 Sabbasaṃyo janaṁ tức là thập triền (lo sợi dây trói buộc)
@@ -45725,7 +45452,6 @@ qua vượt qua mọi buộc ràng như tham ái... Đã thoát khỏi vì khôn
 
 Dứt pháp thoại nhiều người chứng thánh quả.
 DỨT TÍCH NGÀI UGGASENA
-
 
 ### XXVI. 15- CHUYỆN HAI VỊ Bà-La-Môn
 
@@ -45758,10 +45484,10 @@ Sandāmaṁ sahanukkhamaṁ
 Ukkhittapaḷighaṁ buddhaṁ
 Taṁ ahaṃ bùmi brāhmaṇaṁ"
 
-_- "Bỏ đai (Hận), bỏ dây cương (ái)_
-Bỏ gậy (tà kiến ), đồ sở thuộc ( tuỳ miên)
-Bỏ then chốt (vô minh) sáng suốt
-Ta gọi Bà la môn" (HT. TMC)
+- _"Bỏ đai (Hận), bỏ dây cương (ái)_
+  Bỏ gậy (tà kiến ), đồ sở thuộc ( tuỳ miên)
+  Bỏ then chốt (vô minh) sáng suốt
+  Ta gọi Bà la môn" (HT. TMC)
 
 CHÚ THÍCH:
 Nadhiṃ tức là sân hận là vật trói buộc.
@@ -45833,10 +45559,10 @@ Rồi ngài thuyết lên kệ ngôn:
   Aduṭṭho yo titikkhati
   Khantibalaṁ bālāṇīkaṁ
   Tam ahaṁ brūmi brāmaṇaṁ"
--"Không ác ý nhẫn chịu
-Phỉ báng, đánh, phạt hình
-Lấy nhẫn làm quân lực
-Ta gọi là Bà la môn" (HT. TMC)
+  -"Không ác ý nhẫn chịu
+  Phỉ báng, đánh, phạt hình
+  Lấy nhẫn làm quân lực
+  Ta gọi là Bà la môn" (HT. TMC)
 
 CHÚ THÍCH:
 Aduṭṭho... Nghĩa là người nào tâm sân hận, chịu đựng lời lăng mạ và lời đã kích với lo sự đánh
@@ -45845,7 +45571,6 @@ nại, là sức mạnh người ấy có được quân lực tối thắng, ng
 
 Dứt pháp thoại nhiều người chứng đạt thánh quả.
 DỨT TÍCH BA LA MÔN AKKOSAKABHĀRADVĀJA
-
 
 ### XXVI. 17- TRƯỞNG LÃO SĀRIPUTTA
 
@@ -45889,10 +45614,10 @@ Trong lúc bà dâng vật thực đến chư tỳ khưu, đã trách mắng cá
   Sīlavantaṁ anussutaṁ
   Dantaṁ antimasārīraṁ
   Tam ahaṁ brūmi brāhmaṇaṁ"
-"Không hận, hết bổn phận
-Trì giới không tham ái
-Nhiếp phục thân cuối cùng
-Ta gọi Bà la môn" (HT. TMC)
+  "Không hận, hết bổn phận
+  Trì giới không tham ái
+  Nhiếp phục thân cuối cùng
+  Ta gọi Bà la môn" (HT. TMC)
 
 CHÚ THÍCH:
 Vattavataṁ... Nghĩa là người làm tròn phận sự là hạnh đầu đà có tứ thanh tịnh giới là giới hạnh.
@@ -45902,7 +45627,6 @@ môn.
 
 Dứt kệ ngôn nhiều ngưởi chứng đạt thánh quả.
 DỨT TÍCH: TRƯỞNG LÃO SĀRIPUTTA
-
 
 ### XXVI. 18- TRƯỞNG LÃO NI UPPALAVAṆṆĀ
 
@@ -45933,11 +45657,11 @@ Rồi ngài tuyền thuyết kệ ngôn rằng:
   Āraggeriva sāsapo
   Yo na limpati kāmesu
   Tam ahaṃ brūmi brāhmaṇaṁ"
-  _- "Như nước trên lá sen_
-Như hạt cải đầu kim
-Người không nhiểm ái dục
-Ta gọi Bà la môn"
-(HT. TMC)
+  - _"Như nước trên lá sen_
+    Như hạt cải đầu kim
+    Người không nhiểm ái dục
+    Ta gọi Bà la môn"
+    (HT. TMC)
 
 CHÚ THÍCH:
 Yo na limpati... Nghĩa là người tâm không dính mắc trong hai loại dục, tức là không luyến ái
@@ -45945,8 +45669,6 @@ theo dục lạc như thế. Như Lai gọi ngưởi ấy là Bà la môn. Dứt
 quả.
 
 DỨT TÍCH:TRƯỞNG LÃO NI UPPALAVAṆṆĀ
-
-
 
 ### XXVI. 19- CHUYỆN MỘT VỊ Bà-La-Môn
 
@@ -45973,11 +45695,11 @@ Một hôm Bà-La-Môn ấy thấy được vị Trưởng lão đang đi khất
   Idh'eva khayaṁ attano
   Pannabhāraṁ visaṁyuttaṁ
   Tam ahaṁ brūmi brāhmaṇaṁ"
-  _- "Ai tự trên đời nầy_
-Giác khổ diệt trừ khổ
-Bỏ gánh nặng giải thoát
-Ta gọi là Bà la môn"
-(HT. TMC)
+  - _"Ai tự trên đời nầy_
+    Giác khổ diệt trừ khổ
+    Bỏ gánh nặng giải thoát
+    Ta gọi là Bà la môn"
+    (HT. TMC)
 
 CHÚ THÍCH:
 Dukkhassa là khổ uẩn
@@ -45986,7 +45708,6 @@ thoát khỏi tứ kết hay tất cả phiền não, người ấy ta goi là B
 
 Dứt pháp thoại bà la môn chứng đạt quả Dự lưu.
 DỨT TÍCH:CHUYỆN MỘT VỊ Bà-La-Môn
-
 
 ### XXVI. 20- TRƯỞNG LÃO NI KHEMĀ
 
@@ -46014,10 +45735,10 @@ Rồi ngài nói lên kệ ngôn rằng:
   Maggāmaggassa kovidaṁ
   Uttamatthaṁ anuppattaṁ
   Tam ahaṁ bhūmi brāhmāṇaṁ"
-  _- "Người trí tuệ sâu xa_
-Biết rõ đạo, phi đạo
-Chứng đạt đích vô thượng
-Ta gọi Bà la môn" (HT. TMC)
+  - _"Người trí tuệ sâu xa_
+    Biết rõ đạo, phi đạo
+    Chứng đạt đích vô thượng
+    Ta gọi Bà la môn" (HT. TMC)
 
 CHÚ THÍCH:
 Gambhirāpaññaṃ... Là người có trí tuệ thâm sâu, biết rõ sự diễn tiến các pháp như uẩn xứ... Là
@@ -46026,7 +45747,6 @@ người có trí tuệ sáng chói trong pháp, gọi là người thấu hiể
 A la hán người ấy như ai gọi là Bà la môn.
 
 DỨT TÍCH TỲ KHƯU NI KHEMĀ
-
 
 ### XXVI. 21- TRƯỞNG LÃO TISSA NGỤ TRONG NÚI
 
@@ -46141,10 +45861,10 @@ Anāgārehi cūbhayaṁ
 Anokasāriṃ appicchaṁ
 Tam ahaṁ brūmi brāhmaṇa"
 
-_- "Không liên hệ cả hai_
-Xuất gia và thế tục
-Sống độc thân ít dục
-Ta gọi Bà la Môn" (HT. TMC)
+- _"Không liên hệ cả hai_
+  Xuất gia và thế tục
+  Sống độc thân ít dục
+  Ta gọi Bà la Môn" (HT. TMC)
 
 CHÚ THÍCH:
 Asaṁaṇṇhaṁ nghĩa là người không dính mắc với sự nhìn, sự nghe, sự bàn luận, sự thọ dụng, và
@@ -46154,8 +45874,6 @@ Ubhayaṁ là người vô dính mắc cả hai hạng: Tại gia và xuất gia
 Anokasāriṃ là người du hành không luyến ái. Người ấy ta gọi là Bà là môn.
 Dứt pháp thoại nhiều người chứng đạt thánh quả như là Dự Lưu.
 DỨT TÍCH: TRƯỞNG LÃO TISSA NGỰ TRONG NÚI
-
-
 
 ### XXVI. 22- CHUYỆN NHIỀU VỊ TỲ KHƯU
 
@@ -46202,10 +45920,10 @@ Tasesu thāvaresu ca
 Yo na hanti na ghātehi
 Tam ahaṁ brūmi brāhmaṇaṁ"
 
-_- "Bỏ trượng đối chúng sanh_
-Yếu kém hay kiên cường
-Không giết không bảo giết
-Ta gọi Ba la môn" (HT. TMC)
+- _"Bỏ trượng đối chúng sanh_
+  Yếu kém hay kiên cường
+  Không giết không bảo giết
+  Ta gọi Ba la môn" (HT. TMC)
 
 CHÚ THÍCH:
 Nidhāya tức là đã rời bỏ.
@@ -46218,7 +45936,6 @@ người ấy là Ba La Môn.
 
 Dứt pháp thoại nhiều người chứng đạt Thánh Quả.
 DỨT TÍCH: CHUYỆN VỊ TỲ KHƯU
-
 
 ### XXVI. 23- CÁC SA DI
 
@@ -46331,10 +46048,10 @@ rằng:
   Attadaṇḍesu nibbutaṁ
   Sādānesu anādānaṁ
   Am ahaṁ brūmi brāhmaṇaṁ"
-  _- "Thân thiện giữa thù nghịch_
-Ôn hoà giữa hung hăng
-Không nhiễm giữa nhiễm trước
-Ta gọi Bà la môn". (HT. TMC)
+  - _"Thân thiện giữa thù nghịch_
+    Ôn hoà giữa hung hăng
+    Không nhiễm giữa nhiễm trước
+    Ta gọi Bà la môn". (HT. TMC)
 
 CHÚ THÍCH:
 Aviruddha... Nghĩa là Như lai gọi người ấy là người vô thù địch, vì không cột oan trái với tất cả
@@ -46349,7 +46066,6 @@ Gọi là người chấp thủ vì còn chấp vào ngũ uẩn là Ta là của
 Người vô chấp như thế, Như Lai gọi là Bà La Môn.
 Dứt pháp thoại nhiều người chứng đạt Thánh Quả.
 DỨT TÍCH CÁC VỊ SA DI
-
 
 -
 
@@ -46381,10 +46097,10 @@ Māno makkho ca pātito
 Sāsaporiya āraggā
 Tam ahaṁ brūmi brāhmaṇaṁ"
 
-_- "Người bỏ rơi tham sân_
-Không mạn, không ganh tị
-Như hột cải đầu kim
-Ta gọi Bà la Môn" (HT. TMC)
+- _"Người bỏ rơi tham sân_
+  Không mạn, không ganh tị
+  Như hột cải đầu kim
+  Ta gọi Bà la Môn" (HT. TMC)
 
 CHÚ THÍCH
 āraggā.. Nghĩa là phiền não như tham, sân...
@@ -46394,7 +46110,6 @@ dính trên đầu kim, ta gọi người ấy là Bà la môn.
 
 Dứt pháp thoại, nhiều người chứng đạt quả Dự Lưu.
 DỨT TÍCH: TRƯỞNG LÃO MAHĀ PAṆṬHAKA
-
 
 ### XXVI. 25- TRƯỞNG LÃO PILIṆḌAVACCHA
 
@@ -46426,10 +46141,10 @@ Rồi Ngài tuyên thuyết lên kệ ngôn rằng:
   Giraṁ saccaṁ udīraye
   Yāyan'ābhisaje kiñci
   Tam ahaṁ brūmi brāhmanaṁ"
-  _- "Nói lên lời ôn hoà_
-Lợi ích và chân thật
-Không mất lòng một ai
-Ta gọi Bà la Môn" (HT. TMC)
+  - _"Nói lên lời ôn hoà_
+    Lợi ích và chân thật
+    Không mất lòng một ai
+    Ta gọi Bà la Môn" (HT. TMC)
 
 CHÚ THÍCH:
 Akakkasaṁ là lời nói tao nhã.
@@ -46439,7 +46154,6 @@ Nābhisaje là lời nói nào không làm người khác buồn phiền và t�
 thường dùng những lời ấy. Do vậy, ta gọi người như thế là Bà la Môn.
 
 Dứt Tích: TRƯỞNG LÃO PILIṆḌAVACCHA
-
 
 ### XXVI. 26- CHUYỆN MỘT VỊ TỲ KHƯU
 
@@ -46484,10 +46198,10 @@ aṇuṃ thūlaṃ subhāsubhaṃ
 Loke adinnaṁ nādiyāti
 Tam ahaṁ brūmi brāhmaṇaṁ"
 
-_- "Ở đời vật dài ngắn_
-Nhỏ lớn, đẹp hay xấu
-Phàm không cho không lấy
-Ta gọi Bà la Môn" (HT. TMC)
+- _"Ở đời vật dài ngắn_
+  Nhỏ lớn, đẹp hay xấu
+  Phàm không cho không lấy
+  Ta gọi Bà la Môn" (HT. TMC)
 
 CHÚ THÍCH
 Nên hiểu ý nghĩa của kệ ngôn nầy như vầy:
@@ -46497,7 +46211,6 @@ người khác gìn giữ, Như Lai gọi người ấy là Bà la môn.
 
 Dứt pháp thoại nhiều người chứng quả thánh như là quả vị Dự Lưu.
 DỨT TÍCH: CHUYỆN MỘT VỊ TỲ KHƯU
-
 
 ### XXVI. 27- TRƯỞNG LÃO SĀRIPUTTA
 
@@ -46535,10 +46248,10 @@ Asmiṃ loke paramhi ca
 Nirāsayaṁ visaṁyuttaṁ
 Tam ahaṁ brūmi brāhmaṇaṁ"
 
-_- "Người không có hy cầu_
-Đời nầy và đời sau
-Không hy cầu giả thoát
-Ta gọi Bà la Môn" (HT. TMC)
+- _"Người không có hy cầu_
+  Đời nầy và đời sau
+  Không hy cầu giả thoát
+  Ta gọi Bà la Môn" (HT. TMC)
 
 CHÚ THÍCH
 Āsā là tên của ái dục
@@ -46576,7 +46289,6 @@ Môn.
 Dứt Pháp thoại nhiều người chứng đạt Thánh Quả.
 DỨT TÍCH: TRƯỞNG LÃO MOGGALLĀNA
 
-
 ### XXVI. 29- TRƯỞNG LÃO REVATA
 
 **(PC. 412)**
@@ -46604,12 +46316,12 @@ Ubho saṅgaṁ upaccagā
 Asakaṁ virajaṁ suddaṁ
 Tam ahaṁ brūmi brāhmaṇaṁ"
 
-_- "Người sống ở đời nầy_
-Không nhiểm cả thiện ác
-Không sầu không bụi cấu
-Thật thanh tịnh trong sạch
-Ta gọi là Bà la môn"
-(412) (HT. TMC)
+- _"Người sống ở đời nầy_
+  Không nhiểm cả thiện ác
+  Không sầu không bụi cấu
+  Thật thanh tịnh trong sạch
+  Ta gọi là Bà la môn"
+  (412) (HT. TMC)
 
 CHÚ THÍCH
 Ubho nghĩa là thoát ly cả hai điều thiện ác.
@@ -46619,7 +46331,6 @@ hồi làm nhân. Gọi là không ô nhiểm là do không có tham ái bên tr
 có phiền não tuỳ miên. Người ấy, Như Lai gọi là Bà la môn.
 
 DỨT TÍCH: TRƯỞNG LÃO REVATA
-
 
 ### XXVI. 30- TRƯỞNG LÃO CANDĀBHA
 
@@ -46781,7 +46492,6 @@ Nandībhavaparikkhīnaṁ: Nghĩa là ta gọi người đã đoạn tận ái t
 Dứt Pháp thoại nhiều người chứng đạt quả Thánh.
 DỨT TÍCH: TRƯỞNG LÃO CANDĀBHA
 
-
 ### XXVI. 31- TRƯỞNG LÃO SĪVALĪ
 
 **(PC. 414)**
@@ -46837,12 +46547,12 @@ Anejo akathaṁkathī
 Anupādāya nibbuto
 Tam ahaṃ brūmi brābhmaṇa"
 
-_- "Vượt đường nguy hiểm nầy_
-Nhiếp phục luân hồi, si
-Đến bờ kia thiền định
-Không dục ái, không nghi
-Không chấp trước tịch tịnh
-Ta gọi bà la Môn" (TH. TMC)
+- _"Vượt đường nguy hiểm nầy_
+  Nhiếp phục luân hồi, si
+  Đến bờ kia thiền định
+  Không dục ái, không nghi
+  Không chấp trước tịch tịnh
+  Ta gọi bà la Môn" (TH. TMC)
 
 CHÚ THÍCH
 Nên hiểu ý nghĩa của kệ ngôn như vầy:
@@ -46856,7 +46566,6 @@ Gọi là Vo thủ vì không còn chấp. Gọi là dập tắt vì đã đoạ
 Môn.
 
 DỨT TÍCH: TRƯỞNG LÃO SĪLAVĪ
-
 
 ### XXVI. 32- TRƯỞNG LÃO SUNDARASAMUDDA
 
@@ -46974,10 +46683,10 @@ Nghe như vậy, Trưởng lão Sundarasamudda khởi dục tâm rằng:
   Anāgāro paribbaje
   Kāmabhavaparikkīṇaṁ
   Tam ahaṃ brūmi brāmaṇaṁ"
-  _- "Ai ở đời đoạn dục_
-Bỏ nhà sống suất gia
-Dục hữu được đoạn tận
-Ta gọi Bà la Môn" (HT. TMC)
+  - _"Ai ở đời đoạn dục_
+    Bỏ nhà sống suất gia
+    Dục hữu được đoạn tận
+    Ta gọi Bà la Môn" (HT. TMC)
 
 CHÚ THÍCH:
 Nên hiểu ý nghĩa kệ ngôn nầy như sau:
@@ -47009,7 +46718,6 @@ Rồi Ngài nhận diện Bổn sanh rằng:
   vườn thả nai chính là Như Lai vậy.
 
 DỨT TÍCH:TRƯỞNG LÃO SUNDARASAMUDDA
-
 
 ### XXVI. 33- TRƯỞNG LÃO KOTIKA
 
@@ -47749,14 +47457,13 @@ Một hôm, chư tỳ khưu cùng nhau bàn luận nơi Giảng đường, hỏi
   chuyện ấy trình lên đức Thế Tôn, Ngài dạy rằng:
 - Này chư tỳ khưu! Con Như Lai không còn luyến ái toà lâu đài hay người vợ mình nữa.
   Rồi Ngài dạy lên kệ ngôn rằng:
-  _- "Ai ở đời đoạn ái_
-Bỏ nhà sống xuất gia
-Ái hữu được đoạn tận
-Ta gọi Bà La Môn".
+  - _"Ai ở đời đoạn ái_
+    Bỏ nhà sống xuất gia
+    Ái hữu được đoạn tận
+    Ta gọi Bà La Môn".
 
 Dứt thời pháp, nhiều chúng sanh chứng đạt Thánh Quả như là Dự Lưu...
 DỨT TÍCH: TRƯỞNG LÃO JOTIKA
-
 
 ### XXVI. 35- CHUYỆN VỊ TỲ KHƯU KHIÊU VŨ (THỨ NHẤT)
 
@@ -47784,10 +47491,10 @@ chư tỳ khưu thấy con một người khiêu vũ khác đang biểu diễn n
   Dibbaṁ yogaṁ upaccagā
   Sabbayogavisaṁyuttaṁ
   Tam ahaṁ brūmi brāhamaṇaṁ"
-  _- "Bỏ trói buộc loài người_
-Vượt trói buộc cõi trời
-Giải thoát mọi buộc ràng
-Ta gọi Bà La Môn". (HT. TMC)
+  - _"Bỏ trói buộc loài người_
+    Vượt trói buộc cõi trời
+    Giải thoát mọi buộc ràng
+    Ta gọi Bà La Môn". (HT. TMC)
 
 CHÚ THÍCH:
 Mānussakaṁ yogaṁ: Là tuổi thọ và năm dục Tăng trưởng của loài người. Cả sự trói buộc cảnh
@@ -47798,7 +47505,6 @@ thoát ly cả bốn điều trói buộc, người ấy - Như Lai gọi là B�
 
 Dứt Pháp thoại, nhiều người chứng đạt đạo quả như Dự Lưu...
 DỨT TÍCH: VỊ TỲ KHƯU KHIÊU VŨ
-
 
 ### XXVI. 36- CHUYỆN VỊ TỲ KHƯU KHIÊU VŨ (THỨ HAI)
 
@@ -47815,11 +47521,11 @@ Câu chuyện nầy cũng tương tự như câu chuyện trước, nhưng ở �
   Sītibhūtaṁ nirūpadhiṃ
   Sabbalokābhibhuṃ vīraṁ
   Ta ahaṁ brūmi brāhmaṇaṁ".
-  _- "Bỏ điều ưa điều ghét_
-Mát lạnh diệt sanh y
-Bậc anh hùng chiến thắng
-Khắc phục mọi thế giới
-Ta gọi Bà La Môn" (HT. TMC)
+  - _"Bỏ điều ưa điều ghét_
+    Mát lạnh diệt sanh y
+    Bậc anh hùng chiến thắng
+    Khắc phục mọi thế giới
+    Ta gọi Bà La Môn" (HT. TMC)
 
 CHÚ THÍCH:
 ratiñ là thương yêu, là thoả thích trong dục.
@@ -47829,7 +47535,6 @@ nirūpadhiṃ là không còn phiền não.
 vīraṁ là người đã chinh phục mọi thế giới, uẩn và đã thể nhập.
 Bậc anh hùng, chiến thắng ở đời, người ấy Như Lai gọi là Bà La Môn.
 DỨT TÍCH: TỲ KHƯU KHIÊU VŨ
-
 
 ### XXVI. 37- TRƯỞNG LÃO VAṄGISA
 
@@ -47915,16 +47620,17 @@ Pháp, đã hỏi thăm rằng:
   Devā gandhabbamānusā
   Khīṇasavaṁ arahantaṁ
   Tam ahaṁ brūmi brāhmaṇaṁ"
-  _- "Ai hiểu rõ hoàn toàn_
-Sanh tử loại hữu tình
-Không nhiểm khéo vượt qua
-Sáng suốt chân giác ngộ
-Ta gọi Bà la môn" (419)
 
-_- "Với ai là người trời_
-Vị ấy lậu hoặc tận
-Bậc ứng cúng la hán
-Ta gọi Bà la môn" (420) (HT. TMC)
+  - _"Ai hiểu rõ hoàn toàn_
+    Sanh tử loại hữu tình
+    Không nhiểm khéo vượt qua
+    Sáng suốt chân giác ngộ
+    Ta gọi Bà la môn" (419)
+
+- _"Với ai là người trời_
+  Vị ấy lậu hoặc tận
+  Bậc ứng cúng la hán
+  Ta gọi Bà la môn" (420) (HT. TMC)
 
 CHÚ THÍCH
 Yo vedi.. Là người biết rõ sự sanh diệt của chúng sanh thông suốt.
@@ -47938,8 +47644,6 @@ môn.
 
 Dứt kệ ngôn nhiều chúng sanh chứng đạt thánh quả..
 DỨT TÍCH: TRƯỞNG LÃO VAṄGISA
-
-
 
 ### XXVI. 38- TRƯỞNG LÃO DHAMMADINNĀ
 
@@ -48017,10 +47721,10 @@ Majjhe ca natthi kiñcanaṁ
 Akiñcanaṁ anādānaṁ
 Tam ahaṁ brūmi brāhmaṇaṁ"
 
-_- "Ai quá khứ, vị lai_
-Không một sở hữu gì
-Không sở hữu không đắm
-Ta gọi Bà la môn" (HT. TMC)
+- _"Ai quá khứ, vị lai_
+  Không một sở hữu gì
+  Không sở hữu không đắm
+  Ta gọi Bà la môn" (HT. TMC)
 
 CHÚ THÍCH
 Pure là các uẩn thuộc về quá khứ.
@@ -48059,11 +47763,11 @@ Mahesiṃ vijitāvinaṁ
 Anejaṁ nahātakaṁ budbhaṁ
 Tam ahaṃ brūmi brāhmaṇaṁ"
 
-_- "Bậc Ngưu vương thù thắng_
-Bậc anh hùng đại sĩ
-Bậc chiến thắng không nhiễm
-Bậc tẩy sạch Giác ngộ
-Ta gọi Bà la môn" (HT. TMC)
+- _"Bậc Ngưu vương thù thắng_
+  Bậc anh hùng đại sĩ
+  Bậc chiến thắng không nhiễm
+  Bậc tẩy sạch Giác ngộ
+  Ta gọi Bà la môn" (HT. TMC)
 
 CHÚ THÍCH
 Nên hiểu ý nghĩa của kệ ngôn nầy như sau:
@@ -48080,7 +47784,6 @@ NGƯỜI ĐÃ TẨY SẠCH là đã rửa sạch phiền não.
 NGƯỜI ĐÃ GIÁC NGỘ là đã thấu triệt cả TỨ ĐẾ. Người ấy Như Lai gọi Bà la môn.
 Dứt pháp thoại, nhiều người chứng đắc quả thánh như Dự lưu.
 DỨT TÍCH: TRƯỞNG LÃO AṄGULIMĀLA
-
 
 ### XXVI. 40- BÀ LA MÔN DEVAHITA
 
@@ -48125,13 +47828,13 @@ Abhiññā vosito muni.
 Sabbavositavosānaṁ
 Tam ahaṁ brūmi brāhmaṇaṁ"
 
-_- "Ai biết được đời trước_
-Thấy thiên giới đạo xứ
-Đạt được danh đoạn diệt
-Thắng trí tự viên thành
-Bậc Mâu Ni Đại Sĩ
-Viên mãn mọi thành tựu
-Ta gọi Bà la môn" (HT. TMC)
+- _"Ai biết được đời trước_
+  Thấy thiên giới đạo xứ
+  Đạt được danh đoạn diệt
+  Thắng trí tự viên thành
+  Bậc Mâu Ni Đại Sĩ
+  Viên mãn mọi thành tựu
+  Ta gọi Bà la môn" (HT. TMC)
 
 CHÚ THÍCH
 Nên hiểu ý nghĩa của kệ ngôn nầy như sau:
@@ -48150,6 +47853,5 @@ Dứt pháp thoại, nhiều người thành đạt thánh quả. Bà la môn De
 Tam Bảo, tự tuyên bố mình là người cận sự nam trọn đời.
 
 DỨT TÍCH: BÀ LA MÔN DEVAHITA
-
 
 Evaṁ Niṭṭhitaṁ
