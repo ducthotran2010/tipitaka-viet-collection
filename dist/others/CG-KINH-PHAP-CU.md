@@ -1594,7 +1594,9 @@ lão. Trưởng lão làm thinh nhận lời, nhưng bất ngờ thay có một 
 
 - Bạch Ngài, năm nay Ngài được bao nhiêu hạ? (tuổi đạo của Tỳ Khưu).
 - Ta chưa có hạ nào hết. Ta tuy lớn tuổi nhưng vừa mới xuất gia.
-  Vị sư trẻ phát nói nặng lời rằng:
+
+Vị sư trẻ phát nói nặng lời rằng:
+
 - Nầy ông sư già mất dạy, cống cao ngã mạn, không biết tự lượng, ông trông thấy các Ngài
   Trưởng Lão trong nhóm đây mà không chào hỏi theo pháp. Các Ngài ngỡ ông cao hạ nên xin phục
   dịch ông, ông cũng làm thinh, đã vậy mà còn trân tráo, không tỏ ra vẻ gì là biết ăn năn hối ngộ.
@@ -1615,8 +1617,9 @@ lắm!
 Thấy Trưởng lão, Đức Bổn Sư bèn hỏi:
 
 - Nầy Tissa! Ông làm gì mà buồn rầu khổ sở, mặt mày đẫm lệ, đến đây còn khóc vậy?
-  Nhóm khách Tăng bảo nhau: “Nếu để ông ta đi một mình, ông ta có thể gây ra nhiều chuyện
-  rắc rối”, nên cũng đi theo Trưởng lão, đến nơi đảnh lễ Đức Tôn Sư rồi ngồi qua một bên.
+
+Nhóm khách Tăng bảo nhau: “Nếu để ông ta đi một mình, ông ta có thể gây ra nhiều chuyện
+rắc rối”, nên cũng đi theo Trưởng lão, đến nơi đảnh lễ Đức Tôn Sư rồi ngồi qua một bên.
 
 Sẵn dịp đó, Trưởng lão Tissa “mét” với Đức Bổn Sư:
 
@@ -1637,9 +1640,13 @@ Sẵn dịp đó, Trưởng lão Tissa “mét” với Đức Bổn Sư:
 - Bạch Ngài! Mấy ông nầy đã mắng nhiếc tôi, tôi không thể sám hối với mấy ông nầy đâu?
 - Nầy Tissa, không nên như thế, ông phải xin sám hối đi.
 - Bạch Ngài, tôi nhứt định không sám hối đâu?
-  Chư Tăng thấy vậy bạch rằng:
+
+Chư Tăng thấy vậy bạch rằng:
+
 - Bạch Ngài! Ông này thật đúng là một ông sư ương ngạnh (cứng đầu).
-  Nghe vậy, Đức Tôn Sư bảo Chư Tăng rằng:
+
+Nghe vậy, Đức Tôn Sư bảo Chư Tăng rằng:
+
 - Nầy các Tỳ Khưu, đây không phải là lần đầu tiên đâu. Trong tiền kiếp ông ta cũng đã tỏ ra
   ương ngạnh như vậy rồi.
 - Bạch Ngài, hiện tại đây ông ta bướng bỉnh thế nào chúng con đã thấy biết, còn trong kiếp quá
@@ -1662,7 +1669,9 @@ Từ miền Tuyết Sơn về đến cổng thành, đạo sĩ gặp mấy đứ
 Đạo sĩ xăm xăm đến chỗ trại làm đồ gốm, đứng ngoài cửa nói vọng vào:
 
 - Xin gia chủ hoan hỷ cho bần đạo tá túc một đêm trong quí trại.
-  Chủ lò gốm đáp:
+
+Chủ lò gốm đáp:
+
 - Chúng tôi không có làm đêm trong trại, trại rộng có thiếu chi chỗ trống, Ngài cứ tùy tiện vào
   đó ngủ nghỉ.
 
@@ -1674,11 +1683,14 @@ thành, đến trại ông chủ lò gốm xin ngủ nhờ một đêm.
 không, điều ấy không can gì đến ta”, nghĩ rồi bèn nói:
 
 - Bạch Ngài, nếu vị đạo sĩ đến trước bằng lòng thì Ngài cứ tha hồ vào đó nghỉ ngơi.
-  Vì thế, đạo sĩ Na La Đa đến xin hỏi đạo sĩ Đê Quí Lá:
+
+Vì thế, đạo sĩ Na La Đa đến xin hỏi đạo sĩ Đê Quí Lá:
+
 - Bạch thầy, xin thầy hoan hỷ cho tôi ngủ chung một đêm được không?
 - Gian trại rộng thinh, thầy hãy vào đây nghỉ ở một phía đi!
-  Nghe vậy, đạo sĩ mới đi vào phía trong cổng, ngồi sau chỗ đạo sĩ Đê Quí Lá, hai bạn tu hành
-  chuyện vãn hàn huyên một hồi, kề tới giờ tắt đèn đi ngủ.
+
+Nghe vậy, đạo sĩ mới đi vào phía trong cổng, ngồi sau chỗ đạo sĩ Đê Quí Lá, hai bạn tu hành
+chuyện vãn hàn huyên một hồi, kề tới giờ tắt đèn đi ngủ.
 
 Trước khi nằm xuống, đạo sĩ Na La Đa để ý ghi nhớ chỗ cửa ra vào và chỗ nằm của đạo sĩ Đê
 Quí Lá, không dè ông nầy không nằm ngay chỗ mình đã ngồi, mà lại đến nằm ngang cửa cái.
@@ -1689,16 +1701,19 @@ Ban đêm, đạo sĩ Na La Đa đi ra, rủi đạp nhằm bính tóc của đ�
 - Bạch thầy, tôi. Đạo sĩ Na La Đa đáp.
 - Đồ giả tu, Đê Quí Lá mắng: “Ngươi từ rừng rú về đây để đạp tóc ta phải không?”.
 - Bạch thầy, tôi thật tình không biết thầy ra nằm đây. Xin thầy hoan hỷ thứ lỗi cho tôi.
-  Nói rồi, đạo sĩ Na La Đa đi luôn ra ngoài không lưu ý đến đạo sĩ Đê Quí Lá đang còn nằm khóc
-  tức tửi. Một lát sau, ông nầy nằm nói thầm một mình: “Nếu ta nằm nguyên chỗ cũ, hắn ta trở vào và
-  đạp nhằm ta nữa”. Ông bèn nằm day đầu về phía dưới chân.
+
+Nói rồi, đạo sĩ Na La Đa đi luôn ra ngoài không lưu ý đến đạo sĩ Đê Quí Lá đang còn nằm khóc
+tức tửi. Một lát sau, ông nầy nằm nói thầm một mình: “Nếu ta nằm nguyên chỗ cũ, hắn ta trở vào và
+đạp nhằm ta nữa”. Ông bèn nằm day đầu về phía dưới chân.
 
 Đến khi đạo sĩ Na La Đa trở vào, cũng tính thầm: “Lần trước ta đi phía nầy, đã đạp nhằm bình
 tóc của ông thầy, bây giờ ta đi vô phải tránh xuống phía dưới chân ông thầy mới được”. Nhưng vừa
 bước vô, đạo sĩ Na La Đa đã đạp trúng cần cổ của đạo sĩ Đê Quí Lá, ông ta la lên: “Ai đó?”.
 
 - Bạch thầy, tôi.
-  Đạo sĩ Na La Đa vừa lên tiếng, đã bị đạo sĩ Đê Quí Lá mắng rằng:
+
+Đạo sĩ Na La Đa vừa lên tiếng, đã bị đạo sĩ Đê Quí Lá mắng rằng:
+
 - Đồ giả tu! Lần trước đã đạp bính tóc của ta, lần nầy lại còn đạp lên cổ của ta nữa, ta sẽ
   nguyền rủa nhà ngươi cho mà coi.
 
@@ -1709,7 +1724,8 @@ Nghe vậy, đạo sĩ Na La Đa phân trần, biện minh rằng:
   nhằm, xin thầy hoan hỷ miễn thứ.
 - Đồ giả tu! Ta sẽ nguyền rủa nhà ngươi.
 - Xin thầy đừng làm như vậy.
-  Không đếm xỉa đến lời xin lỗi của đối phương, đạo sĩ Đê Quí Lá cất tiếng nguyền rủa rằng:
+
+Không đếm xỉa đến lời xin lỗi của đối phương, đạo sĩ Đê Quí Lá cất tiếng nguyền rủa rằng:
 
 _“Sahassaraṁsi satatejo
 Suriyo tamavinodano
@@ -1720,6 +1736,7 @@ Muddhā te phalatu sattadhāti”._
 Mặt trời quét sạch cảnh u minh.
 Cho đầu ngươi nứt ra bảy mảnh,
 Lúc mặt trời mai ló dạng hình”.
+
 Đạo sĩ Na La Đa nói:
 
 - Thầy ơi! Tôi là người không có lỗi chi mà thầy chẳng kể lời tôi, cứ nguyền rủa đại như thế, ai
@@ -1730,6 +1747,7 @@ _Với ngàn tia sáng trăm ngọn lửa,
 Mặt trời quét sạch cảnh u minh.
 Cho đầu thầy nứt ra bảy khứa,
 Lúc mặt trời mai ló dạng hình”._
+
 Đạo sĩ Na La Đa vốn là một bậc thần thông quảng đại, có thể biết được bốn mươi kiếp quá khứ,
 bốn mươi kiếp vị lai, cộng chung là tám mươi kiếp trái đất (kappa). Sau khi nguyền rủa, đạo sĩ hỏi:
 “Ai sẽ mắc lời thề độc nầy?”, nhờ tịnh tâm quán xét đạo sĩ thấy biết: “Ông nầy sẽ bị bể đầu”, nên
@@ -1747,8 +1765,9 @@ gia đạo sĩ đã tranh chấp nhau đây chứ gì?”.
 
 - Trong thành hiện nay, có vị xuất gia tu hành nào chăng?
 - Muôn tâu Thánh thượng! Chiều hôm qua có hai vị đạo sĩ mới đến, tá túc tại trại đồ gốm.
-  Nghe vậy, đức vua lập tức truyền lịnh khiến quân thắp đuốc soi đường, đoạn Ngài thân hành
-  ngự giá đến trại đồ gốm, đảnh lễ đạo sĩ Na La Đa xong, ngồi xuống một bên rồi hỏi bằng kệ rằng:
+
+Nghe vậy, đức vua lập tức truyền lịnh khiến quân thắp đuốc soi đường, đoạn Ngài thân hành
+ngự giá đến trại đồ gốm, đảnh lễ đạo sĩ Na La Đa xong, ngồi xuống một bên rồi hỏi bằng kệ rằng:
 
 _“Kammantā nappavattanti
 Jambūdīpassa Na La Đa
@@ -1761,6 +1780,7 @@ Bóng đen bao phủ khắp tứ vi,
 Khiến cho dân chúng không đi ăn làm.
 Chắc có lẽ Ngài am hiểu đạo,
 Trẫm xin Ngài chỉ giáo phân minh”.
+
 Đạo sĩ Na La Đa đem hết sự việc thuật lại cho vua nghe, rồi nói:
 
 - “..vì lẽ ấy, Ta bị đạo huynh nầy nguyền rủa và ta cũng có nguyền rủa lại như vậy. Ta không có
@@ -1773,14 +1793,16 @@ Trẫm xin Ngài chỉ giáo phân minh”.
 - Vậy thì đạo trưởng hãy sám hối với Ngài đi.
 - Hắn đã đạp tóc, đạp cổ ta, không bao giờ ta lại đi sám hối với kẻ giả tu như thế.
 - Bạch đạo trưởng! Đừng nên làm thế hãy chịu sám hối đi.
-
 - Ta không sám hối đâu?
 - Đầu đạo trưởng sẽ bị nứt ra làm bảy mảnh.
-  Dầu nghe lời hăm dọa như thế, đạo sĩ Đê Quí Lá cũng nhứt quyết không chịu sám hối, khi ấy
-  đức vua phán:
+
+Dầu nghe lời hăm dọa như thế, đạo sĩ Đê Quí Lá cũng nhứt quyết không chịu sám hối, khi ấy
+đức vua phán:
+
 - Chắc đạo sĩ nầy không tự mình xuống nước nhận lỗi phải không?
-  Nói rồi, đức vua truyền lịnh cho thị vệ nắm tay, nắm chân, nắm lưng, nắm cổ của đạo sĩ Đê Quí
-  Lá, đè ông ta xuống bắt phải mọp đầu dưới chân đạo sĩ Na La Đa.
+
+Nói rồi, đức vua truyền lịnh cho thị vệ nắm tay, nắm chân, nắm lưng, nắm cổ của đạo sĩ Đê Quí
+Lá, đè ông ta xuống bắt phải mọp đầu dưới chân đạo sĩ Na La Đa.
 
 Đạo sĩ Na La Đa nói: “Thôi, thầy (ācariya) hãy bình thân, ta miễn lỗi cho thầy rồi đó”. Rồi đạo sĩ
 Na La Đa tâu với đức vua:
@@ -1824,6 +1846,7 @@ Hận lòng người chẳng nguôi (7).
 .........................
 Người không chấp niệm ấy(8),
 Hận lòng người sẽ nguôi (9)._
+
 (1) Nó mắng (Akkocchi), đây là nhiếc mắng, chưởi rủa.
 (2) **_Đánh (Avadhi)_** : là đánh đập.
 (3) **_Áp chế (Ajini)_** : là bắt phải khuất phục bằng lời nói xuôi ngược, hoặc việc làm cao thấp để
@@ -1896,9 +1919,10 @@ bèn nói vói rằng:
 
 - Má định nói con ai vậy?
 - Cô con gái nhà ông Mỗ, bà mẹ đáp.
-  Thiếu niên nghe rồi, cản mẹ lại và ngỏ lời chỉ nhà cô gái mà cậu ông ý.
-  Chìu lòng con, bà mẹ đi ngay đến nhà ấy, dạm hỏi con gái chủ nhà cho con trai mình, định ngày
-  làm lễ cưới. Và đến ngày ấy rước dâu về, cho con có người nội trợ.
+
+Thiếu niên nghe rồi, cản mẹ lại và ngỏ lời chỉ nhà cô gái mà cậu ông ý.
+Chìu lòng con, bà mẹ đi ngay đến nhà ấy, dạm hỏi con gái chủ nhà cho con trai mình, định ngày
+làm lễ cưới. Và đến ngày ấy rước dâu về, cho con có người nội trợ.
 
 Cô vợ hiếm hoi, ở với chồng một thời gian khá lâu mà không sinh nở, thấy vậy bà mẹ bảo người
 con trai:
@@ -1931,10 +1955,11 @@ con mới được”.
 Thế nên, cô đinh ninh dặn dò cô vợ bé rằng:
 
 - Dì nó à! Khi nào dì cấn thai thì báo cho chị biết nghe không.
-  Cô vợ bé vô tình đáp lại: “Dạ...dạ”.
-  Y theo lời hứa, khi biết mình có nghén, cô vợ bé bèn báo tin cho cô Thạch Nữ hay.
-  Cô nầy đã có dụng ý từ trước, nên hằng ngày thường làm ra vẻ yêu thương, tự tay nấu cơm cháo
-  bưng đem cho cô vợ bé ăn.
+
+Cô vợ bé vô tình đáp lại: “Dạ...dạ”.
+Y theo lời hứa, khi biết mình có nghén, cô vợ bé bèn báo tin cho cô Thạch Nữ hay.
+Cô nầy đã có dụng ý từ trước, nên hằng ngày thường làm ra vẻ yêu thương, tự tay nấu cơm cháo
+bưng đem cho cô vợ bé ăn.
 
 Khi được biết tin cô vợ bé thọ thai, cô ta bèn trộn lẫn thuốc phá thai vào vật thực cho cô vợ bé
 và kết quả là cái thai bị xảo.
@@ -1968,8 +1993,9 @@ thai làm nữ Dạ Xoa (Yakkhinī) để ăn thịt mấy đứa con mầy lạ
 Dứt lời, cô ta tắt hơi luôn, thọ sanh làm con mèo cái (majjārī) trong nhà.
 Còn cô Thạch Nữ bị chồng lôi ra mắng rằng:
 
-- Con ác phụ, mầy đã báo hại làm cho tao phải tuyệt tự. Chưa đã nư giận, chồng cô còn thúc cùi
-  chỏ lên gối, thẳng tay đấm đá một cách tàn nhẫn.
+- Con ác phụ, mầy đã báo hại làm cho tao phải tuyệt tự.
+
+Chưa đã nư giận, chồng cô còn thúc cùi chỏ lên gối, thẳng tay đấm đá một cách tàn nhẫn.
 
 Bị trận đòn chí tử, cô Thạch Nữ đau nặng bỏ mình luôn, chuyển kiếp làm con gà mái trong nhà.
 Không bao lâu, con gà mái lớn lên, bắt đầu đẻ trứng, con mèo rình ăn trộm ổ trứng đầu tiên của
@@ -1995,12 +2021,15 @@ hỏi thăm người nhà của thiếu phụ rằng:
 
 - Chị bạn thiết của tôi đâu?
 - Nằm ở trong buồng, mới sanh con.
-  Nghe vậy, nữ Dạ Xoa nói:
+
+Nghe vậy, nữ Dạ Xoa nói:
+
 - Để tôi vô thăm coi sanh trai hay gái.
-  Dạ Xoa vô buồng giả vờ ẵm đứa hài nhi sơ sinh, ăn thịt rồi biến mất.
-  Lần thứ hai thiếu phụ sanh con, cũng bị nữ Dạ Xoa hiện đến ăn thịt như thế.
-  Đến lần thứ ba, khi mang thai gần đến ngày sanh, thiếu phụ bảo chồng rằng: “Mình ơi! Tại đây
-  có con chằn cái, nó đã ăn thịt con ta hai lần rồi, kỳ nầy em muốn về nhà ba má em để nằm chờ”.
+
+Dạ Xoa vô buồng giả vờ ẵm đứa hài nhi sơ sinh, ăn thịt rồi biến mất.
+Lần thứ hai thiếu phụ sanh con, cũng bị nữ Dạ Xoa hiện đến ăn thịt như thế.
+Đến lần thứ ba, khi mang thai gần đến ngày sanh, thiếu phụ bảo chồng rằng: “Mình ơi! Tại đây
+có con chằn cái, nó đã ăn thịt con ta hai lần rồi, kỳ nầy em muốn về nhà ba má em để nằm chờ”.
 
 Và thiếu phụ sanh đứa con thứ ba tại nhà cha mẹ ruột của mình tại thành Sāvatthī.
 Trong khi ấy nữ Dạ Xoa có phận sự phải đi đội chuyền nước.
@@ -2022,11 +2051,12 @@ Ngày ấy, nhằm ngày lễ đặt tên cho đứa con mới sanh, thiếu ph�
 tên cho nó và nói với chồng:
 
 - Anh ạ! Bây giờ chúng mình trở về nhà.
-  Nói đoạn, thiếu phụ bồng con theo chồng lên đường trở về chốn cũ.
-  Khi đi ngang qua Tịnh xá Kỳ Viên, tới chỗ ao hồ, thiếu phụ trao con cho chồng ẵm, lội xuống
-  tắm dưới ao, tắm xong nàng lên bờ ẵm con cho chồng xuống tắm. Thiếu phụ đứng trên bờ hồ đang
-  cho con bú, bỗng thấy dáng con Dạ Xoa lù lù chạy tới. Khi nhận biết đích xác là nó rồi, thiếu phụ lớn
-  tiếng ríu rít kêu chồng: “Anh ơi! Anh ơi! Mau lên, con Dạ Xoa nó tới đây rồi nè”.
+
+Nói đoạn, thiếu phụ bồng con theo chồng lên đường trở về chốn cũ.
+Khi đi ngang qua Tịnh xá Kỳ Viên, tới chỗ ao hồ, thiếu phụ trao con cho chồng ẵm, lội xuống
+tắm dưới ao, tắm xong nàng lên bờ ẵm con cho chồng xuống tắm. Thiếu phụ đứng trên bờ hồ đang
+cho con bú, bỗng thấy dáng con Dạ Xoa lù lù chạy tới. Khi nhận biết đích xác là nó rồi, thiếu phụ lớn
+tiếng ríu rít kêu chồng: “Anh ơi! Anh ơi! Mau lên, con Dạ Xoa nó tới đây rồi nè”.
 
 Liệu chồng lên không kịp, thiếu phụ ẵm con quày quả cắm đầu chạy ngay vào trong Tịnh xá.
 Lúc bấy giờ, Đức Bổn Sư đang ngồi thuyết pháp giữa tứ chúng. Thiếu phụ đặt đứa hài nhi dưới
@@ -2037,15 +2067,20 @@ Ngoài cổng tam quan, nữ Dạ Xoa bị Chư Thiên Sumana (Thiện Ý) đứ
 không cho vào Tịnh xá. Đức Bổn Sư bèn kêu Trưởng Lão Ānanda và dạy rằng:
 
 - Nầy Ānanda, hãy ra gọi nữ Dạ Xoa vào đây.
-  Trưởng Lão Ānanda ra gọi nữ Dạ Xoa vào. Thiếu phụ la lên:
+
+Trưởng Lão Ānanda ra gọi nữ Dạ Xoa vào. Thiếu phụ la lên:
+
 - Bạch Ngài! “Nó” vào đó.
-  Đức Bổn Sư bảo:
+
+Đức Bổn Sư bảo:
+
 - Cứ để yên cho nó vô, đừng làm ồn.
-  Khi nữ Dạ Xoa vào đến nơi, đứng trước Đức Bổn Sư, Ngài khiển trách rằng: “Tại sao ngươi làm
-  như vậy. Nếu các ngươi không có duyên lành được diện kiến một vị Phật như Ta, thì các ngươi còn
-  buộc oan trái với nhau mãi mãi cho đến hết một kiếp của quả địa cầu nầy (kappa) như con rắn với
-  con mông thử (Nāgamissatha) hễ gặp nhau là run rẩy, sừng sộ, sôi sục hận thù, hay như con quạ với
-  con chim cú vậy.
+
+Khi nữ Dạ Xoa vào đến nơi, đứng trước Đức Bổn Sư, Ngài khiển trách rằng: “Tại sao ngươi làm
+như vậy. Nếu các ngươi không có duyên lành được diện kiến một vị Phật như Ta, thì các ngươi còn
+buộc oan trái với nhau mãi mãi cho đến hết một kiếp của quả địa cầu nầy (kappa) như con rắn với
+con mông thử (Nāgamissatha) hễ gặp nhau là run rẩy, sừng sộ, sôi sục hận thù, hay như con quạ với
+con chim cú vậy.
 
 Tại sao các ngươi lấy hận rửa hận, lấy oán báo oán, thù hận chỉ có thể dập tắt bằng từ bi, chứ
 không phải bằng hận thù được. Nói rồi Đức Bổn Sư đọc bài kệ:
@@ -2079,14 +2114,17 @@ hưởng được sự lợi ích. Kế đó, Đức Bổn Sư bảo thiếu ph�
 - Con hãy trao đứa hài nhi qua nữ Dạ Xoa.
 - Bạch Ngài, con không dám.
 - Chớ nên sợ vô lý, không can gì đâu.
-  Thiếu phụ bạo gan đưa con mình qua tay nữ Dạ Xoa, nữ Dạ Xoa tiếp ẵm đứa bé vào lòng, hôn
-  hít, nựng nịu rồi trao trả lại cho mẹ nó, rồi phát khóc ấm ức. Đức Bổn Sư liền hỏi:
+
+Thiếu phụ bạo gan đưa con mình qua tay nữ Dạ Xoa, nữ Dạ Xoa tiếp ẵm đứa bé vào lòng, hôn
+hít, nựng nịu rồi trao trả lại cho mẹ nó, rồi phát khóc ấm ức. Đức Bổn Sư liền hỏi:
+
 - Sao ngươi lại khóc?
 - Bạch Ngài, lúc trước con dùng đủ phương nầy chước nọ để nuôi mạng sống mà còn đói lên đói
   xuống, không được no lòng, bây giờ con sẽ sống bằng cách nào đây.
 - Ngươi chớ nên quá lo âu.
-  Sau khi an ủi Dạ Xoa, Đức Bổn Sư day qua bảo thiếu phụ rằng: - “Con hãy đem nó về nhà, cho
-  nó ở chung và cấp dưỡng cao lương mỹ vị cho nó”.
+
+Sau khi an ủi Dạ Xoa, Đức Bổn Sư day qua bảo thiếu phụ rằng: - “Con hãy đem nó về nhà, cho
+nó ở chung và cấp dưỡng cao lương mỹ vị cho nó”.
 
 Thiếu phụ dắt nữ Dạ Xoa về nhà, cho ở một chái phía sau và hằng ngày cúng dường cơm cháo
 bánh trái, toàn thứ ngon lành thượng hạng.
@@ -2095,11 +2133,12 @@ Tới khi trong nhà đập lúa, Dạ Xoa thấy đòn xóc giơ lên cao, sợ
 nói với thiếu phụ:
 
 - Tôi không thể nào ở đây lâu hơn nữa, bạn kiếm cho tôi một chỗ khác.
-  Thiếu phụ đưa Dạ xoa đi lựa chỗ, lần lượt từ chái nhà kho trữ đòn xóc, vào nhà tắm, vào nhà
-  bếp, vào chòi dựa xoài, rồi ra chỗ đống rác, ra tận cổng làng.... đến chỗ nào Dạ Xoa cũng lắc đầu
-  không chịu ở, nói rằng: “Ở đây thấy đòn đập lúa giơ lên giơ xuống, tôi sợ trúng nhằm đầu tôi sẽ bể
-  hai... ở đây con nít tạt xối nước dơ... ở đây có chó nằm... ở đây trẻ con phóng uế.. ở đây người ta đổ
-  rác... ở đây, lũ trẻ trong làng làm thầy coi tướng v.v...”.
+
+Thiếu phụ đưa Dạ xoa đi lựa chỗ, lần lượt từ chái nhà kho trữ đòn xóc, vào nhà tắm, vào nhà
+bếp, vào chòi dựa xoài, rồi ra chỗ đống rác, ra tận cổng làng.... đến chỗ nào Dạ Xoa cũng lắc đầu
+không chịu ở, nói rằng: “Ở đây thấy đòn đập lúa giơ lên giơ xuống, tôi sợ trúng nhằm đầu tôi sẽ bể
+hai... ở đây con nít tạt xối nước dơ... ở đây có chó nằm... ở đây trẻ con phóng uế.. ở đây người ta đổ
+rác... ở đây, lũ trẻ trong làng làm thầy coi tướng v.v...”.
 
 Cuối cùng, thiếu phụ đưa nữ Dạ Xoa ra tới ngoại ô, chọn một địa điểm an tịnh vắng lặng. Nữ Dạ
 Xoa bằng lòng ở đó, hằng ngày thiếu phụ vẫn đem món ăn thượng vị cung cấp cho nó.
@@ -2108,9 +2147,8 @@ Nữ Dạ Xoa tự nghĩ: “Cô bạn của ta đối xử với ta rất mực
 đức trọng hậu của người trong muôn một”.
 
 Rồi nữ Dạ Xoa nói cho cô bạn biết rằng: “Năm nay trời sẽ mưa nhiều, bạn nên gieo trồng trên
-chỗ đất gò”.
+chỗ đất gò”. “Năm nay nắng hạn, bạn nên gieo trồng trên chỗ đất bưng”.
 
-“Năm nay nắng hạn, bạn nên gieo trồng trên chỗ đất bưng”.
 Nhờ đó, năm nào thiếu phụ cũng được trúng mùa, cửa nhà sung túc, trong khi mùa màng của
 những người khác đều bị hư hại vì mưa già hay nắng hạn.
 
@@ -2121,10 +2159,7 @@ phải không? Hay là chị làm cách nào?”.
 
 Thiếu phụ tỏ thật rằng:
 
-- Tôi có cô bạn nữ Dạ Xoa, cô ta tiên đoán biết trước thời tiết mỗi năm mưa nhiều hay nắng
-  nhiều, đều có nói cho chúng tôi hay, chúng tôi theo lời cô ta chỉ dẫn mà làm mùa, nhờ vậy năm nào
-  chúng tôi cũng trúng. Vậy chứ bà con không thấy ngày ngày chúng tôi đem cơm cháo, bánh trái đi ra hay sao? Đó là những vật thực chúng tôi đem đến cung cấp cho cô ta vậy. Bà con muốn cậy cô ta chỉ
-biểu dùm cho, thì cứ đem vật thực ngon lành đến biếu cô ta là được chớ gì.
+- Tôi có cô bạn nữ Dạ Xoa, cô ta tiên đoán biết trước thời tiết mỗi năm mưa nhiều hay nắng nhiều, đều có nói cho chúng tôi hay, chúng tôi theo lời cô ta chỉ dẫn mà làm mùa, nhờ vậy năm nào chúng tôi cũng trúng. Vậy chứ bà con không thấy ngày ngày chúng tôi đem cơm cháo, bánh trái đi ra hay sao? Đó là những vật thực chúng tôi đem đến cung cấp cho cô ta vậy. Bà con muốn cậy cô ta chỉ biểu dùm cho, thì cứ đem vật thực ngon lành đến biếu cô ta là được chớ gì.
 
 Khi ấy, tất cả cư dân trong thành tranh nhau mang lễ vật đến.
 Từ đó về sau, nữ Dạ Xoa làm bà thầy hướng dẫn nông nghiệp cho mọi người, được cúng dường
@@ -2222,7 +2257,6 @@ bảy thứ quả của tài thí đều do tâm cả, xin nhắc lại là:
 5- Bố thí bằng tâm vui thích thì sẽ sanh lên cõi trời thứ năm là Hóa Lạc.
 6- Bố thí bằng tâm giúp cho người được an vui đầy đủ thì được sanh lên cõi trời thứ sáu là Tha
 Hóa Tự Tại.
-
 7- Bố thí không cầu mong hưởng quả, chỉ để xả ly tham, sân, si, nhất là lòng bỏn xẻn thì được
 sanh lên cõi Phạm Thiên (vì đã hết dục vọng).
 
@@ -2241,8 +2275,7 @@ cũng nhắc nhở các đệ tử: “Hãy là người thừa tự pháp, ch�
 Lai”.
 
 Nhiều vị cư sĩ muốn xuất gia mà ngại thiếu thốn vật thực, vật chất, không thể tu được nên ráng
-làm phước để dành làm hậu bị thực. Các vị quá sợ khổ như vậy, không thể nào dám Minh sát Khổ, và
-
+làm phước để dành làm hậu bị thực. Các vị quá sợ khổ như vậy, không thể nào dám Minh sát Khổ, v
 nếu ráng học nhiều pháp thì chỉ biết cái khổ bằng lý thuyết suông. Vả lại đem hết tài sản bố thí cúng
 dường lớn lao trọng đại như ông Cấp Cô Độc hay bà Visākhā, phước báu chẳng hơn gì người thợ hàng
 hoa Sumana được Phật thọ ký là Phật Độc Giác sau nầy.
@@ -2269,12 +2302,15 @@ ra đây:
 8- Ăn no quá độ rồi bị hôn mê mà chết nên không thể niệm Phật được.
 9- Chết trong trận giặc không thể niệm Phật được.
 10- Té xuống từ núi cao mà chết, không niệm Phật được.
+
 Hành giả Minh sát Khổ thường xuyên giác ngộ lý Tứ Đế không sợ mê muội vào lúc lâm chung,
 dù không niệm Phật nhưng vẫn chánh niệm, giác tỉnh thì không bao giờ sa đọa xuống khổ cảnh.
 Nhưng hành giả không nên giãi đãi dễ duôi, mà phải bắt đầu cho sớm thành thói quen, đừng đợi tuổi
 già mới Minh sát khổ.
+
 _Mạc đại lão lai phương quán khổ
 Cô phần đa thị thiếu niên nhân._
+
 III- Xã hội Ấn Độ trước thời Đức Phật, đã phân ra làm bốn giai cấp. Theo Luật Đức Bàn Cổ
 (Mano) đã ấn định bốn cách nầy căn cứ vào dòng dõi; tuy sống chung trong một xứ nhưng mỗi dòng
 chỉ kết hôn với người đồng dòng với mình thôi, chứ không chịu thứ con lai hai dòng. Cấp Bà la môn là
@@ -2299,16 +2335,13 @@ Bàn rồi, mới chịu bỏ tánh tự tôn và đắc quả A La Hán.
 Hán, nhờ giác ngộ rằng Ngũ uẩn không phải là ta, ta không phải là Ngũ uẩn.. Tiếng Anatta chính
 Đức Phật đã giải thích rằng: “N'etaṁ mama nesohamasmivana me so atta” như đã dịch ở trên, nhưng
 ngày xưa các Ngài Trưởng Lão thông Hán tự nên dịch là Vô ngã, khiến cho lắm Phật tử hiểu lầm là
-
 không có cái ngã. Vả lại, các Pháp sư nhất là Luật sư dùng thuyết Vô ngã để chống lại chủ trương Bà
-la môn giáo: họ cho con người là một tiểu ngã, sau khi hết luân hồi sẽ trở về nhập cái Đại Ngã (Mahā
-
-- atmaṁ) tức là đấng tạo hóa, Phạm Thiên, đây chỉ là một phương tiện huyền ảo, một thứ khí giới để
-  thắng phục địch thủ giỏi biện luận, một phương thuốc đặc biệt để trị bịnh ngã chấp của giai cấp Bà
-  la môn và nhiều nhóm ngoại đạo khác chuyên môn lý luận. Đây không phải là môn thuốc trị bá chứng
-  hoặc môn thuốc hay nhất của vị Y vương, nếu uống không nhằm bệnh người Phật tử vô ý sẽ phát
-  khùng, cho rằng Đức Phật khẳng định rằng tất cả các pháp là Vô ngã (Anattā), hiểu sai như vậy thì
-  hết muốn tu hành, vì có ai đâu nhập Níp Bàn và có ai đâu sa địa ngục.
+la môn giáo: họ cho con người là một tiểu ngã, sau khi hết luân hồi sẽ trở về nhập cái Đại Ngã (Mahā - atmaṁ) tức là đấng tạo hóa, Phạm Thiên, đây chỉ là một phương tiện huyền ảo, một thứ khí giới để
+thắng phục địch thủ giỏi biện luận, một phương thuốc đặc biệt để trị bịnh ngã chấp của giai cấp Bà
+la môn và nhiều nhóm ngoại đạo khác chuyên môn lý luận. Đây không phải là môn thuốc trị bá chứng
+hoặc môn thuốc hay nhất của vị Y vương, nếu uống không nhằm bệnh người Phật tử vô ý sẽ phát
+khùng, cho rằng Đức Phật khẳng định rằng tất cả các pháp là Vô ngã (Anattā), hiểu sai như vậy thì
+hết muốn tu hành, vì có ai đâu nhập Níp Bàn và có ai đâu sa địa ngục.
 
 Quí bạn tinh ý nên đọc qua đoạn đầu Tạng Luật, chỗ Đức Phật đính chánh, những tiếng đồn về
 Ngài là người chủ trương pháp Vô vi là hiểu đừng làm cái chi cả và thuyết Hư vô (Nevayiko) nghĩa là
@@ -2333,23 +2366,17 @@ trọng là phần giáo lý thực tiển, chứa đựng trong sự tích làm
 câu Pháp Cú 3-4 nếu gặp trường hợp như vậy, ta hãy đem trí tuệ mà thuyết phục cái tánh ngã mạn vô
 lối của ta thì ta là người thấu triệt chân lý ẩn trong câu chuyện cổ tích nầy.
 
-IV- Yakkha (Dạ Xoa) là một trong Bát bộ được kể dưới đây (theo tài liệu Từ Bi Âm số 28.. năm
-1935).
+IV- Yakkha (Dạ Xoa) là một trong Bát bộ được kể dưới đây (theo tài liệu Từ Bi Âm số 28.. năm 1935).
 
-1- Càn Thát Bà (Gandhabba) Tàu dịch là Hương Âm, nghĩa là dùng các thứ mùi hương mà thọ
-dụng.
-
-2- Tỳ Xá Xà (Pisaca) Tàu dịch là Đạm tinh khí, nghĩa là ăn uống những đồ tinh khí của người và
-các giống bắp đậu.
-
+1- Càn Thát Bà (Gandhabba) Tàu dịch là Hương Âm, nghĩa là dùng các thứ mùi hương mà thọ dụng.
+2- Tỳ Xá Xà (Pisaca) Tàu dịch là Đạm tinh khí, nghĩa là ăn uống những đồ tinh khí của người và các giống bắp đậu.
 3- Cưu Bàn Trà (Kumbhaṇḍa), Tàu dịch là Ong hình, nghĩa là nam căn giống như cái vò vậy.
 4- Chư Long (Nāga) nghĩa là các thứ Rồng.
 5- Bích Lệ (Peta), Tàu dịch là Ngạ quỉ, nghĩa là thứ quỉ đói khát.
-6- Phú Đơn Na (pūtana) Tàu dịch là Xú ngạ quỉ, nghĩa là thứ ngạ quỉ đói mà thân thể rất hôi
-thúi.
-
+6- Phú Đơn Na (pūtana) Tàu dịch là Xú ngạ quỉ, nghĩa là thứ ngạ quỉ đói mà thân thể rất hôi thúi.
 7- Dạ Xoa (Yakkha) Tàu dịch là Dòng Kiện quỉ, nghĩa là thứ quỉ rất mạnh bạo.
 8- La Sát (Rasasa) Tàu dịch là Bạo ác, nghĩa là thứ quỉ rất dữ tợn, hay ăn thịt người ta.
+
 Tám bộ quỉ thần trên đây, có phát tâm hộ trì Chánh Pháp, cho nên Phật thuyết pháp đến đâu
 thì cũng có các bộ nầy đến hộ vệ và nghe pháp cả. Những chúng sanh nầy, Phật giáo Nam Tông gọi
 là Chư Thiên cõi thấp ở bốn cõi trời Tứ Đại Vương.
@@ -3269,10 +3296,11 @@ Nghĩ rồi, vị ấy bèn thỉnh Trưởng Lão:
 - Bạch Ngài! Ngài có bao nhiêu vị tùy tùng?
 - Một ngàn, nầy Thiện nam.
 - Bạch Ngài! Xin thỉnh Ngài luôn với tất cả Chư Tăng ngày mai đến nhà để thọ thực.
-  Trưởng Lão im lặng nhận lời.
-  Trên đại lộ vào thành, gặp người nào ông Thiện nam ấy cũng rủ: “Nầy quí ông bà. Tôi xin thỉnh
-  Trai Tăng được một ngàn vị sư. Quí ông có thể hùn phước cúng dường chừng bao nhiêu vị? Quí bà
-  chừng bao nhiêu vị?”.
+
+Trưởng Lão im lặng nhận lời.
+Trên đại lộ vào thành, gặp người nào ông Thiện nam ấy cũng rủ: “Nầy quí ông bà. Tôi xin thỉnh
+Trai Tăng được một ngàn vị sư. Quí ông có thể hùn phước cúng dường chừng bao nhiêu vị? Quí bà
+chừng bao nhiêu vị?”.
 
 Mỗi người hứa cúng nhiều ít tùy theo phương tiện của mình. Họ nói: “Chúng tôi xin cúng mười
 vị, chúng tôi hai mươi vị, chúng tôi ba mươi vị, chúng tôi năm mươi vị, chúng tôi một trăm vị..”.
@@ -3991,7 +4019,7 @@ Một hôm thấy một phụ nữ có mang, họ bèn xúm nhau đưa vào bãi
 - Các anh đem thiêu nhé!
   Năm người được chỉ thị ở lại mộ địa, kỳ dư bao nhiêu đều trở về làng. Thanh niên Yasa đứng chỉ
   huy việc thiêu này, chàng dùng cây nhọn đâm lưng cái xác cho chảy bớt nước và lật qua lật lại cho mau cháy. Chăm chỉ nhìn cây đuốc thịt đang biến thành than, chàng bỗng đâm ra nhờm gớm cái tử
-thi một cách lạ thường, đó là triệu chứng trong tâm chàng phát sanh bất tịnh tưởng (Asubhasaññā).
+  thi một cách lạ thường, đó là triệu chứng trong tâm chàng phát sanh bất tịnh tưởng (Asubhasaññā).
 
 Yasa kêu bốn chàng kia lại chỉ: “Quí vị ơi! Hãy nhìn cho kỹ xác chết nầy, da của nó nứt nẻ loang
 lỗ từng đốm giống hệt như miếng da bò, thật là bẩn thỉu, hôi tanh, đáng tởm làm sao?”.
@@ -4852,7 +4880,7 @@ Thế rồi, Chư Tăng đem câu chuyện nầy bạch lên Đức Thế Tôn, 
 
 - Nầy các Tỳ Khưu! Vì trong dĩ vãng tâm tư Nanda giống như gian nhà mái lợp thưa thớt, còn
   bây giờ tâm ông ta giống như gian nhà mái lợp kín đáo rồi vậy. Quả thật từ khi nhìn thấy các Thiên nữ, về sau ông đã tịnh tâm tu hành để đạt đến mục đích tối thượng của đời xuất gia, nhờ vậy mà nay
-ông đã đắc kỳ sở nguyện.
+  ông đã đắc kỳ sở nguyện.
 
 Dứt lời, Đức Thế Tôn xướng lên hai bài kệ sau đây:
 _“Yathā, gāraṁ ducchannaṁ
@@ -10916,8 +10944,10 @@ mời ngồi đàng hoàng rồi dâng cúng các thực phẩm thượng vị. 
 Trưởng Lão Tăng, chẳng hay quí Ngài định đi đến đâu?”.
 
 - Nầy bà tín nữ, Chư Tăng đi tìm chỗ thuận tiện, thuận cảnh.
-  Bà đại tín nữ hiểu ngay là: “Ý các Ngài muốn tìm kiếm chỗ để an cư”. Bà liền sụp xuống đảnh
-  lễ và yêu cầu:
+
+Bà đại tín nữ hiểu ngay là: “Ý các Ngài muốn tìm kiếm chỗ để an cư”. Bà liền sụp xuống đảnh
+lễ và yêu cầu:
+
 - Nếu quí Ngài lưu lại nơi đây trong ba tháng an cư nầy, tôi sẽ xin thọ trì Tam qui và Ngũ giới
   và thọ luôn Bát giới trong những ngày Bát quan trai.
 
@@ -10943,10 +10973,13 @@ bà hỏi những người lân cận:
 
 - Các Ngài đi đâu hết cả rồi?
 - Chắc các Ngài đang ngồi riêng nơi chỗ hành đạo của mình.
-  Nghe đáp như vậy, bà lại hỏi:
+
+Nghe đáp như vậy, bà lại hỏi:
+
 - Ta phải làm sao mới được gặp các Ngài đây.
-  Khi ấy, có người hiểu biết nội qui giao ước của Chư Tăng, mới thưa rằng: “Thưa bà! Hễ nghe
-  tiếng kiểng thì Chư Tăng sẽ hội lại”.
+
+Khi ấy, có người hiểu biết nội qui giao ước của Chư Tăng, mới thưa rằng: “Thưa bà! Hễ nghe
+tiếng kiểng thì Chư Tăng sẽ hội lại”.
 
 Bà đại tín nữ liền sai gia nhân đánh kẻng.
 Chư Tỳ Khưu nghe được tín hiệu bất thường, nghĩ chắc có vị Tỳ Khưu nào thọ bịnh nên kêu gọi,
@@ -10989,23 +11022,30 @@ Từ đó về sau, bà lo nấu dọn nhiều thứ khác nhau, vô số thứ 
 biệt, rồi thỉnh Chư Tăng vào ngồi trong nhà, xối nước khai mạc lễ cúng dường và ngỏ lời yêu cầu là:
 
 - Bạch chư Trưởng Lão, các Ngài cần dùng món nào, xin cứ tự tiện lấy món đó mà độ đi.
-  Được lời thỉnh cầu, Chư Tăng thọ dụng cháo, cơm hay vật thực chi khác, tùy theo sở thích.
-  Nhờ độ vật thực thích hợp, các Ngài hành thiền đắc định tâm (ekaggaṁ cittaṁ), với tâm định
-  các Ngài càng tăng tiến pháp Minh sát (Vipassanā), không bao lâu chứng đạt A La Hán quả. Khi ấy,
-  Chư Tăng nghĩ rằng: “Quả thật, nhờ ơn bà đại tín nữ, chúng ta mới thành đạt được như vầy, nếu
-  thiếu vật thực thích hợp thì chúng ta chẳng hưởng thụ được Đạo quả. Bây giờ chờ khi ra hạ, tự tứ
-  Tăng rồi, chúng ta sẽ trở về yết kiến Đức Bổn Sư”.
+
+Được lời thỉnh cầu, Chư Tăng thọ dụng cháo, cơm hay vật thực chi khác, tùy theo sở thích.
+Nhờ độ vật thực thích hợp, các Ngài hành thiền đắc định tâm (ekaggaṁ cittaṁ), với tâm định
+các Ngài càng tăng tiến pháp Minh sát (Vipassanā), không bao lâu chứng đạt A La Hán quả. Khi ấy,
+Chư Tăng nghĩ rằng: “Quả thật, nhờ ơn bà đại tín nữ, chúng ta mới thành đạt được như vầy, nếu
+thiếu vật thực thích hợp thì chúng ta chẳng hưởng thụ được Đạo quả. Bây giờ chờ khi ra hạ, tự tứ
+Tăng rồi, chúng ta sẽ trở về yết kiến Đức Bổn Sư”.
 
 Đến khi mãn mùa hạ, Chư Tăng đến từ giã bà đại tín nữ:
 
 - Hôm nay Chư Tăng chúng tôi định về yết kiến Đức Bổn Sư.
-  Bà đáp: “Lành thay! Bạch các Ngài”.
-  Nói rồi, bà theo tiễn chân, đưa Chư Tăng đi một đỗi đường, vừa thốt lên những lời ưu ái, đầy
-  thiện cảm. Khi từ biệt Chư Tăng để quay trở lại, bà còn nói:
+
+Bà đáp: “Lành thay! Bạch các Ngài”.
+Nói rồi, bà theo tiễn chân, đưa Chư Tăng đi một đỗi đường, vừa thốt lên những lời ưu ái, đầy
+thiện cảm. Khi từ biệt Chư Tăng để quay trở lại, bà còn nói:
+
 - Bạch các Ngài, xin các Ngài có dịp nào rảnh thì các Ngài đến thăm viếng, nhắc nhở chúng tôi.
-  Khi Chư Tăng về đến Tịnh Xá Kỳ Viên, gần thành Sāvatthī, sau khi đảnh lễ Đức Bổn Sư, ngồi
-  qua một bên xong. Đức Bổn Sư phán hỏi: “Nầy các Tỳ Khưu! Các ông hành đạo có kham nhẫn không?
-  Tự túc có dễ dàng không? Có khỏi phải đi bát vất vả không?” Chư Tỳ Khưu đáp:
+
+Khi Chư Tăng về đến Tịnh Xá Kỳ Viên, gần thành Sāvatthī, sau khi đảnh lễ Đức Bổn Sư, ngồi
+qua một bên xong. Đức Bổn Sư phán hỏi: “Nầy các Tỳ Khưu! Các ông hành đạo có kham nhẫn không?
+Tự túc có dễ dàng không? Có khỏi phải đi bát vất vả không?”
+
+Chư Tỳ Khưu đáp:
+
 - Bạch Ngài, chúng con hành đạo kham nhẫn và tự túc dễ dàng. Bạch Ngài, chúng con khất
   thực không bao giờ vất vả. Thật vậy, nhờ một bà đại tín nữ là mẹ của thôn trưởng ở Mātikagāma biết
   được tâm niệm của chúng con mỗi khi chúng con ước muốn. “Chà phải chi mình được cúng dường
@@ -11025,8 +11065,9 @@ Bà đại tín nữ đang ngồi ở nhà, quán thấy tư tưởng của vị
 vào bảo:
 
 - Nầy con, hãy vào Tịnh Xá, phụ đỡ công việc cho vị Trưởng Lão đi.
-  Tên gia đinh vâng lịnh chủ, vào quét dọn trong Tịnh Xá. Khi ấy, vị Tỳ Khưu khát nước, bèn ước
-  rằng: “Chà, phải chi bà ấy có nước giải khát gởi đến cho ta dùng nhỉ?”.
+
+Tên gia đinh vâng lịnh chủ, vào quét dọn trong Tịnh Xá. Khi ấy, vị Tỳ Khưu khát nước, bèn ước
+rằng: “Chà, phải chi bà ấy có nước giải khát gởi đến cho ta dùng nhỉ?”.
 
 Bà tín nữ liền gởi nước giải khát.
 Vị Tỳ Khưu lại ước: “Phải chi sáng ngày mai bà tín nữ gởi đến cúng dường ta cháo nấu thật nhừ
@@ -11052,12 +11093,13 @@ Khưu hỏi bà đại tín nữ:
 - Tôi ước trong tâm vật nầy, vật nọ, thấy sao bà làm đúng theo tất cả, nên mới hỏi bà như thế.
 - Bạch Ngài, chư Tỳ Khưu biết được tâm người khác cũng có nhiều vị.
 - Nầy bà đại tín nữ, tôi không hỏi người khác, tôi chỉ hỏi mỗi một mình bà thôi.
-  Mặc dầu có Tha tâm thông, nhưng bà đại tín nữ cũng không khoe khoang “Tôi biết được tâm
-  người khác”, bà chỉ trả lời: “Nầy con trai (Putta), những ai có Tha tâm thông thường làm như thế đó”.
-  Nghe vậy, vị Tỳ Khưu lo ngại rằng: “Quả thật vậy, việc nầy chướng ngại cho ta quá, còn là phàm
-  nhơn thì trong tâm còn có những tư tưởng quàng xiên ô trược, lẫn lộn với những tư tưởng chơn chánh
-  thanh cao. Nếu rủi mà ta nghĩ đến điều không phải, thì cũng bị bà nầy thấu rõ tới tim đen của ta, y
-  như kẻ trộm bị người nắm chóp mao, bắt được với tất cả tang vật. Vậy ta phải chạy cho xa chỗ nầy”.
+
+Mặc dầu có Tha tâm thông, nhưng bà đại tín nữ cũng không khoe khoang “Tôi biết được tâm
+người khác”, bà chỉ trả lời: “Nầy con trai (Putta), những ai có Tha tâm thông thường làm như thế đó”.
+Nghe vậy, vị Tỳ Khưu lo ngại rằng: “Quả thật vậy, việc nầy chướng ngại cho ta quá, còn là phàm
+nhơn thì trong tâm còn có những tư tưởng quàng xiên ô trược, lẫn lộn với những tư tưởng chơn chánh
+thanh cao. Nếu rủi mà ta nghĩ đến điều không phải, thì cũng bị bà nầy thấu rõ tới tim đen của ta, y
+như kẻ trộm bị người nắm chóp mao, bắt được với tất cả tang vật. Vậy ta phải chạy cho xa chỗ nầy”.
 
 Nghĩ rồi, vị Tỳ Khưu bảo bà Mātikamātā rằng:
 
@@ -11066,8 +11108,10 @@ Nghĩ rồi, vị Tỳ Khưu bảo bà Mātikamātā rằng:
 - Tôi trở về với Đức Bổn Sư, bà tín nữ à.
 - Bạch Ngài! Xin thỉnh Ngài hãy ở lại đây.
 - Tôi không thể ở lại đây đâu. Này bà tín nữ, tôi nhất định sẽ ra đi.
-  Nói rồi, vị Tỳ Khưu ra khỏi Tịnh Xá, lên đường trở về chỗ ngụ của Đức Bổn Sư.
-  Khi vị Tỳ Khưu về đảnh lễ Đức Bổn Sư, Ngài phán hỏi:
+
+Nói rồi, vị Tỳ Khưu ra khỏi Tịnh Xá, lên đường trở về chỗ ngụ của Đức Bổn Sư.
+Khi vị Tỳ Khưu về đảnh lễ Đức Bổn Sư, Ngài phán hỏi:
+
 - Nầy Tỳ Khưu, ông không còn ở lại tại chỗ ấy sao?
 - Vâng, bạch Ngài con không thể ở tại chỗ ấy được.
 - Tại cớ nào vậy, Tỳ Khưu?
@@ -11090,7 +11134,6 @@ Cittassa damatho sādhu
 Cittaṁ dantaṁ sukhāvahanti”._
 
 “Tâm phàm ngũ dục mê sa,
-
 Biến hóa lanh lẹ khó mà bắt thay!
 Người thu phục được tâm nầy,
 Mới là thong thả tháng ngày yên vui”.
@@ -11116,17 +11159,19 @@ Huờn quả, đại chúng thính pháp cũng được hưởng sự lợi ích
 Đức Bổn Sư phủ dụ Tỳ Khưu bằng huấn từ sau đây:
 
 - Nầy Tỳ Khưu! Ông cứ đi đến đó hành đạo. Đừng lo nghĩ vẩn vơ khác mà làm chi.
-  Vị Tỳ Khưu thọ lãnh huấn từ của Đức Bổn Sư ra đi, đến làng Mātikagāma, ngày đêm chuyên lo
-  gìn giữ tâm mình, ngoài ra không tưởng đến việc chi khác.
+
+Vị Tỳ Khưu thọ lãnh huấn từ của Đức Bổn Sư ra đi, đến làng Mātikagāma, ngày đêm chuyên lo
+gìn giữ tâm mình, ngoài ra không tưởng đến việc chi khác.
 
 Bà đại tín nữ dùng Thiên nhãn thông nhìn thấy Trưởng Lão:
 
 - Bây giờ con trai ta đã thọ lãnh huấn từ của đức Thầy rồi nên trở lại đây.
-  Bà lại dùng Tâm thông để biết rõ ý muốn của vị Tỳ Khưu, rồi cho người nấu nướng thực phẩm
-  thích hợp đem đến cúng dường vị ấy. Nhờ độ vật thực thích hợp, mấy hôm sau, vị Tỳ Khưu đắc A La
-  Hán quả, hưởng được tịnh lạc của Đạo quả. Vị ấy suy nghĩ: “Bà tín nữ nầy hộ độ ta rất lớn, nhờ sự hộ
-  độ nầy mà ta giải thoát được trần lao! Trong kiếp nầy bà hộ ta như thế, không biết trong những kiếp
-  trước, khi ta còn lang thang trong vòng luân hồi bà có hộ ta hay không?”.
+
+Bà lại dùng Tâm thông để biết rõ ý muốn của vị Tỳ Khưu, rồi cho người nấu nướng thực phẩm
+thích hợp đem đến cúng dường vị ấy. Nhờ độ vật thực thích hợp, mấy hôm sau, vị Tỳ Khưu đắc A La
+Hán quả, hưởng được tịnh lạc của Đạo quả. Vị ấy suy nghĩ: “Bà tín nữ nầy hộ độ ta rất lớn, nhờ sự hộ
+độ nầy mà ta giải thoát được trần lao! Trong kiếp nầy bà hộ ta như thế, không biết trong những kiếp
+trước, khi ta còn lang thang trong vòng luân hồi bà có hộ ta hay không?”.
 
 Nghĩ rồi, vị Tỳ Khưu dùng Túc mạng thông, nhớ lại từ một cho đến chín mươi chín kiếp của
 mình. Trong chín mươi chín kiếp, có kiếp bà đại tín nữ nầy là bạn gối chăn của vị Tỳ Khưu, nhưng lại
@@ -11147,10 +11192,12 @@ khác và đã sát hại vị nầy. Vị nầy thấy sự lang tâm trắc n�
 Khi được hiểu biết như vậy, bà đại tín nữ tự hỏi:
 
 - Trong khi lang thang trong vòng luân hồi, trong kiếp trước nữa ta có hộ độ con trai ta không?
-  Nghĩ rồi, bà cố ôn lại kiếp thứ một trăm, trong kiếp nầy bà cũng là vợ của vị ấy, đã hy sinh
-  mạng sống, chết thế cho chồng:
+
+Nghĩ rồi, bà cố ôn lại kiếp thứ một trăm, trong kiếp nầy bà cũng là vợ của vị ấy, đã hy sinh
+mạng sống, chết thế cho chồng:
 
 “Ôi! Ta đã là một đại ân nhân cho con trai ta vậy”.
+
 Biết được như thế, bà đại tín nữ ngồi ở nhà mình dùng thần thông nhắc vị ấy rằng: “Ngài hãy
 hồi cổ xa hơn nữa đi”. Vị Tỳ Khưu nhờ Thiên nhĩ, nghe được tiếng nhắc của bà đại tín nữ, bèn nhớ lại
 tiền kiếp thứ một trăm, thấy được rằng trong kiếp ấy, bà tín nữ nầy đã hy sinh mạng sống, chết thế
@@ -11991,7 +12038,7 @@ Chư Tăng bạch hỏi Đức Bổn Sư:
   Đức Bổn Sư dẫn tích rằng:
   “Trong thời kỳ của Đức Chánh Biến Tri Kassapa, Tỳ Khưu này là một người săn chim, sau khi
   bắt được chim, y đem dưng cho các vị lãnh chúa, còn dư ra thì đem bán. Khi bán không hết, y sợ làm thịt để dành thì thịt chim không còn tươi, nên bẻ lọi giò, lọi cánh chim để chim còn sống mà không
-thể thoát được, y để chim nằm chung một đống.
+  thể thoát được, y để chim nằm chung một đống.
 
 Qua ngày sau, y lại đem đống chim ấy ra bán, khi nào săn được nhiều chim thì y cho người nấu
 nướng chim ấy, tự mình dùng lấy. Một hôm khi phần cơm ngon của y vừa chín thì có vị Trưởng Lão
@@ -12163,15 +12210,17 @@ trưởng, nhiều người trông thấy tiểu thơ liền hỏi rằng:
 
 - Cô gái đi theo xe chúng tôi, cô là con nhà ai chúng tôi không biết?
 - Mấy ông cứ đánh xe đi đi, để tôi đi bộ cũng được.
-  Nhưng đi lâu mỏi chân, tiểu thư cởi chiếc nhẫn đeo ở ngón tay ra đổi lấy một chỗ ngồi trên xe.
-  Những lái buôn suy nghĩ: “Trong thành Takkasilā có công tử là con nhà triệu phú của ta chưa
-  có đôi bạn, để ta làm mối chỉ se tơ cho cô này với công tử. Chắc ta sẽ được trọng thưởng”.
+
+Nhưng đi lâu mỏi chân, tiểu thư cởi chiếc nhẫn đeo ở ngón tay ra đổi lấy một chỗ ngồi trên xe.
+Những lái buôn suy nghĩ: “Trong thành Takkasilā có công tử là con nhà triệu phú của ta chưa
+có đôi bạn, để ta làm mối chỉ se tơ cho cô này với công tử. Chắc ta sẽ được trọng thưởng”.
 
 Thế là họ đi ngay đến công tử nói rằng:
 
-- Thưa ông chủ! Hôm nay chúng tôi đưa về cho ông chủ một bảo nữ (itthīratana) Nghe vậy,
-  công tử cho mời Tiểu thư Soreyya đến để công tử xem mặt. Khi thấy tiểu thư trẻ trung xinh đẹp,
-  duyên dáng, công tử sanh lòng yêu mến, bèn nhận cưới làm chánh thất.
+- Thưa ông chủ! Hôm nay chúng tôi đưa về cho ông chủ một bảo nữ (itthīratana)
+
+Nghe vậy, công tử cho mời Tiểu thư Soreyya đến để công tử xem mặt.
+Khi thấy tiểu thư trẻ trung xinh đẹp, duyên dáng, công tử sanh lòng yêu mến, bèn nhận cưới làm chánh thất.
 
 (Hiện tượng nam hóa nữ hay nữ hóa nam rất thông thường, mặc dầu là khó thấy. Thật vậy,
 không hề có việc người nam nào chưa từng hóa thành nữ, và cũng không hề có người nữ nào mà
@@ -12210,8 +12259,10 @@ Thanh niên không biết chủ nhân nên hỏi:
   nầy, hay là có quen biết với chúng tôi chăng?
 - Vâng thưa công tử tôi có quen biết công tử, phải công tử ở thành Soreyya không?
 - Dạ phải, thưa bà.
-  Bà chủ nhà lại hỏi thăm tình hình sức khỏe của song thân, của vợ con công tử Soreyya. Công tử
-  đáp:
+
+Bà chủ nhà lại hỏi thăm tình hình sức khỏe của song thân, của vợ con công tử Soreyya. Công tử
+đáp:
+
 - Dạ thưa bà, tất cả đều bình an vô bịnh... Thưa bà, bà cũng có quen biết với nhà ông triệu phú
   ấy nữa sao?
 
@@ -12224,7 +12275,9 @@ Thanh niên không biết chủ nhân nên hỏi:
 - Thưa bà! Bà có tỉnh trí không? Mà sao bà lại nói như thế. Bạn của tôi là một công tử khôi ngô
   tuấn tú, đẹp như Thiên tử cõi Thượng thiên kia mà.
 - Thưa công tử, chính tôi là cậu ấy, không dám nói ngoa.
-  Cậu công tử không tin hỏi lại: Sao lạ kỳ vậy?
+
+Cậu công tử không tin hỏi lại: Sao lạ kỳ vậy?
+
 - Ngày ấy, công tử có thấy Trưởng Lão Mahākaccāyana chớ?
 - Vâng, tôi có thấy.
 - Tôi đã ngắm nhìn Ngài Trưởng Lão, rồi ước ao rằng: Chà phải chi Trưởng Lão làm vợ mình,
@@ -12237,7 +12290,9 @@ Thanh niên không biết chủ nhân nên hỏi:
 - Ngài đang cư ngụ trong thành nầy.
 - Nếu Trưởng Lão có trì bình ngang đây. Tôi sẽ xin đặt bát Ngài, cúng dường đến Ngài.
 - Thế thì bạn hãy lo sắm sửa lễ vật cho sẵn sàng để chúng ta đi sám hối với Ngài.
-  Công tử đến chỗ ngụ của Trưởng Lão, đảnh lễ ngài rồi ngồi nép qua một bên, bạch rằng:
+
+Công tử đến chỗ ngụ của Trưởng Lão, đảnh lễ ngài rồi ngồi nép qua một bên, bạch rằng:
+
 - Bạch Ngài, xin thỉnh Ngài ngày mai nầy đến thọ bát nơi nhà con.
 - Nầy công tử, ngươi từ xa đến đây phải chăng?
 - Bạch Ngài! Xin Ngài đừng hỏi con về việc ấy, chỉ xin thỉnh Ngài ngày mai này thọ bát nơi nhà
@@ -12253,15 +12308,16 @@ tội cho bạn con”.
 - Bạch Ngài! Cô nầy đây, trước kia là một người nam, bạn thân thiết của con, có lỡ nhìn trộm
   Ngài và ước quấy như vậy, thành ra mất hết nam tính, hóa ra thân nữ nhân xin Ngài xá tội.
 - Thôi hãy đứng dậy, ta miễn thứ cho cô đó.
-  Trưởng Lão vừa dứt lời, thì tiểu thư Soreyya hoàn hình công tử trở lại như trước.
-  Sau khi ấy, công tử Takkasilā nói với công tử Soreyya
+
+Trưởng Lão vừa dứt lời, thì tiểu thư Soreyya hoàn hình công tử trở lại như trước.
+Sau khi ấy, công tử Takkasilā nói với công tử Soreyya
+
 - Này bạn, hai đứa con nầy do tôi và bạn sanh ra, hoài thai và hoạn dưỡng chúng, sanh dưỡng
   cũng đạo đồng, chúng nó là con của chúng ta, vậy chúng ta cứ tiếp tục chung sống ở đây bạn đừng
   ngại chi cả.
 - Bạn à! Tôi đã sống một kiếp là nam nhân, sau đó là nữ nhân và bây giờ trở lại thân nam nhân
   như trước. Ba lần thay đổi xác thân. Lần đầu, tôi là cha hai đứa con trai, lần sau là mẹ hai đứa con
-  trai khác, cho nên bây giờ đây tôi đã chán ngán đời sống tại gia. Thôi bạn đừng cố gắng lưu tôi lại làm gì. Tôi sẽ đến xuất gia với Ngài Trưởng Lão, hai đứa con nầy xin bạn ráng nuôi nấng, dạy dỗ,
-đừng bỏ chúng vất vả tội nghiệp.
+  trai khác, cho nên bây giờ đây tôi đã chán ngán đời sống tại gia. Thôi bạn đừng cố gắng lưu tôi lại làm gì. Tôi sẽ đến xuất gia với Ngài Trưởng Lão, hai đứa con nầy xin bạn ráng nuôi nấng, dạy dỗ, đừng bỏ chúng vất vả tội nghiệp.
 
 Nói rồi, công tử Soreyya hôn hít, nựng nịu hai đứa con trai, đoạn nắm tay chúng giao trả tận
 tay cha chúng, rồi từ giã ra đi đến xuất gia với Ngài Trưởng Lão.
@@ -12279,9 +12335,10 @@ Hiện tượng biến nam thành nữ của Trưởng Lão Soreyya lúc Ngài c
 - Bạch Ngài, nếu quả thật vậy, trong hai đợt con ấy, một đợt do Ngài hoài thai và một do hột
   giống của Ngài, Ngài thương lớp con nào hơn?
 - Nầy đạo hữu, những con do tôi sanh thì thương nhiều hơn.
-  Hết kẻ này đến kẻ khác, những kẻ hiếu kỳ luôn luôn tìm gặp Trưởng Lão Soreyya chỉ hỏi bấy
-  nhiêu đó thôi. Trưởng Lão phải lập đi lập lại mãi câu trả lời: “Con lọt lòng thì thương hơn”, vừa thẹn
-  vừa bực, Trưởng Lão tìm lãng vào chỗ thanh vắng để dễ bề hành đạo.
+
+Hết kẻ này đến kẻ khác, những kẻ hiếu kỳ luôn luôn tìm gặp Trưởng Lão Soreyya chỉ hỏi bấy
+nhiêu đó thôi. Trưởng Lão phải lập đi lập lại mãi câu trả lời: “Con lọt lòng thì thương hơn”, vừa thẹn
+vừa bực, Trưởng Lão tìm lãng vào chỗ thanh vắng để dễ bề hành đạo.
 
 Nhờ hạnh độc cư, Trưởng Lão Soreyya an tâm, quán sự sanh diệt của danh sắc trong tự ngã,
 chứng đắc A La Hán quả với Tuệ Phân tích.
@@ -12292,7 +12349,9 @@ Sau đó, cũng còn nhiều kẻ đến hỏi Ngài nữa:
 - Quả có thế, nầy đạo hữu.
 - Vậy trong hai lớp con của Ngài, Ngài thương đứa nào nhiều hơn?
 - Ta không còn yêu thương lớp con nào nữa cả.
-  Chư Tăng nghe được câu hỏi trả lời của Trưởng Lão bèn tố cáo với Đức Bổn Sư:
+
+Chư Tăng nghe được câu hỏi trả lời của Trưởng Lão bèn tố cáo với Đức Bổn Sư:
+
 - Bạch Ngài! Tỳ Khưu nầy đại vọng ngữ, những ngày trước đây ông mới nói: “Con lọt lòng thì
   thương hơn”. Hôm nay ông lại nói: “Không còn thương con nào hết”. Thế là ông ta dám khoe dối
   pháp cao nhân, bạch Ngài.
@@ -12469,18 +12528,21 @@ vào trong một khu rừng nọ, lập tâm: “Ta sẽ hành Sa Môn pháp”.
 phu, không chứng đắc A La Hán, vị Sa Môn nghĩ rằng:
 
 - Chắc ta còn thiếu sót, để về xin thầy bổ khuyết.
-  Đi dọc đường, vị ấy trông thấy ảo ảnh phát sanh lên, bèn tư niệm rằng: “Cũng như ảo ảnh phát
-  hiện trong mùa hè, đứng ở xa trông như là có thật, nhưng đến gần thì chẳng còn hình bóng chi cả.
-  Cái thân ngũ uẩn nầy, nó cũng sanh diệt hư ảo như thế thôi”.
+
+Đi dọc đường, vị ấy trông thấy ảo ảnh phát sanh lên, bèn tư niệm rằng: “Cũng như ảo ảnh phát
+hiện trong mùa hè, đứng ở xa trông như là có thật, nhưng đến gần thì chẳng còn hình bóng chi cả.
+Cái thân ngũ uẩn nầy, nó cũng sanh diệt hư ảo như thế thôi”.
 
 Vị Sa Môn vừa đi vừa chú tâm quán xét đề mục ảo ảnh, đến khi đường xa mệt mỏi, vị ấy xuống
 sông Aciravatī (Bất Cửu) để tắm, tắm xong lên ngồi nghỉ trên bờ, vị ấy nhìn xuống dòng nước đang
 chảy xiết. Trên mặt nước trôi cuồn cuộn, nhiều bọt nước nổi lên rồi tan biến. Vị ấy nghĩ rằng:
 
 - Cái thân ngũ uẩn nầy nó cũng nổi lên rồi tan biến như bọt nước mà thôi.
-  Và vị ấy lấy đề tài nầy làm đề mục tham thiền.
-  Khi ấy, Đức Bổn Sư đang đứng trong hương thất, Ngài trông thấy vị Tỳ Khưu đang ngồi trên bờ
-  sông quán niệm bào ảnh, bèn phán rằng:
+
+Và vị ấy lấy đề tài nầy làm đề mục tham thiền.
+Khi ấy, Đức Bổn Sư đang đứng trong hương thất, Ngài trông thấy vị Tỳ Khưu đang ngồi trên bờ
+sông quán niệm bào ảnh, bèn phán rằng:
+
 - Nầy Tỳ Khưu! Tự ngã nầy cũng giống như bọt nước, bào ảnh, nó có tính hằng sanh khởi và
   hoại diệt như thế mãi.
 
@@ -12602,9 +12664,10 @@ Quốc vương đích thân đứng ra trông coi việc đặt bát cúng dư�
 - Tâu đại vương! Chư Phật không bao giờ thọ thực thường xuyên một nơi, vì còn nhiều chúng
   sanh chờ đợi các Ngài ngự đến.
 - Nếu vậy xin Ngài phái một vị Tỳ Khưu nào đó có thể đến hằng ngày.
-  Đức Thế Tôn giao phận sự này cho Trưởng Lão Ānanda. Trong bảy ngày đầu, khi Chư Tăng đến
-  Quốc vương thân ngự ra rước bát, đứng trông nom chỉ bảo cho nội thần quyến thuộc hộ độ các Ngài
-  rất chu đáo.
+
+Đức Thế Tôn giao phận sự này cho Trưởng Lão Ānanda. Trong bảy ngày đầu, khi Chư Tăng đến
+Quốc vương thân ngự ra rước bát, đứng trông nom chỉ bảo cho nội thần quyến thuộc hộ độ các Ngài
+rất chu đáo.
 
 Đến ngày thứ tám, Quốc vương vì long thể bất an, nên xao lãng phận sự hộ độ Chư Tăng, Chư
 Tăng vào hoàng cung, không ai soạn sẵn chỗ ngồi, thỉnh các Ngài an tọa và dâng cúng thực phẩm
@@ -12621,7 +12684,6 @@ Qua những ngày sau đó, tình trạng cũng chẳng lấy làm khả quan h�
 Khưu đều lần lượt ra đi cả. Chỉ còn lại một mình Trưởng Lão Ānanda (những bậc đại phúc đức bao
 giờ cũng đầy đủ uy tín, giữ đức tin trong sạch của hàng tại gia cư sĩ. Đệ tử của Đức Như Lai trong
 hàng xuất gia có Trưởng Lão Sāriputta, Trưởng Lão Moggāllana là hai thượng Thinh Văn, Tỳ kheo Ni
-
 Khemā (An bình), Tỳ kheo Ni Uppalavaṇṇā là hai nữ Thượng Thinh Văn, trong hàng tại gia cư sĩ thì
 có Trưởng giả Citta, Dạ xoa āḷavaka là hai Thượng Thinh Văn Thiện nam, về tín nữ thì có nàng
 Veơukaṇṭakì nandamātā và nàng Khujjuttarā là hai nữ Thượng Thinh Văn tín nữ. Tám vị này đáng
@@ -12959,7 +13021,7 @@ Quốc vương Pasenadi nghe pháp rồi, công nhận chỉ có phụ hệ là 
 hỷ, bèn truyền lịnh ân xá chánh hậu và thái tử, cho phục hồi cựu vị.
 
 Nói về Đô thống tướng quân Bandhula kết hôn với Công chúa Mallikā (Mallikā, là con vua xứ
-Malla, đã lâu ngày không có con. Gia tộc Bandhula kết tội nàng là “vô hậu”, nên đuổi công chúa trở
+Malla), đã lâu ngày không có con. Gia tộc Bandhula kết tội nàng là “vô hậu”, nên đuổi công chúa trở
 về cố quốc. Công chúa định đến bái biệt Đức Bổn Sư rồi sẽ lên đường. Vào Tịnh Xá Kỳ Viên, công
 chúa đảnh lễ Đức Như Lai rồi đứng qua một bên. Đức Bổn Sư phán hỏi:
 
@@ -13084,9 +13146,10 @@ Trưởng Lão thì sút tay, buông rơi cái bình xuống nền bể nát.
 Đức Sāriputta nói an ủi rằng:
 
 - Của tạm bợ Vô thường, lỡ bể thì thôi, chẳng nên ân hận.
-  Công chúa Mallikā liền lật vạt áo lên, lấy phong thơ đưa ra và nói: “Bạch Ngài, ba mươi hai đứa
-  con trai và cha nó vừa bị xử trảm, khi được người nhà đưa thư báo tin nầy, đệ tử đọc rồi còn chẳng ân
-  hận, huống chi là việc bể cái bình sanh tô mà đệ tử ân hận hay sao?”.
+
+Công chúa Mallikā liền lật vạt áo lên, lấy phong thơ đưa ra và nói: “Bạch Ngài, ba mươi hai đứa
+con trai và cha nó vừa bị xử trảm, khi được người nhà đưa thư báo tin nầy, đệ tử đọc rồi còn chẳng ân
+hận, huống chi là việc bể cái bình sanh tô mà đệ tử ân hận hay sao?”.
 
 Đức Tướng quân Chánh Pháp liền thuyết lên kệ ngôn rằng:
 _“Animittamanaññātaṁ
@@ -13226,8 +13289,9 @@ nữ, cho nên vua Mahānāma nhìn xuống một ao hồ và nói:
 
 - Nầy vương điệt mình trẫm lấm lem cát bụi, để trẫm đi tắm đã.
 - Vâng, ngoại tổ hãy đi tắm đi.
-  Vua Mahānāma nghĩ thầm: “Nếu ta không ngồi ăn chung với thằng nầy, thì chắc chắn nó sẽ
-  giết chết ta, thà là ta tự sát cho rồi”.
+
+Vua Mahānāma nghĩ thầm: “Nếu ta không ngồi ăn chung với thằng nầy, thì chắc chắn nó sẽ
+giết chết ta, thà là ta tự sát cho rồi”.
 
 Vua bèn xả búi tóc ra, cột thắt gút phía ngọn tóc, đoạn xỏ hai chân vào cái nồi, rồi nhảy ùm
 xuống nước, do oai lực cao độ của vua Mahānāma, thủy cung của loài rồng phát hiện, Long vương tự
@@ -14855,12 +14919,14 @@ Cô nữ tỳ đi lấy món trang sức đem ra, bà Visākhā không đeo nó 
 - Món trang sức này trị giá chín mươi triệu, thêm một trăm ngàn đồng vàng tiền công.
   Nghe vậy, bà Visākhā bảo để món trang sức ấy trên xe:
 - Vậy thì các ông hãy bán nó giùm tôi đi.
-  Nhưng không ai xuất ra món tiền lớn để mua món nữ trang nầy cho nổi. Thật vậy, phụ nữ có
-  sức mang nổi món nữ trang nầy khó kiếm được lắm. Trên hoàn cầu vào thời ấy chỉ có ba nang đeo
-  nổi món nữ trang ấy, đó là Visākhā, nàng Mallikā vợ của Bandhula và tiểu thư Mạt Ly con của
-  Trưởng giả ở thành Bārārasī, vì vậy, bà Visākhā phải xuất ra số tiền ấy để mua lại món nữ trang của
-  chính mình là chín mươi triệu, một trăm ngàn đồng vàng. Đoạn bà cho thắng xe bò, cho chở tiền
-  mang đến chùa, vào đảnh lễ Đức Bổn Sư bạch rằng:
+
+Nhưng không ai xuất ra món tiền lớn để mua món nữ trang nầy cho nổi. Thật vậy, phụ nữ có
+sức mang nổi món nữ trang nầy khó kiếm được lắm. Trên hoàn cầu vào thời ấy chỉ có ba nang đeo
+nổi món nữ trang ấy, đó là Visākhā, nàng Mallikā vợ của Bandhula và tiểu thư Mạt Ly con của
+Trưởng giả ở thành Bārārasī, vì vậy, bà Visākhā phải xuất ra số tiền ấy để mua lại món nữ trang của
+chính mình là chín mươi triệu, một trăm ngàn đồng vàng. Đoạn bà cho thắng xe bò, cho chở tiền
+mang đến chùa, vào đảnh lễ Đức Bổn Sư bạch rằng:
+
 - Bạch Ngài! Trưởng Lão Ānanda đã đụng tay vào món trang sức rồi, thì con không thể đeo
   được nữa, con định bán nó để mua vật dụng cúng dường cho hợp lẽ đạo, nhưng đem bán ra thì không
   ai mua nổi, thành ra con mua trở lại. Vậy với số tiền đúng theo giá trị của nó, con nên mua món gì để
@@ -15175,7 +15241,7 @@ Khi ấy, Đức Thế Tôn đáp rằng:
   rằng: “Nơi chốn thôn quê hay thành thị nọ, có nữ nhân ấy hoặc nam nhân ấy là người quy y Phật...
   Hoan hỷ chia sớt vật thí đến tất cả mọi người”. Chư Thiên và nhân loại cũng hằng ca tụng rằng: “Nơi
   chốn thôn quê hoặc thành thị nó, có nữ nhân ấy, có nam nhân ấy là người quy y Phật... Hoan hỷ chia sớt vật thí đến tất cả mọi người”. Này Ānanda, đó là giống có hương mà hương của nó bay xuôi chiều
-gió, bay ngược chiều gió, bay xuôi lẫn ngược chiều gió vậy.
+  gió, bay ngược chiều gió, bay xuôi lẫn ngược chiều gió vậy.
 
 Giải xong, Đức Bổn Sư thuyết lên hai bài kệ:
 
@@ -16032,8 +16098,9 @@ trông thấy tòa lâu đài mà trẫm nhìn lên không?”.
 - Trong lâu đài ấy, khanh có trông thấy một nữ nhân không?
 - Tâu bệ hạ, thần có thấy.
 - Vậy khanh hãy đến đó hỏi nàng ấy có chồng chưa?
-  Viên hầu cận thân tín đi, rồi trở về tâu lại cho đức vua biết rằng: “Nàng ấy đã có chồng”. Quốc
-  vương bèn ra lịnh: - Vậy khanh hãy triệu chồng nàng ấy vào triều cho ta.
+
+Viên hầu cận thân tín đi, rồi trở về tâu lại cho đức vua biết rằng: “Nàng ấy đã có chồng”. Quốc
+vương bèn ra lịnh: - Vậy khanh hãy triệu chồng nàng ấy vào triều cho ta.
 
 Vị quan vâng lịnh đức vua gặp chàng thanh niên nghèo khổ, bảo rằng: “Lại đây bạn ơi, đức vua
 triệu bạn vào triều”.
@@ -16046,8 +16113,10 @@ niên vào triều bái đức vua rồi đứng chờ.
 - Muôn tâu bệ hạ, thần không dám nhận lãnh chức đó. Xin cho thần ở ngoài hành nghề, đóng
   thuế cho bệ hạ, thần chỉ quen với lối sống bình dân.
 - Trẫm không cần đến tiền khanh đóng thuế. Kể từ nay về sau khanh hãy theo hầu trẫm.
-  Quốc vương ban cho thanh niên bộ võ phục, một lưỡi gươm và một cái khiên (mộc). Thanh niên
-  nghĩ:
+
+Quốc vương ban cho thanh niên bộ võ phục, một lưỡi gươm và một cái khiên (mộc). Thanh niên
+nghĩ:
+
 - Nếu mình có điều chi sơ xuất với đức vua thì phạm tội khi quân, chẳng khỏi chết chém. Ta
   phải lo sợ mới được.
 
@@ -16071,9 +16140,10 @@ Càng suy nghĩ, càng sợ tội chết, thanh niên về nhà bảo vợ:
 
 - Mình ơi! Cơm nấu chín chưa?
 - Dạ thưa, mới vừa bắc lên nấu mình à!
-  Thanh niên không chờ cơm chín, liền nhấc xuống bảo vợ lấy vá xúc cơm chưa ráo nước, đổ vào
-  giỏ, chan thêm canh nóng vào, rồi mang theo cất bước lên đường. Trong lúc đi đường cơm cũng vừa
-  chín.
+
+Thanh niên không chờ cơm chín, liền nhấc xuống bảo vợ lấy vá xúc cơm chưa ráo nước, đổ vào
+giỏ, chan thêm canh nóng vào, rồi mang theo cất bước lên đường. Trong lúc đi đường cơm cũng vừa
+chín.
 
 Thanh niên sớt riêng ra một phần lớn, không rớ tay đến, chỉ ăn chút ít còn lại. Khi đang ăn,
 thấy một lữ khách đi đến, thanh niên nói: “Tôi sớt ra, chỉ ăn có chút ít, phần cơm này tôi không đụng
@@ -16091,11 +16161,14 @@ Thanh niên la lớn đủ ba lần như vậy. Long vương là chúa rồng ng
 thanh niên:
 
 - Chú em nói gì thế?
-  Thanh niên liền lập lại y như trước.
+
+Thanh niên liền lập lại y như trước.
+
 - Chú hãy chia phước cho ta với. Ông lão nói.
 - Tôi xin chia phước đến ông, thanh niên đáp.
-  Sau khi bảo thanh niên chia phước hai ba lần như vậy rồi, Long vương đem hoa sen xanh, trắng
-  và đất đỏ màu mặt trời bình minh tặng lại thanh niên.
+
+Sau khi bảo thanh niên chia phước hai ba lần như vậy rồi, Long vương đem hoa sen xanh, trắng
+và đất đỏ màu mặt trời bình minh tặng lại thanh niên.
 
 Trong khi ấy, quốc vương tính thầm rằng:
 “Người đời có nhiều kẻ giỏi chú thuật. Nếu như gã ấy dùng pháp thuật mà kiếm được các món
@@ -16105,12 +16178,11 @@ Sau khi kiếm được hoa sen xanh, trắng cùng với đất đỏ, thanh ni
 vua tắm gội, nhưng cửa thành đã bế chặt, không thể vào thành được. Thanh niên yêu cầu tiếp xúc với
 thủ môn quan và bảo: Mở cửa ra.
 
-- Không thể mở cửa được. Đức vua đã xuống chiếu truyền lệnh đóng hết các cửa thành
-  Sāvatthī.
+- Không thể mở cửa được. Đức vua đã xuống chiếu truyền lệnh đóng hết các cửa thành Sāvatthī.
 - Ta là Khâm sai (rajadūta) của đức vua. Hãy mở cửa cho ta vào.
-  Thanh niên nói gì thì nói, các quan giữ cửa thành vẫn không mở cửa.
-  Không vào được, thanh niên ngẫm nghĩ: “Bây giờ chắc hẳn mạng căn của ta đã tuyệt. Ta phải
-  làm sao đây?”.
+
+Thanh niên nói gì thì nói, các quan giữ cửa thành vẫn không mở cửa.
+Không vào được, thanh niên ngẫm nghĩ: “Bây giờ chắc hẳn mạng căn của ta đã tuyệt. Ta phải làm sao đây?”.
 
 Thanh niên đặt cục đất đỏ lên đầu cổng thành, cắm mấy cành hoa lên cục đất, rồi cất tiếng la
 lớn lên rằng: Hỡi dân cư ngụ trong kinh thành! Xin các vị hãy biết rằng việc nầy: Đức vua sai tôi đi
@@ -16140,8 +16212,10 @@ chợp mắt được.
 Mặt trời vừa mọc, quốc vương cho triệu vị Quân sư vào triều và phán hỏi:
 
 - Thưa quân sư, vào khoảng giữa đêm hôm nay, trẫm nghe có tiếng la thật lớn, rất đáng kinh sợ.
-  Trẫm không biết đó là điềm báo sự tai hại đến ngai vàng, đến hoàng hậu hay đến chính bản thân
-  trẫm. Cho nên trẫm mới triệu quân sư vào đây.
+
+Trẫm không biết đó là điềm báo sự tai hại đến ngai vàng, đến hoàng hậu hay đến chính bản thân
+trẫm. Cho nên trẫm mới triệu quân sư vào đây.
+
 - Tâu đại vương, đại vương nghe được những tiếng gì?
 - Thưa quân sư, trẫm nghe được bốn tiếng rời rạc là Du, Sa, Na, So. Xin Quân sư hãy giải rộng
   nghĩa lý của những chữ nầy.
@@ -16152,8 +16226,10 @@ rằng: “Tâu đại vương, điềm nầy hệ trọng lắm”.
 
 - Thưa Quân sư, điềm chi vậy?
 - Đó là điềm tai họa có liên quan đến thọ mạng của đại vương.
-  Quốc vương nghe lời bàn ẩu, tưởng chắc thật, càng thêm lo sợ bội phần, phán hỏi ông Bà la
-  môn:
+
+Quốc vương nghe lời bàn ẩu, tưởng chắc thật, càng thêm lo sợ bội phần, phán hỏi ông Bà la
+môn:
+
 - Thưa quân sư, có cách chi ngăn ngừa tai họa ấy được chăng?
 - Tâu đại vương, có. Xin đại vương hãy bình tâm đừng có lo sợ. Hạ thần thông suốt Tam Phệ Đà
   (Veda) mà.
@@ -16169,8 +16245,7 @@ Như thế là, cứ mỗi loại chúng sanh, ông Bà la môn xin đức vua c
 rằng: “Nếu ta xin bệ hạ bắt dân chúng nạp thú rừng thì họ nói là ta có có ý bắt để ăn thịt” nên ông ta
 mới xin đức vua cho bắt cả voi, ngựa và người vậy.
 
-Quốc vương nghĩ thầm: “Trẫm phải tiên bảo kỳ thân, tự mình phải lo bảo tồn sanh mạng mới
-được”.
+Quốc vương nghĩ thầm: “Trẫm phải tiên bảo kỳ thân, tự mình phải lo bảo tồn sanh mạng mới được”.
 
 Vua bèn hạ lịnh: “Bắt tất cả chúng sanh cho mau”. Lịnh trên ban xuống, cấp dưới lập tức thừa
 hành, bắt vật hy sinh nhiều hơn con số đã ấn định.
@@ -16213,23 +16288,27 @@ nép vào một bên.
 Đức Bổn Sư mở lời, hỏi rằng:
 
 - Kìa đại vương từ cõi trời hay cõi nào đến đây?
-  Quốc vương nghe vậy cũng làm thinh, không trả lời. Hoàng hậu Mallikā bèn đem mọi sự trình
-  bạch lên Đức Thế Tôn:
+
+Quốc vương nghe vậy cũng làm thinh, không trả lời. Hoàng hậu Mallikā bèn đem mọi sự trình
+bạch lên Đức Thế Tôn:
+
 - Bạch Ngài, đức vua nói rằng vào khoảng giữa đêm có nghe những tiếng quái dị, hỏi quân sư
   thì ông ấy cho biết là có điềm tai họa đến sinh mạng của đức vua. Nếu muốn ngăn ngừa phải bắt vật
   hy sinh mỗi thứ là một trăm, cắt cổ lấy huyết tế thần thì sẽ được trường thọ. Quốc vương đã sai bắt
   nhiều chúng sanh, vì vậy con hướng dẫn đức vua đến đây.
-
 - Hoàng hậu nói thế có đúng không hở đại vương?
 - Bạch Ngài, đúng thế.
 - Đại vương đã nghe thấy những tiếng gì?
-  Quốc vương bèn nhắc lại những tiếng mà chính mình đã nghe. Đức Như Lai nghe vừa dứt lời,
-  thì đã hiểu rõ mọi sự như làn chớp xẹt một cách nhanh lẹ. Ngài bèn vỗ an ủi đức vua: “Đại vương chớ
-  sợ hãi. Chẳng có việc chi tai hại đến đại vương cả, những chúng sanh tạo ác nghiệp muốn tỏ bày nỗi
-  thống khổ của chính mình nên mới nói lên như thế đó”.
+
+Quốc vương bèn nhắc lại những tiếng mà chính mình đã nghe. Đức Như Lai nghe vừa dứt lời,
+thì đã hiểu rõ mọi sự như làn chớp xẹt một cách nhanh lẹ. Ngài bèn vỗ an ủi đức vua: “Đại vương chớ
+sợ hãi. Chẳng có việc chi tai hại đến đại vương cả, những chúng sanh tạo ác nghiệp muốn tỏ bày nỗi
+thống khổ của chính mình nên mới nói lên như thế đó”.
+
 - Bạch Ngài, bọn họ đã làm gì?
-  Để giải rõ những nghiệp báo của bốn chúng sanh ấy, Đức Thế Tôn phán rằng: “Thế thì, đại
-  vương hãy lắng nghe”.
+
+Để giải rõ những nghiệp báo của bốn chúng sanh ấy, Đức Thế Tôn phán rằng: “Thế thì, đại
+vương hãy lắng nghe”.
 
 Nói rồi, Ngài dẫn tích như sau:
 Thời quá khứ, lúc tuổi thọ của loài người là hai muôn năm thì Đức Thế Tôn có hồng danh là
@@ -16255,21 +16334,24 @@ cho thế thường, chẳng có nữ nhân nào lại chẳng ham tiền, hễ 
 con nhà ai mà thoát khỏi tay ta”.
 
 - Hay! Hay!...
-  Tất cả bốn cậu đều chấp thuận đề nghị nầy, từ đó về sau hễ thấy phụ nữ có sắc đẹp thì là họ bỏ
-  tiền ra quyến rũ làm cho phải thất tiết mới nghe. Họ phạm tội gian dâm như thế trong hai muôn
-  năm, đến lúc chết bị sa xuống đại địa ngục A tỳ. Họ bị thiêu đốt trong đó suốt một thời gian không có
-  Phật. Khi mạng chung do quả dư sót, họ lại sanh lên địa ngục đồng sôi, có bề sâu là sáu mươi do
-  tuần, từ trên miệng chảo chìm mãi xuống đáy là ba muôn năm, rồi trải qua ba muôn năm nữa mới
-  trồi đầu lên được miệng chảo. Họ muốn nói nguyên một bài kệ mà nói không kịp, chỉ kịp mở miệng la
-  lên có một tiếng rồi lộn chìm xuống đáy chảo. Đại vương hãy nói, đại vương nghe trước được tiếng
-  gì?
+
+Tất cả bốn cậu đều chấp thuận đề nghị nầy, từ đó về sau hễ thấy phụ nữ có sắc đẹp thì là họ bỏ
+tiền ra quyến rũ làm cho phải thất tiết mới nghe. Họ phạm tội gian dâm như thế trong hai muôn
+năm, đến lúc chết bị sa xuống đại địa ngục A tỳ. Họ bị thiêu đốt trong đó suốt một thời gian không có
+Phật. Khi mạng chung do quả dư sót, họ lại sanh lên địa ngục đồng sôi, có bề sâu là sáu mươi do
+tuần, từ trên miệng chảo chìm mãi xuống đáy là ba muôn năm, rồi trải qua ba muôn năm nữa mới
+trồi đầu lên được miệng chảo. Họ muốn nói nguyên một bài kệ mà nói không kịp, chỉ kịp mở miệng la
+lên có một tiếng rồi lộn chìm xuống đáy chảo. Đại vương hãy nói, đại vương nghe trước được tiếng
+gì?
+
 - Bạch Ngài, tiếng DU.
-  Quốc vương chỉ nói ra vỏn vẹn có một tiếng vắn tắt mà Đức Bổn Sư bổ túc thành bài kệ như
-  sau:
-  _1. “Dujjīvitamajīvimhā
-  Yesanno na dadāmha se
-  Vijjamanesu bhogesu
-  Dīpaṁ nākamha attanoti”._
+
+Quốc vương chỉ nói ra vỏn vẹn có một tiếng vắn tắt mà Đức Bổn Sư bổ túc thành bài kệ như
+sau:
+_1. “Dujjīvitamajīvimhā
+Yesanno na dadāmha se
+Vijjamanesu bhogesu
+Dīpaṁ nākamha attanoti”._
 
 “Xưa ta sống nhuốc nhơ,
 Chẳng bố thí bao giờ,
@@ -16279,11 +16361,13 @@ Sau khi giải nghĩa bài kệ trên cho quốc vương hiểu, Đức Bổn S�
 
 - Tâu đại vương, lần thứ hai, lần thứ ba, lần thứ tư đại vương nghe được những tiếng gì?
 - Bạch Thế Tôn, nghe được những tiếng nầy...
-  Cứ mỗi lần đức vua đáp lời, Đức Bổn Sư lại bổ túc thêm thành ba bài kệ, theo thứ tự như sau:
-  _2. “Saṭṭhīvassasahassāni
-  Paripuṇṇāni sabbaso
-  Niraye paccamãnānaṁ
-  Kadā anto bhavissati”._
+
+Cứ mỗi lần đức vua đáp lời, Đức Bổn Sư lại bổ túc thêm thành ba bài kệ, theo thứ tự như sau:
+
+_2. “Saṭṭhīvassasahassāni
+Paripuṇṇāni sabbaso
+Niraye paccamãnānaṁ
+Kadā anto bhavissati”._
 
 “Ta ở sáu muôn năm,
 Tròn đủ, nếu không lầm,
@@ -16327,8 +16411,10 @@ niệm tà dâm nữa”.
 Nghĩ rồi, quốc vương bạch Đức Như Lai:
 
 - Bạch Ngài, hôm nay trẫm mới biết là đêm dài.
-  Thanh niên là cựu thị vệ quân, đang ngồi nơi hội trường nghe mấy lời của đức vua, trong tâm
-  nghĩ: “Ta gặp được cơ hội may mắn rồi”. Thanh niên bèn bạch với Đức Bổn Sư:
+
+Thanh niên là cựu thị vệ quân, đang ngồi nơi hội trường nghe mấy lời của đức vua, trong tâm
+nghĩ: “Ta gặp được cơ hội may mắn rồi”. Thanh niên bèn bạch với Đức Bổn Sư:
+
 - Bạch Ngài, đức vua hôm nay mới thấy đêm dài bấy nhiêu đó, còn con ngày hôm qua chính con
   đã biết là dặm đường dài.
 
@@ -16391,8 +16477,9 @@ Cả bọn nam, nữ được thả tự do ấy, được tắm gội sạch s�
 ca tụng công ơn của hoàng hậu Mallikā, nói rằng:
 
 - Chúng mình còn được sống sót ngày nào, cũng là nhờ ơn cứu tử của hoàng hậu Mallikā.
-  Chiều hôm ấy, chư Tỳ Khưu câu hội nơi giảng pháp đường, khởi lên pháp luận như sau: “Hiền
-  trí thay bà Mallikā nầy. Nhờ có trí tuệ, bà đã cứu tử hườn sanh cho bấy nhiêu người và vật như thế”.
+
+Chiều hôm ấy, chư Tỳ Khưu câu hội nơi giảng pháp đường, khởi lên pháp luận như sau: “Hiền
+trí thay bà Mallikā nầy. Nhờ có trí tuệ, bà đã cứu tử hườn sanh cho bấy nhiêu người và vật như thế”.
 
 Đức Bổn Sư ngự đến giảng đường, phán hỏi: “Nầy chư Tỳ Khưu! Hôm nay các ông thảo luận về
 việc chi vậy?”.
@@ -24549,10 +24636,10 @@ Thế Tôn nghe Chư Tăng tường trình xong liền giải thích rằng:
   Phật dạy, vị A La Hán không bao giờ tự sát, vị Tỳ khưu trong Phật giáo tự sát phạm tội tác ác, phải sa
   Địa ngục bảy ngày sau khi chết. Nhưng cũng có trường hợp tự sát mà đắc A La Hán trong giờ phút
   chót, như Trưởng lão Cồ Điệt (Kệ Pháp Cú số 57, Phẩm hoa.) Trường hợp của Trưởng lão Sappadāsa lại khác: Ngài không chết vì chưa cắt cổ mà đã đắc A La Hán, do đó ý nghĩ tự sát không còn. Ngài chỉ
-cắt đứt phiền não bằng lưỡi dao Trí tuệ mà thôi - Chỗ nầy bản dịch của ông P.K. Khánh có hơi khác:...
-Thầy lấy dao tự cắt lấy cuống họng, lúc cắt xong Thầy suy niệm về đời sống toàn thiện, tận lực cố
-gắng Tham thiền và đắc quả A La Hán trước khi nhắm mắt... Sự sai biệt nầy có lẽ xuất phát từ
-nguyên bản Pāli, tức là có hai bản chánh khác nhau vậy. TKPM.).
+  cắt đứt phiền não bằng lưỡi dao Trí tuệ mà thôi - Chỗ nầy bản dịch của ông P.K. Khánh có hơi khác:...
+  Thầy lấy dao tự cắt lấy cuống họng, lúc cắt xong Thầy suy niệm về đời sống toàn thiện, tận lực cố
+  gắng Tham thiền và đắc quả A La Hán trước khi nhắm mắt... Sự sai biệt nầy có lẽ xuất phát từ
+  nguyên bản Pāli, tức là có hai bản chánh khác nhau vậy. TKPM.).
 
 - Bạch Ngài, Ngài dạy rằng vị này là bậc Lậu tận, nếu đã đầy đủ căn lành để đắc quả A La Hán,
   tại sao vị này còn bất mãn? Do đâu mà vị ấy đắc quả A La Hán và tại sao con rắn không cắn vị này?
@@ -25606,7 +25693,7 @@ bào chữa cho ngươi được. Tuy nhiên ta sẽ dạy cho ngươi một ph�
   của những người sống bằng nghề buôn, đã vay tiền ông Bá hộ, đòi cho đủ số một trăm tám mươi
   triệu đồng vàng, dùng Thần thông quét sạch kho bạc trống không, đổ đầy tiền vào đó. Còn một số tài
   sản một trăm tám mươi triệu tiền vàng đã chìm sâu dưới biển lớn. Ở một chỗ khác nữa, có một của chôn vô chủ một trăm tám mươi triệu đồng. Hãy gom tất cả về đổ đầy cái kho trống. Sau khi đoái
-công chuộc tội như thế rồi, hãy đến xin sám hối gia chủ mới được!
+  công chuộc tội như thế rồi, hãy đến xin sám hối gia chủ mới được!
 
 Cô Thiên nữ đáp: "Lành thay, tâu Thiên Vương".
 Cô làm đúng theo lời Đức Đế Thích chỉ dạy, rồi đến phòng riêng của ông Bá hộ Cấp Cô Độc,
@@ -27360,7 +27447,7 @@ Hương Thất đang cháy, không mảy may chút buồn phiền ông còn vỗ
   cháy như vậy.
 - Này các người ơi! Bao nhiêu công trình của ta làm đó là của chôn để dành đặc biệt là Phật
   Giáo. Không có sự tai hại nào nhất là lửa có thể lấy mất được. Vã lại, như vầy ta lại có dịp xuất ra một số tiền tương đương như vậy để tái tạo Hương thất dâng cúng đức Bổn Sư, nên ta thỏa thích vỗ tay
-cười.
+  cười.
 
 Sau khi xuất ra một số tiền của nhiều như trước, cho cắt xong Hương Thất, Trưởng giả làm
 phước trai tăng đến đức Bổn Sư và hai mươi ngàn Tỳ khưu tùy tùng. Thấy Trưởng giả làm như thế,
@@ -28775,7 +28862,7 @@ Ngài phán dạy rằng:
 - Nầy Hiền giả! Tôi sẽ đi chứ.
   Rồi vị ấy rửa sạch bát, bỏ vào trong áo bát, cùng đi với chư Tỳ khưu. Khi vào trong nghĩa trang,
   quanh xác nàng Sirimā ấy, Bậc Đạo Sư cùng chư Tăng đứng một phía, Tỳ khưu ni đứng một phía, hội chúng Vua và Đại thần đứng một phía, các cận sự nam nữ thì đứng về một phía, đứng thành từng
-nhóm riêng với nhau.
+  nhóm riêng với nhau.
 
 Bấy giờ Bậc Đạo Sư phán hỏi vua Bimbisāra:
 
@@ -29135,12 +29222,10 @@ Bấy giờ, từ trên lầu cao, đức vua Pasenadi thấy được hành đ�
 Mallikā vừa ra khỏi phòng tắm, đức vua quở trách rằng:
 
 - Nầy con ác dâm khốn kiếp kia, tại sao ngươi lại hành động tồi bại như thế?
-
 - Tâu Bệ Hạ! Thần thiếp đã làm việc chi ạ
 - Người đã giao hoan cùng con chó chứ gì.
 - Tâu Đại Vương! Chuyện ấy không hề có đâu.
-- Chính mắt ta đã trông thấy rõ ràng. Ta chẳng tin ngươi đâu, hỡi nầy con ác dâm khốn kiếp
-  kia.
+- Chính mắt ta đã trông thấy rõ ràng. Ta chẳng tin ngươi đâu, hỡi nầy con ác dâm khốn kiếp kia.
 - Tâu Bệ Hạ! Người đi đến phòng tắm vào giờ nầy, sẽ trở thành cảnh khó coi đối với người đứng
   trên. Điều nầy chắc là như vậy.
 - Nầy dâm nữ! Ngươi nói không thật.
@@ -29153,12 +29238,13 @@ cao nhìn xuyên qua cửa sổ, nói vọng xuống rằng:
 - Tâu Bệ Hạ! Vì sao Bệ Hạ lại hành dâm cùng con dê cái như thế?
 - Nầy ái khanh! Chớ có nói như thế, trẩm không có hành động tồi bại như thế đâu.
 - Chính thiếp đã trông thấy như thế, làm sao thiếp tin được Bệ Hạ chứ.
-  Đức vua vì kém trí đã thua mưu kế của Hoàng Hậu Mallikā, đã ngỡ rằng: "Thật vậy, người đi
-  vào phòng tắm vào giờ như vầy, sẽ có cảnh tượng tồi bại với người đứng từ trên cao nhìn xuống". Nên
-  Ngài đã bỏ qua chuyện ấy và vẫn thương yêu Hoàng Hậu Mallikā như xưa. Riêng về Hoàng Hậu có sự
-  suy nghĩ rằng: "Đức vua vì kém trí nên bị ta lừa gạt, nhưng ta đã tạo ác nghiệp rồi, lại lừa dối đức
-  Vua bởi lời không thật. Bậc Đạo Sư cùng với 80 vị Đại Trưởng lão cùng hai vị Thượng thinh Văn thấu
-  rõ việc làm của ta. Thật vậy, ta đã tạo ác trọng nghiệp.
+
+Đức vua vì kém trí đã thua mưu kế của Hoàng Hậu Mallikā, đã ngỡ rằng: "Thật vậy, người đi
+vào phòng tắm vào giờ như vầy, sẽ có cảnh tượng tồi bại với người đứng từ trên cao nhìn xuống". Nên
+Ngài đã bỏ qua chuyện ấy và vẫn thương yêu Hoàng Hậu Mallikā như xưa. Riêng về Hoàng Hậu có sự
+suy nghĩ rằng: "Đức vua vì kém trí nên bị ta lừa gạt, nhưng ta đã tạo ác nghiệp rồi, lại lừa dối đức
+Vua bởi lời không thật. Bậc Đạo Sư cùng với 80 vị Đại Trưởng lão cùng hai vị Thượng thinh Văn thấu
+rõ việc làm của ta. Thật vậy, ta đã tạo ác trọng nghiệp.
 
 Được biết rằng: Hoàng Hậu là người trợ thủ đắc lực cho đức vua Pasenadi, chính nàng nhiều
 phen giúp đức vua gỡ rối nhiều việc, như việc cúng tế thần lửa phi pháp, việc thực hiện Vô Song thí
@@ -29198,31 +29284,29 @@ Vào sáng thứ tám, đức Thế Tôn sau khi vận mặc y phục, tay cầm
 khất thực ở Hoàng cung. Quan giữ cổng thành Hoàng cung báo tin cho đức Vua rằng:
 
 - Tâu Đại Vương! Đức Thế Tôn đang ngự đến.
-  Đức vua hoan hỷ, thân hành ra đón tiếp Ngài, rước bát đức Thế Tôn và thỉnh Ngài ngự vào
-  Cung nội. Nhưng Bậc Đạo Sư tỏ ý muốn ngồi nơi kho xe của Hoàng Gia. Đức vua đã cung thỉnh đức
-  Thế Tôn ngồi vào nơi cao quý tại nơi đó, rồi Ngài dâng cơm cháo và thức ăn đến đức Thế Tôn. Xong
-  rồi, đức vua ngồi xuống một bên phải lẽ, đảnh lễ đức Thế Tôn và bạch rằng:
+
+Đức vua hoan hỷ, thân hành ra đón tiếp Ngài, rước bát đức Thế Tôn và thỉnh Ngài ngự vào
+Cung nội. Nhưng Bậc Đạo Sư tỏ ý muốn ngồi nơi kho xe của Hoàng Gia. Đức vua đã cung thỉnh đức
+Thế Tôn ngồi vào nơi cao quý tại nơi đó, rồi Ngài dâng cơm cháo và thức ăn đến đức Thế Tôn. Xong
+rồi, đức vua ngồi xuống một bên phải lẽ, đảnh lễ đức Thế Tôn và bạch rằng:
+
 - Trẫm có ý định đến nơi ngụ của đức Thế Tôn để bạch hỏi về sanh thú của ngang Mallikā, vì
   suốt cả 7 ngày qua, khi đến Tinh xá trẩm đều quên mất. Bạch Thế Tôn, chẳng hay hiện nay Hoàng
   Hậu Mallikā thọ sanh về nơi nào?
 - Nầy Đại Vương! Hoàng Hậu Mallikā nay thọ sanh về cõi trời Tusita rồi.
 - Bạch Thế Tôn! Nếu Hoàng Hậu Mallikā không thọ sanh về nơi ấy, thì còn ai có thể thọ sanh
-  được chứ. Bạch Thế Tôn, người nữ như nàng
+  được chứ. Bạch Thế Tôn, người nữ như nàng Mallikā thật khó kiếm, vì trong mọi nơi, khi đi, đứng, nằm, ngồi ngoài việc suy tư về vật thực dùng để cúng dường rằng: Ngày mai sẽ cúng dường đức Thế Tôn cùng Tăng chúng vật thực như thế nầy... Các việc suy tư khác không hề có. Bạch Thế Tôn! Từ khi nàng mệnh chung, long thể của trẩm dường như cũng bất lạc.
 
-Mallikā thật khó kiếm, vì trong mọi nơi, khi đi, đứng, nằm, ngồi ngoài việc suy tư về vật thực
-dùng để cúng dường rằng: Ngày mai sẽ cúng dường đức Thế Tôn cùng Tăng chúng vật thực như thế
-nầy... Các việc suy tư khác không hề có. Bạch Thế Tôn! Từ khi nàng mệnh chung, long thể của trẩm
-dường như cũng bất lạc.
-
-Đức Thế Tôn phán dạy đức Vua rằng: "Nầy Đại Vương! Đây là xe của ai?" - Đức vua chấp tay
-lên khỏi đầu bạch rằng:
+Đức Thế Tôn phán dạy đức Vua rằng: "Nầy Đại Vương! Đây là xe của ai?" - Đức vua chấp tay lên khỏi đầu bạch rằng:
 
 - Bạch Thế Tôn! của Nội Tổ trẩm.
 - Còn đây là chiếc Long xa của ai thế?
 - Của Thân phụ trẩm, bạch Thế Tôn.
 - Đây là Long Xa của ai thế?
 - Bạch Thế Tôn, là của trẩm.
-  Bấy giờ, đức Thế Tôn liền phán bảo rằng:
+
+Bấy giờ, đức Thế Tôn liền phán bảo rằng:
+
 - Nầy Đại Vương! Vì sao xe của Nội Tổ Ngài, thân phụ Ngài không dùng. Vương xa của Thân
   phụ Ngài, Ngài lại không dùng. Nầy Đại Vương! Ngày cả gỗ còn phải chịu sự cũ kỹ như thế, thì còn
   nói gì đến sự già không tìm đến thân xác nầy. Nhưng nầy Đại vương, Pháp của Bậc Chân Nhân không
@@ -31473,23 +31557,25 @@ xếp, sự cúng dường này là cuộc đại thí sự không một thí s�
 
 - Tâu Đại Vương! Xin Ngài hãy cho làm nhà Trai đường bằng cây quí, nền được san bằng phẳng,
   mái nhà là cây mà phải là cây Sāla mới được. Trai thí đường này rộng rãi, đủ chỗ cho đức Thế Tôn cùng 500 vị Tỳ khưu ngồi theo thứ lớp cao thấp được phân theo hạ lạp. Bên ngoài là sân rộng dành
-cho đại chúng. Hãy cho làm 500 cây lọng trắng, lọng che đức Thế Tôn là lọng hai tầng, còn những vị
-Tỳ khưu là lọng một tầng. Chọn 500 thớt tượng thuần hóa để cầm lọng che cho các Ngài. Cho làm từ
-8 đến 10 chiếc thuyền vàng đặt giữa trai dường, trong thuyền ấy chứa đầy hương trầm Chiên đàn
-được tán nhuyễn, cho những nàng Công Nương đứng quanh thuyền, dùng hoa sen xanh để rải Hương
-thơm Chiên Đàn cúng dường đức Phật và chư Tăng, cho mỗi vị Công Nương đứng quạt hầu hai vị Tỳ
-khưu và rãi hương hoa cúng dường khắp hướng. Những vị Công Chúa trẻ tuổi sẽ mang vật thơm được
-tán nhuyễn đổ vào thuyền. Mùi hương thơm sẽ thơm ngát ngôi trai thí đường ấy. Rồi Đại Vương cho
-dâng những vật thực có đầy đủ hương vị tối thắng đến đức Thế Tôn cùng chư Tăng. Như thế, Bệ Hạ
-sẽ thắng cuộc vì thị dân làm sao có được voi thuần hóa, cũng không thể có những Công Nương xinh
-đẹp trang điểm lộng lẫy phục vụ chư Tăng và đức Thế Tôn. Xin Thánh thượng hãy thực hiện như thế
-đi.
+  cho đại chúng. Hãy cho làm 500 cây lọng trắng, lọng che đức Thế Tôn là lọng hai tầng, còn những vị
+  Tỳ khưu là lọng một tầng. Chọn 500 thớt tượng thuần hóa để cầm lọng che cho các Ngài. Cho làm từ
+  8 đến 10 chiếc thuyền vàng đặt giữa trai dường, trong thuyền ấy chứa đầy hương trầm Chiên đàn
+  được tán nhuyễn, cho những nàng Công Nương đứng quanh thuyền, dùng hoa sen xanh để rải Hương
+  thơm Chiên Đàn cúng dường đức Phật và chư Tăng, cho mỗi vị Công Nương đứng quạt hầu hai vị Tỳ
+  khưu và rãi hương hoa cúng dường khắp hướng. Những vị Công Chúa trẻ tuổi sẽ mang vật thơm được
+  tán nhuyễn đổ vào thuyền. Mùi hương thơm sẽ thơm ngát ngôi trai thí đường ấy. Rồi Đại Vương cho
+  dâng những vật thực có đầy đủ hương vị tối thắng đến đức Thế Tôn cùng chư Tăng. Như thế, Bệ Hạ
+  sẽ thắng cuộc vì thị dân làm sao có được voi thuần hóa, cũng không thể có những Công Nương xinh
+  đẹp trang điểm lộng lẫy phục vụ chư Tăng và đức Thế Tôn. Xin Thánh thượng hãy thực hiện như thế
+  đi.
 
 - Lành thay! Lành thay, này ái Hậu.
-  Đức vua thực hiện y theo lời của Hoàng Hậu Mallikā, mọi việc tiến hành được thuận lợi và tốt
-  đẹp. Chỉ riêng về tượng chiến thì chỉ có được 499 con là thuần hóa, có thể điều khiển voi dùng vòi
-  quấn lọng hầu chư Tăng mà thôi. Đức vua bối rối, hỏi Hoàng Hậu rằng: - Này Hậu! Voi chiến thuần
-  hóa chỉ có được 499 con thôi, thiếu mất một con, vậy trẩm phải xử trí ra sao bây giờ?
+
+Đức vua thực hiện y theo lời của Hoàng Hậu Mallikā, mọi việc tiến hành được thuận lợi và tốt
+đẹp. Chỉ riêng về tượng chiến thì chỉ có được 499 con là thuần hóa, có thể điều khiển voi dùng vòi
+quấn lọng hầu chư Tăng mà thôi. Đức vua bối rối, hỏi Hoàng Hậu rằng: - Này Hậu! Voi chiến thuần
+hóa chỉ có được 499 con thôi, thiếu mất một con, vậy trẩm phải xử trí ra sao bây giờ?
+
 - Tâu Bệ Hạ, không có đủ 500 voi chiến sao?
 - Này Hậu, tượng chiến thì có nhiều, nhưng tượng được thuần hóa rồi chỉ có 499 con thôi. Lại
   nữa, có con tượng rất hung dữ, e rằng nó sẽ nổi cơn hung bạo như cuồng phong, làm hại đến chư Tỳ
@@ -33079,7 +33165,7 @@ Long Nữ lại hát đố tiếp câu thứ hai rằng:
 - Bạch Thế Tôn! Trước đây con là một vì Tỳ khưu trong Giáo Pháp của đức Thế Tôn hiệu
   Kāssapa, con đã hành Sa môn Pháp trọn cả 20 ngàn năm, Sa môn Pháp ấy không thể hộ trì cho con
   được, chỉ vì con đã dễ duôi, không sám hối tội làm đứt cọng cỏ tranh. Nay con lại phải sanh vào Bàng sanh giới, là hạng người vô nhân, thuộc loài bò trườn, không được làm người để được nghe Chánh
-Pháp, không được gặp Phật như Ngài suốt cả một thời gian dài rồi.
+  Pháp, không được gặp Phật như Ngài suốt cả một thời gian dài rồi.
 
 Nghe Long Vương bạch như thế, Bậc Đạo Sư phán rằng:
 
@@ -44961,18 +45047,21 @@ Bấy giờ, một Bà la môn tà kiến hỏi rằng:
 - Điều khiến Ngài nổi giận đó, không bao giờ có đâu.
 - Nếu như thế, ta sẽ làm cho Ngài nổi giận đấy.
 - Nếu ông làm được thì hãy làm đi.
-- Gã bà la môn tà kiến suy nghĩ rằng: "Được rồi, ta sẽ có cách". Khi Trưởng lão đang trì bình
-  khất thực, y bèn theo sau lừng Ngài, đánh thật mạnh vào sau lưng Ngài. Trưởng lão suy nghĩ:
-  "Chuyện gì thế?". Và Ngài vẫn tiếp tục đi. Khi ấy toàn thân của Bà la môn nóng nảy vô cùng, y biết
-  rằng:
-- Ngài đây là bậc có đầy đủ ân đức cao quí. Y liền quỳ xuống chân Trưởng Lão mà bạch rằng:
+- Gã bà la môn tà kiến suy nghĩ rằng: "Được rồi, ta sẽ có cách".
+
+Khi Trưởng lão đang trì bình khất thực, y bèn theo sau lừng Ngài, đánh thật mạnh vào sau lưng Ngài. Trưởng lão suy nghĩ: "Chuyện gì thế?". Và Ngài vẫn tiếp tục đi. Khi ấy toàn thân của Bà la môn nóng nảy vô cùng, y biết
+rằng:
+
+- Ngài đây là bậc có đầy đủ ân đức cao quí.
+  Y liền quỳ xuống chân Trưởng Lão mà bạch rằng:
+
 - Kính bạch Ngài! Xin Ngài hãy tha lỗi cho con.
 - Chuyện chi vậy?
 - Con đã đánh Ngài để xem sự nhẫn nại của Ngài đến đâu.
 - Thôi được rồi! Ta tha lỗi cho ông đó.
 - Bạch ngài! Nếu Ngài tha lỗi cho con, xin Ngài hãy thọ lãnh vật thực nơi nhà con đi.
-  Rồi y thỉnh Bát của Ngài. Trưởng lão trao bát cho y. Vị Bà La môn thỉnh Ngài về nhà cúng
-  dường.
+
+Rồi y thỉnh Bát của Ngài. Trưởng lão trao bát cho y. Vị Bà La môn thỉnh Ngài về nhà cúng dường.
 
 Dân chúng bất bình rằng: "Ngài của chúng ta vô lỗi mà bị Bà la môn nầy đánh, y không thể
 thoát khỏi gậy gộc được, chúng ta sẽ giết y tại nơi đó."
@@ -44995,7 +45084,9 @@ Khi Ngài bảo họ và Bà la môn về rồi, Ngài trở về Tinh xá, chư
 Bậc Đạo Sư ngự đến phán hỏi rằng:
 
 - Nầy chư tỳ khưu! Các ngươi đang bàn luận về câu chuyện gì thế?
-  Chư tỳ khưu trình lên đức Thế Tôn câu chuyện ấy, Ngài phán rằng:
+
+Chư tỳ khưu trình lên đức Thế Tôn câu chuyện ấy, Ngài phán rằng:
+
 - Nầy các tỳ khưu! Bà la môn không hãm hại Bà la môn. Nhưng Bà la môn tu sĩ sẽ bị Bà la môn
   cư sĩ hãm hại. Và Bậc A Na Hàm đạo đã sát tuyệt sân hận rồi.
 
@@ -45041,7 +45132,6 @@ Yadānisedho manaso piyehi nghĩa là sự phát khởi sân hận gọi là c�
 thuộc về sân hận, nghĩa là pháp thương yêu trong kệ ngôn. Vị Bà la môn thích cột oan trái là do pháp
 thương yêu đổng lực đó. Không chế ngự tâm ra khỏi pháp thương yêu là không cao quí, là tiếp trợ
 oan trái đối với ngu nhân). Đối với người thường hay sân. Người hay sân thường tà hạnh với cha mẹ
-
 và đức Phật.... Cũng do ảnh hưởng cảnh yêu thương đó. Do vậy, sự chế ngự tâm ra khỏ cảnh yêu
 thương đó tức là áp chế tâm sân ấy được chấm dứt do Đao A na Hàm.
 
@@ -45066,7 +45156,6 @@ Thế Tôn ban hành là:
 5- Tỳ khưu ni phạm trọng pháp phải hành phạt Pakkamānatta ở lưỡng phái Tăng.
 6- Học nữ (Sikkhāmānā) phải thọ trì 6 giới trong hai năm liên tục, mới được xuất gia thọ Cụ túc
 giới trước lưỡng phái Tăng.
-
 7- Tỳ khưu ni không được khiển trách và lăng mạ tỳ khưu Tăng.
 8- Tỳ khưu ni không được giáo giới tỳ khưu, chỉ có Tỳ khưu được phép giáo giới tỳ khưu ni.
 Bà Gotamī hân hoan thọ lãnh tám trọng pháp như người thích trang điểm nhận lãnh vòng hoa
@@ -45201,13 +45290,13 @@ treo mình như thế. Riêng về dân chúng suy nghĩ:
   nát như lời nguyền của y.
 
 Vì e sợ kinh thành bị tiêu hoại, nên dân chúng chấp nhận yêu cầu của Bà la Môn Kuhaka.
-Kuhaka được những món y xin, mới chịu bỏ đi
-
-Chư tỳ khưu thấy y đi giống như loài bò gần Tinh xá, sực nhớ nên hỏi Bà la môn ấy rằng:
+Kuhaka được những món y xin, mới chịu bỏ đi Chư tỳ khưu thấy y đi giống như loài bò gần Tinh xá, sực nhớ nên hỏi Bà la môn ấy rằng:
 
 - Nầy Bà la môn, ngươi có được những vật như ý muốn chăng?
 - Vâng được rồi.
-  Chư tỳ khưu bạch trình lên đức Thế Tôn việc này, Ngài phán rằng:
+
+Chư tỳ khưu bạch trình lên đức Thế Tôn việc này, Ngài phán rằng:
+
 - Nầy chư tỳ khưu, chẳng phải bây giờ Bà la Môn ấy là người dối trá đâu. Trong quá khứ y cũng
   đã từng dối trá như thế rồi. Bà la môn ấy chỉ lừa dối được kẻ ngu thôi, chứ trong quá khứ y không thể
   gạt được người trí.
@@ -45228,16 +45317,19 @@ ngồi lim dim như ngủ cạnh gò mối. Con kỳ đà từ gò mối chui ra
 nghi bất thiện, nó suy nghĩ:
 
 - Hôm nay ta không hoan hỷ với hành động của Đạo sĩ nầy.
-  Kỳ đà liền quay lại hang, thấy vậy gã đạo sĩ liền ném khúc cây để giết chết kỳ đà, nhưng khúc
-  cây trượt đi, kỳ đà chạy vào hang, đưa đầu ra nói với đạo sĩ rằng: "Ta lầm tưởng ngươi là bậc có sự
-  thu thúc như Sa môn. Nầy người kia, ngươi chẳng phải là Sa môn, ngươi đã dùng khúc cây hại ta. Hỡi
-  người kém trí, sự thắt bính của ngươi có lợi ích chi? Bên trong ngươi đầy ô uế, nhưng bề ngoài ngươi
-  lại điểm tô rất đẹp."
+
+Kỳ đà liền quay lại hang, thấy vậy gã đạo sĩ liền ném khúc cây để giết chết kỳ đà, nhưng khúc
+cây trượt đi, kỳ đà chạy vào hang, đưa đầu ra nói với đạo sĩ rằng: "Ta lầm tưởng ngươi là bậc có sự
+thu thúc như Sa môn. Nầy người kia, ngươi chẳng phải là Sa môn, ngươi đã dùng khúc cây hại ta. Hỡi
+người kém trí, sự thắt bính của ngươi có lợi ích chi? Bên trong ngươi đầy ô uế, nhưng bề ngoài ngươi
+lại điểm tô rất đẹp."
 
 Thấy âm mưu của mình bị lộ, đạo sĩ dụ dỗ kỳ đà rằng:
 
 - Nầy hỡi kỳ đà, ngươi hay chui ra ăn cơm Sāli, dầu, muối, tiêu của ta đầy đủ.
-  Kỳ đà đáp lại rằng:
+
+Kỳ đà đáp lại rằng:
+
 - Bấy lâu nay ta ngỡ ngươi là Sa môn, giờ đây ngươi ném khúc cây toan giết ta. Ngươi không
   phải là Sa môn. Sự thắt bính của người thiếu trí như ngươi có lợi ích chi? Sự vận mặc y bằng da nai
   Jina của người lại khéo điểm trang.
