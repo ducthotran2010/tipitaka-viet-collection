@@ -6,7 +6,7 @@ import { readFileSync } from 'fs';
 import { toString } from 'mdast-util-to-string';
 import { writeFileSync } from 'fs';
 
-const markdown = readFileSync('dest/others/CG-KINH-PHAP-CU.md', 'utf8');
+const markdown = readFileSync('dist/others/CG-KINH-PHAP-CU.md', 'utf8');
 const tree = unified().use(remarkParse).parse(markdown);
 visit(tree, (node) => { delete node.position; });
 writeFileSync('example.json', JSON.stringify(tree, null, 2));
