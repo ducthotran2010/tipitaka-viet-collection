@@ -38276,7 +38276,7 @@ Tăng già cả đám chịu nhơ lây
 Sa môn phải nói lời chân thật
 Đầu trọc không, chưa đủ gọi Thầy.
 
-#### THẦY BÀ LA MÔN KHẤT SĨ
+### THẦY BÀ LA MÔN KHẤT SĨ
 
 **(PC 266-267)**
 
@@ -40909,7 +40909,7 @@ quí hơn tất cả những loài thuần chủng ấy.
 
 Dứt thời Pháp, những người đứng lăng mạ Ngài ở ngã ba đường chứng quả Dự Lưu.
 
-#### CHUYỆN MỘT TĂNG SĨ
+### CHUYỆN MỘT TĂNG SĨ
 
 **(PC. 323)**
 
@@ -44051,7 +44051,7 @@ bay lên hư không đi đến Tinh xá Jetavana cách đó 120 do tuần, đả
 
 DỨT TÍCH: NHIỀU VỊ TỲ KHƯU
 
-#### CHUYỆN 500 VỊ TỲ KHƯU
+### CHUYỆN 500 VỊ TỲ KHƯU
 
 **(PC. 377)**
 
@@ -44177,9 +44177,10 @@ giới mình.
 Chư tỳ khưu thấy Tỳ khưu Naṇgalakūṭa thường xuyên đến cội cây bèn hỏi rằng:
 
 - Này Hiền giả Naṇgalakūṭa! Do nhân chi Hiền giả đến nơi này!
-- Thưa chư Hiền! Tôi đi đến trú xứ của Giáo Thọ Sư của tôi. Trãi qua một thời gian, nhờ tinh cần
-  hành pháp vị ấy chứng đạt A la Hán quả và Trưởng Lão Naṇgalakūṭa không còn đi đến cội cây đó
-  nữa. Chư tỳ khưu liền trêu rằng:
+- Thưa chư Hiền! Tôi đi đến trú xứ của Giáo Thọ Sư của tôi.
+
+Trãi qua một thời gian, nhờ tinh cần hành pháp vị ấy chứng đạt A la Hán quả và Trưởng Lão Naṇgalakūṭa không còn đi đến cội cây đó nữa. Chư tỳ khưu liền trêu rằng:
+
 - Nầy Hiền giả Naṇgalakūṭa, do nhân chi Hiền giả không còn đến nơi Giáo thọ Sư của mình nữa
   vậy. Con đường đi của Hiền Giả không có dấu vết, hay là Hiền giả không muốn gặp mặt Giáo Thọ Sư
   của mình.
@@ -44233,7 +44234,7 @@ Siêu Thế Pháp và Hiệp thế thượng nhân Pháp, kể từ Sơ Thiền.
 
 DỨT TÍCH: TRƯỞNG LÃO NAṆGALAKŪṬA.
 
-#### TRƯỞNG LÃO VAKKALI
+### TRƯỞNG LÃO VAKKALI
 
 **(PC. 381)**
 
@@ -44252,12 +44253,14 @@ hay tu tập nghiệp xứ.
 Ngài thấy rằng:
 
 - Giờ đây, trí tuệ của Vakkali đã thuần thục, lão luyện rồi. Như Lai sẽ Giáo giới Vakkali vậy.
-  Rồi Thế Tôn giáo giới Tỳ Khưu Vakkali rằng:
-- Nầy Vakkali, lợi ích chi khi ngươi chiêm ngưỡng xác thân hôi thối nầy. Nầy Vakkali, chính
-  người nào thấy Pháp người ấy (gọi là) thấy Như Lai, người nào thấy Như Lai người ấy (gọi là-) thấy
-  Pháp. Tuy Bậc Đạo Sư đã khuyến cáo như thế, tỳ khưu Vakkali vẫn mãi mê say đắm, chiêm ngưỡng
-  Kim thân Ngài. Bậc Đạo Sư suy nghĩ: "Nếu vị tỳ khưu nầy không được khởi động tâm, vị ấy sẽ không
-  chứng đạt Đạo Quả".
+
+Rồi Thế Tôn giáo giới Tỳ Khưu Vakkali rằng:
+
+- Nầy Vakkali, lợi ích chi khi ngươi chiêm ngưỡng xác thân hôi thối nầy. Nầy Vakkali, chính người nào thấy Pháp người ấy (gọi là) thấy Như Lai, người nào thấy Như Lai người ấy (gọi là-) thấy Pháp.
+
+Tuy Bậc Đạo Sư đã khuyến cáo như thế, tỳ khưu Vakkali vẫn mãi mê say đắm, chiêm ngưỡng
+Kim thân Ngài. Bậc Đạo Sư suy nghĩ: "Nếu vị tỳ khưu nầy không được khởi động tâm, vị ấy sẽ không
+chứng đạt Đạo Quả".
 
 Khi đến mùa an cư mùa mưa, đức Thế Tôn phán gọi tỳ khưu Vakkali đến dạy rằng:
 
@@ -44275,8 +44278,8 @@ không được sự an ủi của Như Lai, duyên lành của y sẽ bị tổ
 đến trước mặt Tỳ khưu Vakkali vẫy gọi rằng:
 
 - Nầy Vakkali hãy đến đây!
-  Tỳ khưu Vakkali nghe đức Thế Tôn kêu gọi, mọi sầu muộn trong tâm vụt tan biến. Vị ấy nghĩ
-  rằng: "Bậc Đạo Sư gọi đến ta".
+
+Tỳ khưu Vakkali nghe đức Thế Tôn kêu gọi, mọi sầu muộn trong tâm vụt tan biến. Vị ấy nghĩ rằng: "Bậc Đạo Sư gọi đến ta".
 
 Bậc Đạo Sư như hồ nước trong mát đã làm nhiệt não của Vakkali tiêu mất, vị ấy phát sanh phỉ
 lạc, nhưng nhìn quanh không thấy đường đi xuống, lập tức Vakkali từ trên cao gieo mình xuống trước
@@ -44313,7 +44316,7 @@ Thời gian sau, đức Thế Tôn ban cho Trưởng Lão Vakkali địa vị đ
 
 DỨT TÍCH: TRƯỞNG LÃO VAKKALI
 
-#### SA DI SUMANA
+### SA DI SUMANA
 
 **(PC. 382)**
 
@@ -44399,7 +44402,10 @@ dường vật thực đến ai thế?"
   Sumana.
 - Thôi được, nếu ngươi không bằng lòng nhường phần phước lại. Ngươi hãy nhận số tiền 1000
   kahāpana nầy, rồi chia phước lại cho ta đi.
-- Thưa chủ! Việc nầy để tôi hỏi lại đức Phật đã. Y tìm đến hỏi đức Phật Độc Giác, Ngài nói rằng:
+- Thưa chủ! Việc nầy để tôi hỏi lại đức Phật đã.
+
+Y tìm đến hỏi đức Phật Độc Giác, Ngài nói rằng:
+
 - Này thanh niên! Sự chia phước đến người khác là một điều tốt. Ngươi nên hiểu theo ví dụ nầy
   đi. Này thanh niên Annabhārā! Ví như có người thắp sáng lên ngọn đèn rồi cho ngàn gia tộc khác mồi
   lửa từ ngọn đèn ấy mang đi. Này thanh niên, vậy ngọn lửa có vì sự mồi lửa mà hao bớt đi chăng?
@@ -44411,8 +44417,11 @@ dường vật thực đến ai thế?"
   đi nữa, phước ấy càng tăng trưởng. Tuy ngươi chỉ cúng dường một muổng vật thực thôi, nhưng khi
   ngươi chia phước đến Trưởng Giả, phần vật thực ấy trở thành hai phần, của ngươi là một và một của
   Trưởng giả.
-- Lành thay, bạch Ngài. Rồi thanh niên Annabhāra đảnh lễ đức Độc Giác Phật, tâm hân hoan
-  vui vẻ ra về, nói với Trưởng giả Sumana, rằng:
+- Lành thay, bạch Ngài.
+
+Rồi thanh niên Annabhāra đảnh lễ đức Độc Giác Phật, tâm hân hoan
+vui vẻ ra về, nói với Trưởng giả Sumana, rằng:
+
 - Thưa chủ, tôi chia phước nầy đến ông với niềm tin.
 - Thế thì, ngươi hãy nhận tiền đi.
 - Thưa chủ, tôi không bán vật thực. Tôi chỉ chia phước đến Ngài bởi niềm tin mà thôi.
