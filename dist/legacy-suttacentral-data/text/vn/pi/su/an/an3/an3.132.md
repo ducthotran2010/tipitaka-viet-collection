@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Kusinàra
 
-# 130\. Chữ Viết Trên Ðá, Trên Ðất, Trên Nước.
+# 130. Chữ Viết Trên Ðá, Trên Ðất, Trên Nước.
 
 —Ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đời. Thế nào là ba? Hạng người như chữ viết trên đá, hạng người như chữ viết trên đất, hạng người như chữ viết trên nước.
 

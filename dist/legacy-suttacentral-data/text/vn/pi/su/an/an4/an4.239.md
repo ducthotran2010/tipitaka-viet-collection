@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XXIV. Phẩm Nghiệp

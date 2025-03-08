@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Kẻ Chiến Sĩ
 
-# 137\. Ngựa Chưa Ðược Ðiều Phục
+# 137. Ngựa Chưa Ðược Ðiều Phục
 
 —Này các Tỷ-kheo, Ta sẽ giảng về ba loại ngựa chưa được điều phục và Ta sẽ giảng về ba hạng người chưa được điều phục. Hãy lắng nghe và khéo tác ý, Ta sẽ nói.
 

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VIII. Phẩm Ananda
 
-# 74\. Vị Lõa Thể
+# 74. Vị Lõa Thể
 
 Một thời, Tôn giả Ananda trú tại Vesàli, rừng Ðại Lâm, trong ngôi giảng đường có góc nhọn. Rồi Abhaya người Licchavi và Panditakumàrako người Licchiva, đi đến Tôn giả Ananda, sau khi đến, đảnh lễ Tôn giả Ananda rồi ngồi xuống một bên. Ngồi xuống một bên, Abhaya người Licchiva thưa với Tôn giả Ananda:
 

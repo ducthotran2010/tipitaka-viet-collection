@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 V. Phẩm Nhỏ
 
-# 48\. Núi
+# 48. Núi
 
 —Dựa vào vua núi Tuyết Sơn, này các Tỷ-kheo, các cây sàlà to lớn được lớn lên ba sự tăng trưởng. Thế nào là ba?
 

@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XXIII. Phẩm Du Hành Dài

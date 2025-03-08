@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IV. Phẩm Sứ Giả Của Trời
 
-# 39\. Kiêu Mạn
+# 39. Kiêu Mạn
 
 —Có ba kiêu mạn này, này các Tỷ-kheo, Thế nào là ba? Kiêu mạn của tuổi trẻ, Kiêu mạn của không bệnh, Kiêu mạn của sự sống.
 

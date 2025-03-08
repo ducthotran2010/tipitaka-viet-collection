@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XX. Ðại Phẩm

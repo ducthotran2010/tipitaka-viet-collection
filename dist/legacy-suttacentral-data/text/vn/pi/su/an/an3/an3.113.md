@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XII. Phẩm Ðọa Xứ
 
-# 111\. Rơi Vào Ðọa Xứ
+# 111. Rơi Vào Ðọa Xứ
 
 —Này các Tỷ-kheo, ba hạng người này rơi vào đọa xứ, rơi vào địa ngục, trừ phi họ đoạn bỏ pháp này. Thế nào là ba?
 

@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XII. Phẩm Các Kinh Không Nhiếp Trong Phẩm

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VI. Phẩm Các Bà-La-Môn
 
-# 60\. Sangàrava
+# 60. Sangàrava
 
 ## 1–7.
 

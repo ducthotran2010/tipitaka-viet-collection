@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 V. Phẩm Nhỏ
 
-# 43\. Ba Lợi Ích
+# 43. Ba Lợi Ích
 
 —Thấy rõ ba lợi ích này (lý do, lợi ích) là cần thiết cho một người thuyết pháp cho người khác. Thế nào là ba?
 

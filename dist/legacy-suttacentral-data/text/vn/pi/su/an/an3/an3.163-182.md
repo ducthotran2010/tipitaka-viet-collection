@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XVI. Phẩm Lõa Thể
 
-# 153\. Sát Sanh
+# 153. Sát Sanh
 
 —Ðầy đủ ba pháp, này các Tỷ-kheo, tương xứng như vậy, bị rơi vào địa ngục. Thế nào là ba?
 
@@ -14,11 +12,11 @@ Tự mình sát sanh, khích lệ người khác sát sanh, tùy hỷ sự sát 
 
 Tự mình từ bỏ sát sanh, khích lệ người khác từ bỏ sát sanh, tùy hỷ sự từ bỏ sát sanh. Ðầy đủ ba pháp này, này các Tỷ-kheo, tương xứng như vậy, được sanh thiên giới.
 
-# 154\. Lấy Của Không Cho
+# 154. Lấy Của Không Cho
 
 > (Giống như kinh trên, chỉ khác đây là lấy của không cho)...
 
-# 155\. Tà Hạnh Trong Dục Vọng
+# 155. Tà Hạnh Trong Dục Vọng
 
 > (Giống như kinh trên, chỉ khác đây là tà hạnh trong dục vọng)...
 

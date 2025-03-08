@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Phẩm Lớn
 
-# 66\. Sàlhà
+# 66. Sàlhà
 
 ## 1–13.
 

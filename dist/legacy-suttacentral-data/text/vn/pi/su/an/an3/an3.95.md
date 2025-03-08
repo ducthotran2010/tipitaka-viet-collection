@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 X. Phẩm Hạt Muối
 
-# 93\. Hội Chúng
+# 93. Hội Chúng
 
 —Có ba hội chúng này, này các Tỷ-kheo, Thế nào là ba? Hội chúng tối thượng, hội chúng không hòa hợp, hội chúng hòa hợp.
 

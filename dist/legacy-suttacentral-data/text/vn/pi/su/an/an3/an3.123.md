@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Kusinàra
 
-# 121\. Tại Kusinàra
+# 121. Tại Kusinàra
 
 Một thời Thế Tôn trú ở Kusinàra, tại khóm rừng Bariharana. Tại đấy, Thế Tôn gọi các Tỷ-kheo:
 

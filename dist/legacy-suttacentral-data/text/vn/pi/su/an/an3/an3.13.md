@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 II. Phẩm Người Ðóng Xe
 
-# 13\. Ba Hạng Người
+# 13. Ba Hạng Người
 
 —Có ba hạng người này, này các Tỷ-kheo, xuất hiện, có mặt ở đời. Thế nào là ba? Không hy vọng, có hy vọng, ly hy vọng.
 

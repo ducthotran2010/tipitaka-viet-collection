@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XXV. Phẩm Ác Hành

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IV. Phẩm Sứ Giả Của Trời
 
-# 34\. Về Alavì
+# 34. Về Alavì
 
 Như vầy tôi nghe.
 

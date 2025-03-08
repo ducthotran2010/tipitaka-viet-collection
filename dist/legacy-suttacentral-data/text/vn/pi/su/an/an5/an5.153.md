@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XVI. Phẩm Diệu Pháp

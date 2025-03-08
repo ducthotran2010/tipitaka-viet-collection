@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 IV. Phẩm Tâm Thăng Bằng

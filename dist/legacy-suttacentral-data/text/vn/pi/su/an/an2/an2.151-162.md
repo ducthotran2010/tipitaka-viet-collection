@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Ðón Chào

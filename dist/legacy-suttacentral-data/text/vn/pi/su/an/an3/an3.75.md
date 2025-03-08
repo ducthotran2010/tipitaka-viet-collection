@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VIII. Phẩm Ananda
 
-# 75\. Cần Phải Khích Lệ
+# 75. Cần Phải Khích Lệ
 
 Rồi Tôn giả Ananda đi đến Thế Tôn; sau khi đến, đảnh lễ Thế Tôn rồi ngồi xuống một bên. Thế Tôn nói với Tôn giả Ananda đang ngồi xuống một bên:
 

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XI. Phẩm Chánh Giác
 
-# 101\. Trước Khi Giác Ngộ
+# 101. Trước Khi Giác Ngộ
 
 —Này các Tỷ-kheo, trước khi Ta giác ngộ, chưa chánh đẳng giác, còn là Bồ-tát, ta suy nghĩ như sau: “Cái gì là vị ngọt ở đời? Cái gì là nguy hại, cái gì là xuất ly?”. Rồi này các Tỷ-kheo, về vấn đề ấy, tư tưởng sau đây khởi lên nơi ta: “Do duyên với đời, khởi lên lạc hỷ gì, đây là vị ngọt ở đời. Cái gì ở đời là vô thường, khổ, chịu sự biến hoại, đấy là nguy hại ở đời. Ðiều phục dục tham ở đời, đoạn tận tham dục, đấy là xuất ly ở đời”.
 

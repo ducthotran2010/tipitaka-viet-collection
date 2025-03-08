@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XV. Phẩm Cát Tường
 
-# 142\. Có Phạm Tội
+# 142. Có Phạm Tội
 
 —Ðầy đủ ba pháp này, này các Tỷ-kheo, tương xứng như vậy, bị rơi vào địa ngục. Thế nào là ba?
 

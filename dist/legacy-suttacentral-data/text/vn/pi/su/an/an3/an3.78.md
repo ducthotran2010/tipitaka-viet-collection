@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VIII. Phẩm Ananda
 
-# 78\. Sự Hầu Hạ Giúp Ðỡ
+# 78. Sự Hầu Hạ Giúp Ðỡ
 
 _(Nhân duyên như kinh trên)._ Thế Tôn nói với Tôn giả Ananda đang ngồi một bên:
 

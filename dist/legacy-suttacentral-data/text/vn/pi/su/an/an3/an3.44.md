@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 V. Phẩm Nhỏ
 
-# 44\. Trường Hợp
+# 44. Trường Hợp
 
 —Có ba trường hợp, này các Tỷ-kheo, cuộc pháp thoại được diễn tiến có lợi ích. Thế nào là ba?
 

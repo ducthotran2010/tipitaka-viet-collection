@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 V. Phẩm Nhỏ
 
-# 45\. Bổn Phận
+# 45. Bổn Phận
 
 —Ba pháp này, này các Tỷ-kheo, được người Hiền trí tuyên bố, được bậc Chân nhân tuyên bố. Thế nào là ba?
 

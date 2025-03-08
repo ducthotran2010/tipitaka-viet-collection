@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Không Có Rung Ðộng

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Sa-Môn
 
-# 85\. Hữu Học (2)
+# 85. Hữu Học (2)
 
 —Này các Tỷ-kheo, bản tụng đọc này gồm hơn 150 học giới cần phải đọc nửa tháng một lần, ở đây các người thiện nam tử muốn được lợi ích, học tập bản tụng ấy. Này các Tỷ-kheo, tất cả được thâu nhiếp họp lại thành ba học giới này. Thế nào là ba? Tăng thượng giới học, tăng thượng định học, tăng thượng tuệ học. Chính ba học giới này, này các Tỷ-kheo, thâu nhiếp tất cả.
 

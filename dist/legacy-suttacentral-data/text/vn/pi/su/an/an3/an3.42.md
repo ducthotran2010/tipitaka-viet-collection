@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 V. Phẩm Nhỏ
 
-# 42\. Sự Kiện
+# 42. Sự Kiện
 
 —Do ba sự kiện, này các Tỷ-kheo, một người được biết là có lòng tin. Thế nào là ba?
 

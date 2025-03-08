@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 II. Phẩm Người Ðóng Xe
 
-# 16\. Con Ðường Không Có Lỗi Lầm
+# 16. Con Ðường Không Có Lỗi Lầm
 
 —Thành tựu ba pháp, này các Tỷ-kheo, Tỷ-kheo thực hành con đường không có lầm lỗi, và có những căn bản thắng tấn để đoạn diệt các lậu hoặc. Thế nào là ba? Ở đây, này các Tỷ-kheo, Tỷ-kheo hộ trì các căn, tiết độ trong ăn uống và chú tâm cảnh giác.
 

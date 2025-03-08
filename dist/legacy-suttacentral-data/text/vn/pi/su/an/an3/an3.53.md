@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VI. Phẩm Các Bà-La-Môn
 
-# 53\. Vị Bà-La-Môn
+# 53. Vị Bà-La-Môn
 
 Rồi một Bà-la-môn đi đến Thế Tôn, sau khi đến, đảnh lễ, nói lên những lời chào đón thăm hỏi thân hữu rồi ngồi xuống một bên. Ngồi xuống một bên, Bà-la-môn ấy bạch Thế Tôn:
 

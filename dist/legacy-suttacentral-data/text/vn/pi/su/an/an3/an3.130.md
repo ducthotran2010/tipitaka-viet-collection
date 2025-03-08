@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Kusinàra
 
-# 128\. Anuruddha (2)
+# 128. Anuruddha (2)
 
 Rồi Tôn giả Anuruddha đi đến Tôn giả Sàriputta, sau khi đến, nói lên với Tôn giả Sàriputta những lời chào đón hỏi thăm thân hữu rồi ngồi xuống một bên. Ngồi xuống một bên, Tôn giả Anuruddha nói với Tôn giả Sàriputta:
 

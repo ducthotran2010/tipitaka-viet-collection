@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Kusinàra
 
-# 129\. Che Giấu
+# 129. Che Giấu
 
 —Này các Tỷ-kheo, có ba pháp này được che giấu khi thực hành, không có hiển lộ. Thế nào là ba?
 

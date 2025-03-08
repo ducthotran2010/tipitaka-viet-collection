@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VI. Phẩm Các Bà-La-Môn
 
-# 55\. Niết-bàn
+# 55. Niết-bàn
 
 Rồi Bà-la-môn Jànussoni đi đến Thế Tôn, sau khi đến, đảnh lễ, nói lên những lời chào đón thăm hỏi thân hữu rồi ngồi xuống một bên. Ngồi xuống một bên, Bà-la-môn Jànussoni bạch Thế Tôn:
 

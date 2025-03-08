@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XX. Phẩm Bà-La-Môn

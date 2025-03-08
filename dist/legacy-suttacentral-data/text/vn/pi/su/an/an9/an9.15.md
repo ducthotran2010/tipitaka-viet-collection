@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 II. Phẩm Tiếng Rống Con Sư Tử

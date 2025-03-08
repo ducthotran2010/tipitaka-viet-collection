@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XII. Phẩm Ðọa Xứ
 
-# 117\. Hành Ðộng
+# 117. Hành Ðộng
 
 —Này các Tỷ-kheo, có ba khiếm khuyết này. Thế nào là ba? Khiếm khuyết về hành động, khiếm khuyết về sanh kế, khiếm khuyết về tri kiến.
 

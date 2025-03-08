@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IV. Phẩm Sứ Giả Của Trời
 
-# 33\. Các Nguyên Nhân
+# 33. Các Nguyên Nhân
 
 —Có ba nguyên nhân này, này các Tỷ-kheo, khởi lên các nghiệp. Thế nào là ba? Tham là nguyên nhân khởi lên các nghiệp. Sân là nguyên nhân khởi lên các nghiệp. Si là nguyên nhân khởi lên các nghiệp.
 

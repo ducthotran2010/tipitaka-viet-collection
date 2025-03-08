@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Gia Chủ

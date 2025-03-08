@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Người
 
-# 26\. Cần Phải Thân Cận
+# 26. Cần Phải Thân Cận
 
 —Có ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đời. Thế nào là ba? Có hạng người này, này các Tỷ-kheo, không nên gần gũi, không nên sống chung, không nên hầu hạ cúng dường. Có hạng người, này các Tỷ-kheo, nên thân cận gần gũi, nên sống chung, nên hầu hạ cúng dường. Có hạng người, này các Tỷ-kheo, sau khi cung kính, tôn trọng, nên gần gũi, nên sống chung, nên hầu hạ cúng dường.
 

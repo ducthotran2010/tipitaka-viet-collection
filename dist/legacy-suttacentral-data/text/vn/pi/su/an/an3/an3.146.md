@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XV. Phẩm Cát Tường
 
-# 141\. Không Thiện
+# 141. Không Thiện
 
 —Ðầy đủ ba pháp này, này các Tỷ-kheo, tương xứng như vậy, bị rơi vào địa ngục. Thế nào là ba?
 

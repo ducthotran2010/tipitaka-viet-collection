@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Phẩm Lớn
 
-# 61\. Sở y xứ.
+# 61. Sở y xứ.
 
 —Này các Tỷ-kheo, có ba y xứ này của ngoại đạo, dầu có bị các bậc Hiền giả cật vấn, nạn vấn lý do, thảo luận, vẫn kiên trì trong quan điểm truyền thống về vô vi (không hành động). Thế nào là ba?
 

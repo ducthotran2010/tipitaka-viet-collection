@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Kẻ Chiến Sĩ
 
-# 138\. Ngựa Ðược Ðiều Phục
+# 138. Ngựa Ðược Ðiều Phục
 
 —Này các Tỷ-kheo, Ta sẽ giảng về ba loại ngựa được điều phục và Ta sẽ giảng về ba hạng người chưa được điều phục. Hãy lắng nghe và khéo tác ý, Ta sẽ nói.
 

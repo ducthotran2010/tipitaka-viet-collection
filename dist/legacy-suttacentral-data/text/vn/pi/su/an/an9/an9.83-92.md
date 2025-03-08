@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Bốn Như Ý Túc

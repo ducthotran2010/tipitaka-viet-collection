@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 X. Phẩm Hạt Muối
 
-# 91\. Cấp Thiết
+# 91. Cấp Thiết
 
 —Này các Tỷ-kheo, có ba việc cấp thiết này, người nông phu gia chủ cần phải làm. Thế nào là ba?
 

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 X. Phẩm Hạt Muối
 
-# 94\. Con Ngựa Thuần Thục
+# 94. Con Ngựa Thuần Thục
 
 —Ðầy đủ với ba đức tánh, này các Tỷ-kheo, một con ngựa của vua, hiền thiện, thuần thục, xứng đáng để vua dùng, thuộc quyền sở hữu của vua, và được xem như một biểu tượng của vua. Thế nào là ba?
 

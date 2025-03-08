@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 VI. Phẩm Các Bà-La-Môn

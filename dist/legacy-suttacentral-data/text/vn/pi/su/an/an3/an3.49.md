@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 V. Phẩm Nhỏ
 
-# 49\. Nhiệt Tình Tinh Tấn
+# 49. Nhiệt Tình Tinh Tấn
 
 —Có ba trường hợp, này các Tỷ-kheo, nhiệt tình cần phải làm mạnh. Thế nào là ba?
 

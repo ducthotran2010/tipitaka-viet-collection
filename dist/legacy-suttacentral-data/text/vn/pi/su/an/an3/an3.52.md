@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VI. Phẩm Các Bà-La-Môn
 
-# 52\. (b) Hai Người
+# 52. (b) Hai Người
 
 Rồi Bà-la-môn già yếu, trưởng lão, tuổi lớn, cuộc đời đã được trải qua, đã đến đoạn cuối cuộc đời, đã 120 tuổi, đi đến Thế Tôn, đảnh lễ, nói lên những lời chào đón thăm hỏi thân hữu rồi ngồi xuống một bên. Rồi Bà-la-môn ấy bạch Thế Tôn:
 

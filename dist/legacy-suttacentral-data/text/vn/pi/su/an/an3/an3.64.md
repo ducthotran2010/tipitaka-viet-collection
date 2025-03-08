@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Phẩm Lớn
 
-# 64\. Sarabha
+# 64. Sarabha
 
 ## 1–6.
 

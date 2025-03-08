@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Kẻ Chiến Sĩ
 
-# 135\. Mền Bằng Tóc.
+# 135. Mền Bằng Tóc.
 
 —Ví như, này các Tỷ-kheo, trong tất cả loại vải được dệt, mền được dệt bằng tóc được xem là hạ liệt nhất. Mền được dệt bằng tóc, này các Tỷ-kheo, khi trời lạnh thì lạnh, khi trời nóng thì nóng, xấu xí, có mùi hôi, xúc chạm khó chịu. Cũng vậy, này các Tỷ-kheo, trong các chủ thuyết của các Sa-môn ngoại đạo tuyên bố, chủ thuyết của Makkhali được xem là hèn hạ nhất. Này các Tỷ-kheo, Makkhali, kẻ ngu si có thuyết như sau; có kiến như sau: “Không có nghiệp, không có nghiệp quả, không có tinh tấn”.
 

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Kusinàra
 
-# 123\. Ðiện Thờ Gotama
+# 123. Ðiện Thờ Gotama
 
 Một thời, Thế Tôn trú ở Vesàli, tại điện thờ Gotama. Tại đấy, Thế Tôn gọi các Tỷ-kheo:
 

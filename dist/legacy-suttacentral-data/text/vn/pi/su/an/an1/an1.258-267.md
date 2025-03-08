@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Người Tối Thắng

@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 I. Phẩm Sức Mạnh Hữu Học

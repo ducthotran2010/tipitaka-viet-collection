@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 II. Phẩm Người Ðóng Xe
 
-# 11\. Ba Pháp
+# 11. Ba Pháp
 
 —Thành tựu với ba pháp này, này các Tỷ-kheo, một Tỷ-kheo có danh tiếng, sống đem lại bất hạnh cho đa số, không an lạc cho đa số, không lợi ích cho đa số, đem lại bất hạnh, đau khổ cho chư Thiên và loài người. Thế nào là ba? Khuyến khích các thân nghiệp không tùy thuận; khuyến khích các ngữ nghiệp không tuỳ thuận, khuyến khích các pháp không tùy thuận. Thành tựu với ba pháp này, này các Tỷ-kheo, một Tỷ-kheo có danh tiếng sống ... cho chư Thiên và loài người.
 

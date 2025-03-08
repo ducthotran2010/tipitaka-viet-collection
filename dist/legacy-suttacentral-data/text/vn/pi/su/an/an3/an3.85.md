@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Sa-Môn
 
-# 84\. Hữu Học (1)
+# 84. Hữu Học (1)
 
 Rồi một Tỷ-kheo đi đến Thế Tôn; sau khi đến, đảnh lễ Thế Tôn rồi ngồi xuống một bên. Ngồi xuống một bên, Tỷ-kheo bạch Thế Tôn:
 

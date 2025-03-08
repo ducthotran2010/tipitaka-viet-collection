@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Sa-Môn
 
-# 90\. Pankadhà
+# 90. Pankadhà
 
 Một thời Thế Tôn đang du hành giữa dân chúng Kosala cùng với đại chúng Tỷ-kheo, đi đến một thị trấn của dân chúng Kosala, tên là Pankadhà. Tại đấy, Thế Tôn trú ở Pankadhà. Pankadhà là một thị trấn của dân chúng Kosala.
 

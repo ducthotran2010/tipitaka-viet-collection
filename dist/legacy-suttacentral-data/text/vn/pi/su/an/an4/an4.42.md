@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 V. Phẩm Rohitassa

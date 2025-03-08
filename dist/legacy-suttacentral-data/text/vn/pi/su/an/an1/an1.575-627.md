@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XXI. Phẩm Thiền Ðịnh (2)

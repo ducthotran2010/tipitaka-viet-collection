@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Ðại Phẩm

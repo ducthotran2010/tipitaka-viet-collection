@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 VIII. Phẩm Chiến Sĩ

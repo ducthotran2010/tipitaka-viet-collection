@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XV. Phẩm Nhập Ðịnh

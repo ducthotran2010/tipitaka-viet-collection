@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XVI. Phẩm Lõa Thể
 
-# 163\. Ðịnh
+# 163. Ðịnh
 
 —Ðể thắng tri tham ái, này các Tỷ-kheo, ba pháp cần phải tu tập. Thế nào là ba?
 

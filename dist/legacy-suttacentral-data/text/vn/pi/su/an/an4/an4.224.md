@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XXIII. Phẩm Diệu Hạnh

@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XIX. Phẩm Không Phóng Dật

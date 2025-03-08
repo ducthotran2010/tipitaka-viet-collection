@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XXII. Phẩm Ô Uế

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 V. Phẩm Nhỏ
 
-# 50\. Giặc Cướp
+# 50. Giặc Cướp
 
 —Do đầy đủ ba điều kiện, này các Tỷ-kheo, một tên cướp lớn có thể chặt được khóa cửa, mang đi được đồ ăn trộm, làm kẻ cướp trộm một nhà, làm kẻ đứng đường chận cướp. Thế nào là ba?
 

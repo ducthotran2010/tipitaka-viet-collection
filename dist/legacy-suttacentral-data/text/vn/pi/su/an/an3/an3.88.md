@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Sa-Môn
 
-# 87\. Bản Tụng Ðọc (2)
+# 87. Bản Tụng Ðọc (2)
 
 —Này các Tỷ-kheo, bản tụng đọc này ... _(như kinh trước, đoạn số 1)_ ... này các Tỷ-kheo, thâu nhiếp tất cả.
 

@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XXVI. Phẩm Thắng Trí

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XII. Phẩm Ðọa Xứ
 
-# 113\. Không Thể Ước Lượng
+# 113. Không Thể Ước Lượng
 
 —Có ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đời. Thế nào là ba? Dễ ước lượng, khó ước lượng và không thể ước lượng.
 

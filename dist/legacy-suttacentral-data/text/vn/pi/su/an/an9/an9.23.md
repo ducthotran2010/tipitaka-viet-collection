@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Chỗ Cư Trú Của Hữu Tình

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VIII. Phẩm Ananda
 
-# 72\. Tà Mạng Ðệ Tử
+# 72. Tà Mạng Ðệ Tử
 
 Một thời, Tôn giả Ananda trú ở Kosambi, tại khu vườn Ghosità
 

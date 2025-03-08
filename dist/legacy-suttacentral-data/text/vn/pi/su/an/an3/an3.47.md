@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 V. Phẩm Nhỏ
 
-# 47\. Hữu Vi
+# 47. Hữu Vi
 
 —Có ba tướng hữu vi này, này các Tỷ-kheo, cho các pháp hữu vi. Thế nào là ba?
 

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XII. Phẩm Ðọa Xứ
 
-# 118\. Thanh Tịnh (1)
+# 118. Thanh Tịnh (1)
 
 —Này các Tỷ-kheo, có ba thanh tịnh này. Thế nào là ba? Thân thanh tịnh, lời nói thanh tịnh, ý thanh tịnh.
 

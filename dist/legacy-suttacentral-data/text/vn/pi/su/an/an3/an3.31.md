@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IV. Phẩm Sứ Giả Của Trời
 
-# 31\. Ngang Bằng Với Phạm Thiên
+# 31. Ngang Bằng Với Phạm Thiên
 
 —Những gia đình nào, này các Tỷ-kheo, trong ấy, các con cái kính lễ mẹ cha ở trong nhà, những gia đình ấy được chấp nhận ngang bằng với Phạm Thiên. Những gia đình nào, này các Tỷ-kheo, trong ấy, các con cái kính lễ mẹ cha ở trong nhà, những gia đình ấy được chấp nhận như các Ðạo sư thời xưa. Những gia đình nào, này các Tỷ-kheo, trong ấy, các con cái kính lễ mẹ cha ở trong nhà, những gia đình ấy được chấp nhận là đáng được cúng dường.
 

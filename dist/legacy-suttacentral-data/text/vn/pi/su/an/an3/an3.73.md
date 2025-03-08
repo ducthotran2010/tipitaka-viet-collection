@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VIII. Phẩm Ananda
 
-# 73\. Người Họ Thích
+# 73. Người Họ Thích
 
 Một thời, Thế Tôn trú giữa dân chúng Thích tử, tại Kapilavatthu, ở khu vườn Nigrodha.
 

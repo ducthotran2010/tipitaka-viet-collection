@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 X. Phẩm Hạt Muối
 
-# 100\. Kẻ Lọc Vàng
+# 100. Kẻ Lọc Vàng
 
 —Này các Tỷ-kheo, có những uế nhiễm thô tạp của vàng như bụi, cát, đá, sạn và đá sỏi. Người đãi lọc bụi hay đệ tử của người đã lọc bụi đem đổ vào trong cái máng, rồi rửa sạch qua, rửa sạch lại, rửa sạch thêm nữa.
 

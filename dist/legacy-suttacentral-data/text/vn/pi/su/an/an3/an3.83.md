@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Sa-Môn
 
-# 82\. Nghề Nông
+# 82. Nghề Nông
 
 Có ba việc này, này các Tỷ-kheo, một nông phu gia chủ cần phải làm trước. Thế nào là ba?
 

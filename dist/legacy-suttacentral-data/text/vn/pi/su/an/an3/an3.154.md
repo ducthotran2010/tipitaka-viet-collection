@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XV. Phẩm Cát Tường
 
-# 149\. Kính Lễ
+# 149. Kính Lễ
 
 —Này các Tỷ-kheo, có ba loại kính lễ này. Thế nào là ba?
 

@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XXV. Phẩm Sợ Hãi Phạm Tội

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 II. Phẩm Người Ðóng Xe
 
-# 19\. Người Buôn Bán
+# 19. Người Buôn Bán
 
 —Thành tựu ba chi phần, này các Tỷ-kheo, một người buôn bán không thâu nhận được tài sản chưa thâu nhận và không tăng trưởng tài sản đã được thâu nhận. Thế nào là ba? Ở đây, này các Tỷ-kheo, người buôn bán, vào buổi sáng không có nhiệt tâm chăm chú vào công việc, vào buổi trưa không có nhiệt tâm chăm chú vào công việc, vào buổi chiều không có nhiệt tâm chăm chú vào công việc. Thành tựu với ba chi phần này, này các Tỷ-kheo, một người buôn bán không thâu nhận được tài sản chưa được thâu nhận và không tăng trưởng tài sản đã được thâu nhận.
 

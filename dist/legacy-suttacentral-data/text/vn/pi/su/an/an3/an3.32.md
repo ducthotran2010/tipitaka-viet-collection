@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IV. Phẩm Sứ Giả Của Trời
 
-# 32\. Ananda
+# 32. Ananda
 
 Rồi Tôn giả Ananda đi đến Thế Tôn, sau khi đến, đảnh lễ Thế Tôn, rồi ngồi xuống một bên; ngồi xuống một bên, Tôn giả Ananda bạch Thế Tôn:
 

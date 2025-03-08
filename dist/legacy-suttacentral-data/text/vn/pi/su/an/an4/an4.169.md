@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XVII. Phẩm Ðạo Hành

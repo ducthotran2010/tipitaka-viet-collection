@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XII. Phẩm Ðọa Xứ
 
-# 120\. Toàn Hảo.
+# 120. Toàn Hảo.
 
 —Này các Tỷ-kheo, có ba sự toàn hảo. Thế nào là ba? Toàn hảo về thân, toàn hảo về lời nói, toàn hảo về ý.
 

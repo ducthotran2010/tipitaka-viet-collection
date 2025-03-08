@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Một Người

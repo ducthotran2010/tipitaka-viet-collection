@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 II. Phẩm Người Ðóng Xe
 
-# 18\. Thiên Giới
+# 18. Thiên Giới
 
 —Nếu các du sĩ ngoại đạo hỏi các thầy như sau: “Chư Hiền, có phải Sa-môn Gotama sống Phạm hạnh để được sanh lên cõi Trời? “Này các Tỷ-kheo, được hỏi vậy, các Thầy có bực phiền, tủi nhục, chán ngấy hay không ?
 

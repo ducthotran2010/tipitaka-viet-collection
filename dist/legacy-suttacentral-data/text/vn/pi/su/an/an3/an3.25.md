@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Người
 
-# 25\. Vết Thương Làm Mủ
+# 25. Vết Thương Làm Mủ
 
 —Có ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đời. Thế nào là ba? Hạng người với tâm ví dụ như vết thương, với tâm ví dụ như chớp sáng, với tâm ví dụ như kim cang.
 

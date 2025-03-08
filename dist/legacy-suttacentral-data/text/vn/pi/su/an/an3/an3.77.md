@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VIII. Phẩm Ananda
 
-# 77\. Tư và Khởi Ðiểm
+# 77. Tư và Khởi Ðiểm
 
 Rồi Tôn giả Ananda đi đến Thế Tôn; sau khi đến, đảnh lễ Thế Tôn rồi ngồi xuống một bên, Tôn giả Ananda bạch Thế Tôn:
 

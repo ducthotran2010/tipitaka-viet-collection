@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 II. Phẩm Người Ðóng Xe
 
-# 12\. Ba Chỗ
+# 12. Ba Chỗ
 
 —Ba pháp này, này các Tỷ-kheo, một vua Sát-đế-lỵ đã làm lễ quán đảnh cần phải trọn đời ghi nhớ. Thế nào là ba?
 

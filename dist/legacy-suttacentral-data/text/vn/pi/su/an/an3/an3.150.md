@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XV. Phẩm Cát Tường
 
-# 145\. Mất Gốc (1)
+# 145. Mất Gốc (1)
 
 —Ðầy đủ ba pháp này, này các Tỷ-kheo, kẻ ngu si, không thông minh, không phải bậc Chân nhân, tự mình xử sự như kẻ mất gốc, bị thương tích, có phạm tội, bị người trí quở trách, làm nhiều điều vô phước. Thế nào là ba?
 

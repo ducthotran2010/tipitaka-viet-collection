@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 X. Phẩm Asura (A-tu-la)

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 X. Phẩm Hạt Muối
 
-# 97\. Vải Thô Bằng Vỏ Cây
+# 97. Vải Thô Bằng Vỏ Cây
 
 —Này các Tỷ-kheo, có tấm vải bằng vỏ cây hoàn toàn mới, sắc xấu, cảm xúc khó chịu, và không có giá trị. Này các Tỷ-kheo, có tấm vải bằng vỏ cây bậc trung, sắc xấu, cảm xúc khó chịu, và không có giá trị. Này các Tỷ-kheo, có tấm vải bằng vỏ cây cũ kỹ, để lau chùi nồi niêu, hay đáng được quăng trên đống rác.
 
@@ -22,7 +20,7 @@ Còn từ những ai, vị này nhận các vật dụng như y áo, đồ ăn k
 
 Như vậy, này các Tỷ-kheo, nếu Tỷ-kheo trưởng lão này nói lên ở giữa chúng Tăng, các Tỷ-kheo nói như sau: “Sao Thầy nghĩ rằng Thầy có thể tuyên bố, một người ngu si, không thông minh? “Vị ấy phẫn nộ, bất mãn, sẽ nói lên những lời này, chúng Tăng đuổi vị ấy ra khỏi, như người ta quăng bỏ tấm vải bằng vỏ cây ấy trên đống rác.
 
-# 98\. Vải Ba-la-nại
+# 98. Vải Ba-la-nại
 
 —Này các Tỷ-kheo, có tấm vải kàsi (Ba-la-nại), hoàn toàn mới, có sắc đẹp, cảm xúc dễ chịu, và có giá trị lớn. Này các Tỷ-kheo, có tấm vải kàsi bậc trung, có sắc đẹp, cảm xúc dễ chịu, và có giá trị lớn. Này các Tỷ-kheo, có tấm vải kàsi cũ, có sắc đẹp, cảm xúc dễ chịu, và có giá trị lớn. Và này các Tỷ-kheo, có tấm vải kàsi cũ kỹ dùng để gói các châu báu, hay được đặt vào trong một hộp có hương thơm.
 

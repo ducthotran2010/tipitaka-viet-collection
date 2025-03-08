@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VI. Phẩm Các Bà-La-Môn
 
-# 56\. Người Giàu Có
+# 56. Người Giàu Có
 
 Rồi một Bà-la-môn giàu có lớn đi đến Thế Tôn, sau khi đến, đảnh lễ, nói lên những lời chào đón thăm hỏi thân hữu rồi ngồi xuống một bên. Ngồi xuống một bên, Bà-la-môn giàu có lớn bạch Thế Tôn:
 

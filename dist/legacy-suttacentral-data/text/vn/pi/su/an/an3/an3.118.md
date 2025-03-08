@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XII. Phẩm Ðọa Xứ
 
-# 116\. Chính Xác.
+# 116. Chính Xác.
 
 —Này các Tỷ kheo, có ba khiếm khuyết này, thế nào là ba ?
 

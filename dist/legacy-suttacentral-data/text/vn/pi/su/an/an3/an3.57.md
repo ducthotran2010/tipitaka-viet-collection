@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VI. Phẩm Các Bà-La-Môn
 
-# 57\. Vacchagotta
+# 57. Vacchagotta
 
 Rồi du sĩ Vacchagotta đi đến Thế Tôn, sau khi đến, đảnh lễ, nói lên những lời chào đón thăm hỏi thân hữu rồi ngồi xuống một bên. Ngồi xuống một bên, du sĩ Vacchagotta thưa với Thế Tôn:
 

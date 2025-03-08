@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Kẻ Chiến Sĩ
 
-# 131\. Kẻ Chiến Sĩ
+# 131. Kẻ Chiến Sĩ
 
 —Ðầy đủ ba đức tánh, này các Tỷ-kheo, một kẻ chiến sĩ xứng đáng cho vua sử dụng, thuộc sở hữu của vua, là biểu tượng của vua.
 

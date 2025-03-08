@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Phẩm Lớn
 
-# 68\. Du Sĩ Ngoại Ðạo.
+# 68. Du Sĩ Ngoại Ðạo.
 
 —Này các Tỷ-kheo, nếu các du sĩ ngoại đạo hỏi như sau: “Có ba pháp này, này các Hiền giả. Thế nào là ba? Tham, sân, si. Những pháp này, này các Hiền giả, là ba pháp. Trong ba pháp này, này các Hiền giả, thế nào là đặc thù, thế nào là thù thắng, thế nào là khác biệt? “Ðược hỏi vậy, này các Tỷ-kheo, các Ông trả lời như thế nào với các du sĩ ngoại đạo ấy?
 

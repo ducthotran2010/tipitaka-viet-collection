@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Kẻ Chiến Sĩ
 
-# 140\. Morannivàpa
+# 140. Morannivàpa
 
 Một thời, Thế Tôn ở Ràjagaha tại Moranivàpa. Tại đấy, Thế Tôn gọi các Tỷ-kheo:
 

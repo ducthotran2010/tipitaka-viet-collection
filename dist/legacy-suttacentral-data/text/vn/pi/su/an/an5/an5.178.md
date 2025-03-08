@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XVIII. Phẩm Nam Cư Sĩ

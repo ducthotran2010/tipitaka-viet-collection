@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Phẩm Lớn
 
-# 67\. Các Vấn Ðề Ðược Nói Ðến
+# 67. Các Vấn Ðề Ðược Nói Ðến
 
 —Này các Tỷ-kheo, có ba vấn đề này được nói đến. Thế nào là ba? Có thể nói về quá khứ, này các Tỷ-kheo, nói rằng: “Như vầy đã xảy ra trong thời quá khứ. Có thể nói về tương lai, này các Tỷ-kheo, nói rằng: “Như vầy sẽ xảy ra trong thời tương lai”. Có thể nói về hiện tại, này các Tỷ-kheo, nói rằng: “Như vầy đang xảy ra trong thời hiện tại”.
 

@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XXVIII. Phẩm Tham

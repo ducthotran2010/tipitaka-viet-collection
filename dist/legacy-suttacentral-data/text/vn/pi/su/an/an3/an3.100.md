@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 X. Phẩm Hạt Muối
 
-# 99\. Hạt Muối.
+# 99. Hạt Muối.
 
 —Ai nói như sau, này các Tỷ-kheo: “Người này làm nghiệp như thế nào, như thế nào, người ấy cảm thọ như vậy, như vậy”. Nếu sự kiện là vậy, này các Tỷ-kheo, thời không có đời sống Phạm hạnh, không có cơ hội để nêu rõ đau khổ được chơn chánh đoạn diệt. Và này các Tỷ-kheo, ai nói như sau: “Người này làm nghiệp được cảm thọ như thế nào, như thế nào, người ấy cảm thọ quả dị thục như vậy, như vậy”. Nếu sự kiện là vậy, này các Tỷ-kheo, thời có đời sống Phạm hạnh, có cơ hội để nêu rõ đau khổ được chơn chánh đoạn diệt.
 

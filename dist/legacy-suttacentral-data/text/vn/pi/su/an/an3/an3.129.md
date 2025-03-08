@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Kusinàra
 
-# 127\. Anuruddha (1)
+# 127. Anuruddha (1)
 
 Rồi Tôn giả Anuruddha đi đến Thế Tôn, sau khi đến, đảnh lễ Thế Tôn rồi ngồi xuống một bên. Ngồi xuống một bên, Tôn giả Anuruddha bạch Thế Tôn:
 

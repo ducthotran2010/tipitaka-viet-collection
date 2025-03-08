@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XXI. Phẩm Bậc Chân Nhân

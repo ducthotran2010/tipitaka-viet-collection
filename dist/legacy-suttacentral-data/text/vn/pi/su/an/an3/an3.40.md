@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IV. Phẩm Sứ Giả Của Trời
 
-# 40\. Tăng Thượng
+# 40. Tăng Thượng
 
 ## 1–4.
 

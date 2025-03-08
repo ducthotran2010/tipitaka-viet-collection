@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XVI. Phẩm Lõa Thể
 
-# 152\. Ðạo Lộ (2)
+# 152. Ðạo Lộ (2)
 
 —Này các Tỷ-kheo, có ba đạo lộ này. Thế nào là ba? thâm cố đạo lộ, kịch khổ đạo lộ, trung đạo lộ.
 

@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XVIII. Phẩm Tư Tâm Sở

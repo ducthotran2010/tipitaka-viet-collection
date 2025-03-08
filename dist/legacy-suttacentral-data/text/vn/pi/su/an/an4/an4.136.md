@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Loài Người

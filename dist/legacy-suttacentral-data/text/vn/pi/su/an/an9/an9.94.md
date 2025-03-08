@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 X. Phẩm Tham

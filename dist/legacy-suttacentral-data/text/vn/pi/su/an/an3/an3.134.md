@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Kẻ Chiến Sĩ
 
-# 132\. Hội Chúng
+# 132. Hội Chúng
 
 —Này các Tỷ-kheo, có ba hội chúng này. Thế nào là ba?
 

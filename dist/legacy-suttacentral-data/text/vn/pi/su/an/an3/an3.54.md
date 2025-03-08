@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VI. Phẩm Các Bà-La-Môn
 
-# 54\. Bà-La-Môn Cư Sĩ
+# 54. Bà-La-Môn Cư Sĩ
 
 Rồi một Bà-la-môn du sĩ đi đến Thế Tôn, sau khi đến, đảnh lễ, nói lên những lời chào đón thăm hỏi thân hữu rồi ngồi xuống một bên. Ngồi xuống một bên, Bà-la-môn du sĩ bạch Thế Tôn:
 

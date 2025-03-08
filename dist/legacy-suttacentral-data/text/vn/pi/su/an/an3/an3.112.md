@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XI. Phẩm Chánh Giác
 
-# 109\. Nhân Duyên (3)
+# 109. Nhân Duyên (3)
 
 —Có ba nhân duyên này, này các Tỷ-kheo, khiến các nghiệp tập khởi. Thế nào là ba?
 
@@ -22,7 +20,7 @@ Và như thế nào, này các Tỷ-kheo, do duyên các pháp làm chỗ ý x�
 
 Này các Tỷ-kheo, do duyên các pháp làm chỗ y xứ cho dục tham trong hiện tại; với tâm, nó tầm cầu, nó tư sát. Do duyên các pháp làm chỗ ý xứ cho dục tham trong hiện tại; với tâm, nó tầm cầu, nó tư sát, nên ước muốn khởi sanh. Vì có ước muốn, nên nó bị liên hệ với pháp ấy. Này các Tỷ-kheo, Ta nói rằng đó là một kiết sử, vì tâm ấy có tham ái. Như vậy, này các Tỷ-kheo, do duyên các pháp làm chỗ ý xứ cho dục tham trong hiện tại, ước muốn sanh khởi.
 
-# 110\. Nhân Duyên (4)
+# 110. Nhân Duyên (4)
 
 —Có ba nhân duyên này, này các Tỷ-kheo, khiến các nghiệp tập khởi. Thế nào là ba?
 

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Người
 
-# 23\. Chất Chứa.
+# 23. Chất Chứa.
 
 —Có ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đời. Thế nào là ba?
 

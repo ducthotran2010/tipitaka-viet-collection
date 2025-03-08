@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Sa-Môn
 
-# 89\. Học Pháp
+# 89. Học Pháp
 
 —Này các Tỷ-kheo, có ba học pháp này. Thế nào là ba? Tăng thượng giới học, tăng thượng định học, tăng thượng tuệ học.
 

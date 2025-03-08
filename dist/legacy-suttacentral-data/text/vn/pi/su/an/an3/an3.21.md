@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Người
 
-# 21\. Chứng Thực Với Thân
+# 21. Chứng Thực Với Thân
 
 Như vầy tôi nghe.
 

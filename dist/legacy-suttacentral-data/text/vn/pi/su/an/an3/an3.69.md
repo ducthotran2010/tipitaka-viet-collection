@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Phẩm Lớn
 
-# 69\. Các Căn Bản Bất Thiện
+# 69. Các Căn Bản Bất Thiện
 
 —Này các Tỷ-kheo, có ba căn bản bất thiện này. Thế nào là ba? Tham là căn bản bất thiện, sân là căn bản bất thiện, si là căn bản bất thiện.
 

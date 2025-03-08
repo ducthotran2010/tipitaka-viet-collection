@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Người
 
-# 30\. Lộn Ngược
+# 30. Lộn Ngược
 
 —Ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đời. Thế nào là ba? Hạng người với trí tuệ lộn ngược, hạng người với trí tuệ bắp vế, hạng người với trí tuệ rộng lớn.
 

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XI. Phẩm Chánh Giác
 
-# 105\. Nóc Nhọn (1)
+# 105. Nóc Nhọn (1)
 
 Rồi gia chủ Anathapindika đi đến Thế Tôn; sau khi đến, đảnh lễ Thế Tôn rồi ngồi xuống một bên; Thế Tôn nói với gia chủ Anathapindika đang ngồi xuống một bên:
 

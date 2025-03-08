@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XI. Phẩm Chánh Giác
 
-# 107\. Ba Nhân Duyên (1)
+# 107. Ba Nhân Duyên (1)
 
 —Có ba nhân duyên này, này các Tỷ-kheo, khiến các nghiệp tập khởi. Thế nào là ba?
 
@@ -12,7 +10,7 @@ Tham là nhân duyên khiến các nghiệp tập khởi, sân là nhân duyên 
 
 Phàm nghiệp nào do tham tác thành, này các Tỷ-kheo, sanh ra từ tham, do tham làm nhân duyên, do tham tập khởi, nghiệp ấy là bất thiện, nghiệp ấy có phạm tội, nghiệp ấy có khổ dị thục, nghiệp ấy làm nghiệp tập khởi, nghiệp ấy không đưa đến nghiệp đoạn diệt. Phàm nghiệp nào do sân tác thành ... Phàm nghiệp nào do si tác thành, này các Tỷ-kheo, sanh ra từ si, do si làm nhân duyên, do si tập khởi, nghiệp ấy là bất thiện, nghiệp ấy có phạm tội, nghiệp ấy có khổ dị thục, nghiệp ấy làm nghiệp tập khởi, nghiệp ấy không đưa đến nghiệp đoạn diệt. Ba pháp này, này các Tỷ-kheo, là ba nhân duyên khiến các nghiệp tập khởi.
 
-# 108\. Ba Nhân Duyên (2)
+# 108. Ba Nhân Duyên (2)
 
 —Có ba nhân duyên này, này các Tỷ-kheo, khiến các nghiệp tập khởi. Thế nào là ba?
 

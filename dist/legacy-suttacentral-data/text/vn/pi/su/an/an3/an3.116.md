@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XII. Phẩm Ðọa Xứ
 
-# 114\. Không Vô Biên Xứ
+# 114. Không Vô Biên Xứ
 
 —Có ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đời. Thế nào là ba?
 

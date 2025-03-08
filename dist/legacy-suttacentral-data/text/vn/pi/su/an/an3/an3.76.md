@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VIII. Phẩm Ananda
 
-# 76\. Hiện Hữu
+# 76. Hiện Hữu
 
 Rồi Tôn giả Ananda đi đến Thế Tôn, sau khi đến, đảnh lễ Thế Tôn rồi ngồi xuống một bên. Ngồi xuống một bên, Tôn giả Ananda bạch Thế Tôn:
 

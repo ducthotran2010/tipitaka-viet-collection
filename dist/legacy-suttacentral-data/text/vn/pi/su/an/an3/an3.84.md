@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Sa-Môn
 
-# 83\. Người Vajji.
+# 83. Người Vajji.
 
 Như vầy tôi nghe.
 

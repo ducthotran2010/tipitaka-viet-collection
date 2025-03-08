@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XII. Phẩm Ðọa Xứ
 
-# 112\. Khó Tìm Ðược
+# 112. Khó Tìm Ðược
 
 —Sự xuất hiện của ba hạng người này, này các Tỷ-kheo, khó tìm được ở đời. Thế nào là ba?
 

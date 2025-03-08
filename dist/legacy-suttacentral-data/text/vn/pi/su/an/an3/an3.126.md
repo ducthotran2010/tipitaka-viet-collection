@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Kusinàra
 
-# 124\. Bharandu
+# 124. Bharandu
 
 Một thời, Thế Tôn đang du hành giữa dân chúng Kosala và đi đến Kapilavatthu. Họ Thích Mahànàma nghe tin Thế Tôn đã đến Kapilavatthu. Rồi họ Thích Mahànàma đi đến Thế Tôn; sau khi đến, đảnh lễ Thế Tôn rồi đứng một bên. Thế Tôn nói với họ Thích Mahànàma đang đứng một bên:
 

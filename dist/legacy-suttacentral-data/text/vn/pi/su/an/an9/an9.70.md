@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Phẩm Niệm Xứ

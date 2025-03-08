@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Kusinàra
 
-# 125\. Hatthaka
+# 125. Hatthaka
 
 Một thời Thế Tôn trú ở Sàvatthi, tại Jetanava, khu vườn của Anàthapindika.
 

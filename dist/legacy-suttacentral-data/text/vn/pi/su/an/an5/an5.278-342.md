@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XXVI. Phẩm Cụ Túc Giới

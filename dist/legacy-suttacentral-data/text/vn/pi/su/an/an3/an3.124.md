@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Kusinàra
 
-# 122\. Tranh Luận
+# 122. Tranh Luận
 
 —Tại phương hướng nào, này các Tỷ-kheo, các Tỷ-kheo sống cạnh tranh, luận tranh, đấu tranh, đả thương nhau với binh khí miệng lưỡi, thật không thoải mái cho ta, này các Tỷ-kheo, khi nghĩ đến phương hướng ấy, còn nói gì đến chỗ ấy. Ở đây, Ta đi đến kết luận như sau: “Thật vậy, các Tỷ-kheo ấy đã từ bỏ ba pháp và đã làm quá nhiều ba pháp”.
 

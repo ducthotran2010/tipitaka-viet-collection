@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IV. Phẩm Sứ Giả Của Trời
 
-# 35\. Diêm Vương
+# 35. Diêm Vương
 
 ## 1–6.
 

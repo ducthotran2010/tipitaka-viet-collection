@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Sa-Môn
 
-# 88\. Học Giới
+# 88. Học Giới
 
 —Có ba học giới này. Thế nào là ba? Tăng thượng giới học, tăng thượng định học, tăng thượng tuệ học.
 

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 II. Phẩm Người Ðóng Xe
 
-# 20\. Người Buôn Bán
+# 20. Người Buôn Bán
 
 —Thành tựu với ba chi phần, này các Tỷ-kheo, người buôn bán không bao lâu đạt được về tài sản lớn mạnh và rộng lớn. Thế nào là ba?
 

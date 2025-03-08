@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Phẩm Lớn
 
-# 70\. Các Lễ Uposatha
+# 70. Các Lễ Uposatha
 
 Như vầy tôi nghe.
 

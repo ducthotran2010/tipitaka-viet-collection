@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Người
 
-# 24\. Nhiều Lợi Ích
+# 24. Nhiều Lợi Ích
 
 —Có ba hạng người này, này các Tỷ-kheo, làm nhiều lợi ích cho người khác. Thế nào là ba?
 

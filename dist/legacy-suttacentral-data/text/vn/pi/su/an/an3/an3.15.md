@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 II. Phẩm Người Ðóng Xe
 
-# 15\. Người Ðóng Xe Hay Pacetana
+# 15. Người Ðóng Xe Hay Pacetana
 
 Một thời Thế Tôn ở tại Bàranàsi, Isipatana, chỗ Vườn Nai, tại đấy, Thế Tôn gọi các Tỷ-kheo:
 

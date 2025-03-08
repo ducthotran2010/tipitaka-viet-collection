@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XII. Phẩm Ðọa Xứ
 
-# 115\. Khiếm Khuyết Và Viên Mãn.
+# 115. Khiếm Khuyết Và Viên Mãn.
 
 —Này các Tỷ-kheo, có ba sự khiếm khuyết này. Thế nào là ba? Khiếm khuyết về giới, khiếm khuyết về tâm, khiếm khuyết về tri kiến.
 

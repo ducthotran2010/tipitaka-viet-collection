@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 II. Phẩm Người Ðóng Xe
 
-# 14\. Pháp
+# 14. Pháp
 
 —Phàm vua Chuyển Luân nào, đúng pháp, pháp vương, vị ấy cũng chuyển bánh xe (cai trị), không phải không có vua.
 

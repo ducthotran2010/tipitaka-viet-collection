@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Người
 
-# 28\. Nói Như Hoa
+# 28. Nói Như Hoa
 
 —Có ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đời. Thế nào là ba? Hạng người nói như phân, hạng người nói như hoa, hạng người nói như mật.
 

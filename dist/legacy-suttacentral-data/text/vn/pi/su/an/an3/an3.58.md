@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VI. Phẩm Các Bà-La-Môn
 
-# 58\. Tikanna
+# 58. Tikanna
 
 ## 1–6.
 

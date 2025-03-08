@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Phẩm Lớn
 
-# 65\. Các Vị Ở Kesaputta
+# 65. Các Vị Ở Kesaputta
 
 ## 1–17.
 

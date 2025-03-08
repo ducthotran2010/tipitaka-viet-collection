@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IV. Phẩm Sứ Giả Của Trời
 
-# 36\. Bốn Bậc Ðại Vương
+# 36. Bốn Bậc Ðại Vương
 
 —Này các Tỷ-kheo, trong ngày thứ tám của nửa tháng, các vị Ðại thần cố vấn cho bốn Ðại vương, đi du hành trong thế giới này để xem trong loài người, có nhiều người có hiếu với mẹ, có hiếu với cha, có kính Sa-môn, Bà-là-môn, có tôn trọng các vị gia trưởng, có làm lễ Uposatha (Bố-tát), có đề cao cảnh giác, có làm các công đức.
 

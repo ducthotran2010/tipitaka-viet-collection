@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XI. Phẩm Chánh Giác
 
-# 104\. Không Thỏa Mãn
+# 104. Không Thỏa Mãn
 
 —Này các Tỷ-kheo, hưởng thọ ba sự ở đời, không bao giờ thỏa mãn. Thế nào là ba?
 

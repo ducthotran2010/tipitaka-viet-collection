@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Sa-Môn
 
-# 81\. Sa Môn
+# 81. Sa Môn
 
 —Này các Tỷ-kheo, có ba hạnh Sa-môn cần phải làm này của Sa-môn. Thế nào là ba?
 

@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 I. Phẩm Ðáng Ðược Cung Kính

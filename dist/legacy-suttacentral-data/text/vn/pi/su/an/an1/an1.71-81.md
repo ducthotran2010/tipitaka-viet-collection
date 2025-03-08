@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 VIII. Phẩm Làm Bạn Với Thiện

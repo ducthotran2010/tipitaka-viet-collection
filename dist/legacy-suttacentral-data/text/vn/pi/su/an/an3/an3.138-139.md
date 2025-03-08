@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Kẻ Chiến Sĩ
 
-# 136\. Thành Tựu Tăng Trưởng
+# 136. Thành Tựu Tăng Trưởng
 
 —Này các Tỷ-kheo, có ba sự thành tựu này. Thế nào là ba?
 

@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 V. Phẩm Ðặt Hướng và Trong Sáng

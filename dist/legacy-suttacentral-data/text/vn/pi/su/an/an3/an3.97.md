@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 X. Phẩm Hạt Muối
 
-# 95\. Con Ngựa Thuần Thục
+# 95. Con Ngựa Thuần Thục
 
 ... _(Hoàn toàn giống như kinh trên)_
 

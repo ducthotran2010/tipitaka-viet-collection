@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Phẩm Lớn
 
-# 62\. Các Sợ Hãi.
+# 62. Các Sợ Hãi.
 
 —Có ba sợ hãi này, này các Tỷ-kheo, làm chia rẽ mẹ con, được người phàm phu không học nói đến. Thế nào là ba?
 

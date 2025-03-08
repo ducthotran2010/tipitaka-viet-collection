@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Kẻ Chiến Sĩ
 
-# 134\. Xuất Hiện
+# 134. Xuất Hiện
 
 —Này các Tỷ-kheo, dầu các Như Lai có xuất hiện hay không xuất hiện, vẫn được an trú là pháp trú tánh của giới ấy, là pháp quyết định tánh, tức là: “Tất cả các hành là vô thường”. Vấn đề này, Như Lai chánh giác tri, chánh giác ngộ, sau khi chánh giác tri, chánh giác ngộ, Như Lai tuyên bố, thuyết giảng, tuyên thuyết, xác nhận, khai thị, phân biệt, hiển thị: “Tất cả các hành là vô thường”.
 

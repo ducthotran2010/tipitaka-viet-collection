@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 IX. Phẩm Các Kinh Không Nhiếp

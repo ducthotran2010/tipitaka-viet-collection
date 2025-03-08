@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 II. Phẩm Hành

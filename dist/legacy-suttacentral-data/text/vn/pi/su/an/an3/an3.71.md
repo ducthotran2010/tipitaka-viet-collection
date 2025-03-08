@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VIII. Phẩm Ananda
 
-# 71\. Channa
+# 71. Channa
 
 Nhân duyên ở Sàvatthi.
 

@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 IV. Phẩm Sứ Giả Của Trời
 
-# 37\. Sakka
+# 37. Sakka
 
 Thuở xưa, này các Tỷ-kheo, Thiên chủ Sakka đang thuyết giảng cho chư Thiên ở cõi Trời thứ Ba mươi ba, trong khi ấy, nói lên bài kệ như sau:
 

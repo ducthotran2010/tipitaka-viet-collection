@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XI. Phẩm An Ổn Trú

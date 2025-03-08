@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Người
 
-# 27\. Ðáng Ghê Tởm
+# 27. Ðáng Ghê Tởm
 
 —Có ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đời. Thế nào là ba? Có hạng người đáng ghê tởm, không cần phải gần gũi, không cần phải sống chung, không cần phải hầu hạ cúng dường. Có hạng người, này các Tỷ-kheo, cần phải nhìn một cách thản nhiên, không cần gần gũi, không cần phải sống chung, không cần phải hầu hạ cúng dường. Có hạng người, này các Tỷ-kheo, cần phải gần gũi, cần phải sống chung, cần phải hầu hạ cúng dường.
 

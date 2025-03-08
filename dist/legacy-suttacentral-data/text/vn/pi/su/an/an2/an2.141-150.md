@@ -1,5 +1,3 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Bố Thí

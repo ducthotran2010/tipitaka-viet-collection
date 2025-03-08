@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 X. Phẩm Hạt Muối
 
-# 92\. Sống Viễn Ly
+# 92. Sống Viễn Ly
 
 —Có ba hạnh viễn ly này được các du sĩ ngoại đạo trình bày. Thế nào là ba? Viễn ly y áo, viễn ly đồ ăn khất thực, viễn ly sàng tọa.
 

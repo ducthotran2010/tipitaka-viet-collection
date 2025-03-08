@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIII. Phẩm Kusinàra
 
-# 126\. Thối Nát
+# 126. Thối Nát
 
 Một thời, Thế Tôn trú ở Bàrànasi, tại Isipatana vườn Nai
 

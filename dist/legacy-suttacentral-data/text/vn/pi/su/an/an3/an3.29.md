@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Người
 
-# 29\. Mù Lòa
+# 29. Mù Lòa
 
 —Ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đời. Thế nào là ba? Người mù, người một mắt, người có hai mắt.
 

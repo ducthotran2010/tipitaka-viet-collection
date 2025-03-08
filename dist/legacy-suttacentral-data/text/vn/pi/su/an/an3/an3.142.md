@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 XIV. Phẩm Kẻ Chiến Sĩ
 
-# 139\. Các Loại Ngựa Thuần Thục.
+# 139. Các Loại Ngựa Thuần Thục.
 
 —Này các Tỷ-kheo, Ta sẽ thuyết giảng về ba loại ngựa hiền thiện, thuần thục, ba hạng người hiền thiện, thuần thục. Hãy nghe và khéo tác ý, Ta sẽ nói.
 

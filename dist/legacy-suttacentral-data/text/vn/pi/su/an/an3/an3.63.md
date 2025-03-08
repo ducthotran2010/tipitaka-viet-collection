@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 VII. Phẩm Lớn
 
-# 63\. Venaga
+# 63. Venaga
 
 ## 1–7.
 

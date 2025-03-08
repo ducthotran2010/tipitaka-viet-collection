@@ -1,10 +1,8 @@
- 
-
 Aṅguttara Nikāya
 
 III. Phẩm Người
 
-# 22\. Người Bệnh
+# 22. Người Bệnh
 
 —Có ba hạng người bệnh này, này các Tỷ-kheo, có mặt, xuất hiện ở đời. Thế nào là ba?
 
