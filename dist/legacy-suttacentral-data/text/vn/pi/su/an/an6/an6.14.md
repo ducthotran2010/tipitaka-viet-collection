@@ -25,8 +25,3 @@ Này các Hiền giả, Tỷ-kheo nếu sống nếp sống như vậy, như v�
 > Thuận hướng đến Niết-bàn,  
 > Nơi an ổn vô thượng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

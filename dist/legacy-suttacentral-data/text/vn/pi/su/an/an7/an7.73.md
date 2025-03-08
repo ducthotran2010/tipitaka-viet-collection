@@ -14,8 +14,3 @@ Các Thầy nghĩ thế nào, này các Tỷ-kheo, ai với tâm ác quở trác
 
 —Này các Tỷ-kheo, ai với tâm quở trách, phỉ báng bảy Ðạo sư này, thuộc ngoại đạo, đã ly tham đối với các dục, được hàng trăm chúng đệ tử đoanh vây, người ấy tạo ra nhiều điều vô phước; còn ai với ác tâm, quở trách phỉ báng một bậc đầy đủ chánh kiến, do vậy, người này tạo ra nhiều điều vô phước hơn nữa. Vì cớ sao? Ta tuyên bố không kham nhẫn một người như vậy, từ trong ra ngoài, đối với các vị đồng Phạm hạnh. Do vậy, này các Tỷ-kheo, các Thầy cần phải học tập như sau: “Chúng ta sẽ không có tâm ác độc đối với các vị đồng Phạm hạnh”. Này các Tỷ-kheo, các Thầy cần phải học tập như vậy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

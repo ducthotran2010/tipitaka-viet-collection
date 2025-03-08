@@ -10,8 +10,3 @@ Có giới... và học tập trong các học pháp; nghe nhiều... khéo thà
 
 Thành tựu năm pháp này, này các Tỷ-kheo, vị Tỷ-kheo trú tại chỗ giúp đỡ rất nhiều cho trú xứ ấy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -33,8 +33,3 @@ Chánh hạnh đối với mẹ, này các Tỷ-kheo, bậc Hiền trí, thông 
 > Ðời này, bậc trí khen  
 > Ðời sau hưởng Thiên giới
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

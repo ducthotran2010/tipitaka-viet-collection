@@ -48,8 +48,3 @@ Ví như, này các Tỷ-kheo, người chiến sĩ ấy cầm kiếm và mâu, 
 
 Này các Tỷ-kheo, có năm hạng người được ví dụ với năm người chiến sĩ này, có mặt, hiện hữu giữa các vị Tỷ-kheo.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

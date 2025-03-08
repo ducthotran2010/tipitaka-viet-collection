@@ -34,8 +34,3 @@ Lúc bấy giờ, Tôn giả Nàgita là thị giả của Thế Tôn. Rồi Th�
 
 Nhưng khi Ta đang bước đi trên con đường, trước mặt, Ta không thấy ai; sau lưng, Ta không thấy ai; trong khi ấy, Ta cảm thấy an ổn, này Nàgita, cho đến vấn đề đi đại, tiểu tiện.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

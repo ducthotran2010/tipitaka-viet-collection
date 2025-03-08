@@ -16,8 +16,3 @@ Không đập người không đập, lấy trộm có để lại cái gì, kh�
 
 Thành tựu tám chi phần này, này các Tỷ-kheo, một người ăn trộm không mau chóng đi đến đường cùng, tồn tại được lâu dài.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

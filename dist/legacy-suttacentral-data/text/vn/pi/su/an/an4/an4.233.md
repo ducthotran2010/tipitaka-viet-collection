@@ -24,8 +24,3 @@ Và này các Tỷ-kheo, thế nào là nghiệp không đen không trắng qu�
 
 Tại đấy, này các Tỷ-kheo, phàm có tư tâm sở nào để đoạn tận nghiệp đen quả đen này; phàm có tư tâm sở nào để đoạn tận nghiệp trắng quả trắng này; phàm có tư tâm sở nào để đoạn tận nghiệp đen trắng quả đen trắng này; này các Tỷ-kheo, đây được gọi là nghiệp không đen không trắng quả không đen không trắng, nghiệp đưa đến đoạn diệt. Này các Tỷ-kheo, có bốn nghiệp này đã được Ta chứng ngộ với thắng trí và thuyết giảng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

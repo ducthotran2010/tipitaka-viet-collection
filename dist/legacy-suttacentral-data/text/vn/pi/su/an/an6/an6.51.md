@@ -22,8 +22,3 @@ Tôn giả Sàriputta vâng đáp Tôn giả Ananda. Tôn giả Ananda nói như
 
 Tôn giả Ananda học thông suốt pháp, tức là Khế kinh, Ứng tụng, Ký thuyết, Phúng tụng, Vô vấn tự thuyết, Như thị thuyết, Bản sanh, Vị tằng hữu pháp, Trí giải hay Phương quảng. Tôn giả Ananda thuyết pháp cho các người khác một cách rộng rãi như đã nghe, như đã được học thông suốt. Tôn giả Ananda khiến cho các người khác nói lên pháp một cách rộng rãi như đã được nghe, như đã được học thông suốt. Tôn giả Ananda đọc tụng pháp một cách rộng rãi, như đã được nghe, như đã được học một cách thông suốt. Tôn giả Ananda với tâm tùy tầm, tùy tứ, với ý tùy quán pháp như đã được nghe, như đã được học thuộc lòng. Tôn giả Ananda, tại trú xứ nào các Tỷ-kheo trưởng lão trú ở, các vị nghe nhiều, được trao truyền các tập Agama, bậc Trì pháp, Trì luật, Trì toát yếu, tại các chỗ ấy, Tôn giả Ananda an cư vào mùa mưa, thỉnh thoảng đến các vị ấy, sau khi đến, phỏng vấn, đặt các câu hỏi: “Thưa Tôn giả, cái này là thế nào? Ý nghĩa cái này là gì? “Các Tôn giả ấy mở rộng những gì chưa được mở rộng, phơi bày những gì chưa được phơi bày, và đối với những đoạn sai khác, còn có chỗ nghi ngờ, các vị ấy giải thích các sự nghi ngờ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

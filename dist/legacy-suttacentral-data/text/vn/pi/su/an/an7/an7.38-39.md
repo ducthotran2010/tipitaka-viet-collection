@@ -14,8 +14,3 @@ Thành tựu bảy pháp này, này các Tỷ-kheo, Sàriputta với thắng tr�
 
 Ở đây, này các Tỷ-kheo, Sàriputta khi nào tâm thụ động, như thật rõ biết: “Ðây là tâm ta thụ động”; khi nào tâm muội lược, như thật rõ biết: “Nội tâm ta muội lược”;... (như trên, số 2,... chứng đạt và an trú bốn vô ngại giải).
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

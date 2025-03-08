@@ -20,8 +20,3 @@ Ba pháp gì họ đã làm quá nhiều? Viễn ly tầm, vô sân tầm, bất
 
 Tại phương hướng nào, này các Tỷ-kheo, các Tỷ-kheo sống hòa hợp, hoan hỷ, không đấu tranh nhau, như sữa và nước lẫn lộn, nhìn nhau với cặp mắt ái kính, này các Tỷ-kheo, đi đến phương hướng ấy thật thoải mái cho ta, còn nói gì nghĩ đến phương hướng ấy. Ở đây, Ta đi đến kết luận như sau: “Thật vậy, các Tỷ-kheo ấy đã từ bỏ ba pháp này và đã làm quá nhiều ba pháp này”.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

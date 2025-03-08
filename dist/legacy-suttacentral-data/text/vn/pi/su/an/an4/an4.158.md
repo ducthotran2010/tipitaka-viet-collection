@@ -24,8 +24,3 @@ Tham ái giảm thiểu, sân giảm thiểu, si giảm thiểu. Ðối với c�
 
 Thưa các Hiền giả, Tỷ-kheo hay Tỷ-kheo-ni nào thấy trên tự thân có bốn pháp này, cần phải đi đến kết luận rằng: “Ta không thối đọa khỏi các thiện pháp “. Ðây được Thế Tôn gọi là không thối đọa.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

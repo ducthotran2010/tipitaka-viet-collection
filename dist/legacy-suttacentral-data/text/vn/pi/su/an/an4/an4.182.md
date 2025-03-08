@@ -16,8 +16,3 @@ Khổ quả của những ác nghiệp ấy (những nghiệp) tạp nhiễm, đ
 
 Này các Tỷ-kheo, không một Sa-môn, Bà-la-môn, Thiên, Nhân, Màra, Phạm thiên hay một ai ở đời có được sự an toàn đối với bốn pháp này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

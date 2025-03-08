@@ -34,8 +34,3 @@ Ví như, này các Tỷ-kheo, một ít phân có mùi hôi thúi. Cũng vậy,
 
 Ví như, này các Tỷ-kheo, một ít nước tiểu có mùi hôi thúi... một ít nước miếng có mùi hôi thúi.... một ít mủ có mùi hôi thúi... một ít máu có mùi hôi thúi. Cũng vậy, này các Tỷ-kheo, Ta không tán thán về hiện hữu dầu cho có ít thôi, cho đến chỉ trong thời gian búng ngón tay.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

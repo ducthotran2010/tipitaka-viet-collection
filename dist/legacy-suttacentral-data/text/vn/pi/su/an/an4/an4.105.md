@@ -14,8 +14,3 @@ Và này các Tỷ-kheo, thế nào là hạng người cạn có vẻ sâu?
 
 Ở đây, này các Tỷ-kheo, có hạng người có thái độ dễ thương ... _(như kinh 103, từ số 3 cho đến số 6)._
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

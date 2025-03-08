@@ -32,8 +32,3 @@ Tại đây, này Kesi, đây là lời nói vừa mềm mỏng vừa cứng r�
 
 —Bạch Thế tôn, người ấy bị bậc Thiện Thệ giết hại là người nào bị Như Lai nghĩ rằng không xứng đáng được nói đến, không xứng đáng được giáo giới, bị các vị đồng Phạm hạnh có trí nghĩ rằng không đáng được nói đến, không đáng được giáo giới. Thật vi diệu thay, bạch Thế tôn! Thật vi diệu thay, bạch Thế tôn! ... bắt đầu từ nay, mong Thế tôn nhận con làm đệ tử cư sĩ, cho đến mạng chung, con trọn đời quy ngưỡng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

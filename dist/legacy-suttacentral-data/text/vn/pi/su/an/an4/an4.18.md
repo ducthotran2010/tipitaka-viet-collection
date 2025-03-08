@@ -15,8 +15,3 @@ Không vì dục đi đến sanh thú, không vì sân đi đến sanh thú, kh�
 > Ðược đầy đủ vuông tròn  
 > Như trăng trong thời sáng
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

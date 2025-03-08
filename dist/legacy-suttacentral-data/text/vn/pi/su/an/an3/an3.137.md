@@ -14,8 +14,3 @@ Còn Ta, này các Tỷ-kheo, nay là bậc A-la-hán, Chánh Ðẳng Giác cũn
 
 Ví như, này các Tỷ-kheo, tại cửa sông, có người đặt một cái sập bẫy cá đem đến bất hạnh, đau khổ, tổn hại, nguy hại cho các loại cá. Cũng vậy, này các Tỷ-kheo, Makkhali, kẻ ngu si xuất hiện ở đời như cái bẫy sập người, đem lại bất hạnh, đau khổ, tổn hại, nguy hại cho nhiều loài hữu tình.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

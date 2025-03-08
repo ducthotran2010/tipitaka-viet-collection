@@ -35,8 +35,3 @@ Dầu cho loại giới nào, này Cundì, các giới được bậc Thánh ái
 > Chư Thiên hay loài Người  
 > Ðạt được hỷ tối thượng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

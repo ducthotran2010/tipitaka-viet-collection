@@ -22,8 +22,3 @@ Ta không thấy một pháp nào khác, này các Tỷ-kheo, do pháp ấy, cá
 
 Ta không thấy một pháp nào khác, này các Tỷ-kheo, do pháp ấy, các pháp bất thiện chưa sanh được sanh khởi, và các pháp thiện đã sanh bị đoạn tận, này các Tỷ-kheo, như biếng nhác. Với người biếng nhác, này các Tỷ-kheo, các pháp bất thiện chưa sanh được sanh khởi, và các pháp thiện đã sanh bị đoạn tận.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

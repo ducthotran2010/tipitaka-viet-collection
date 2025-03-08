@@ -36,8 +36,3 @@ Biển lớn không hạn lượng,
 > Như sông dẫn dòng nước,  
 > Ùa chảy vào biển cả.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

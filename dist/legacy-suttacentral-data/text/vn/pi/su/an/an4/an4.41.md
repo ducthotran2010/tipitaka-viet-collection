@@ -43,8 +43,3 @@ Này các Tỷ-kheo, có bốn định tu tập này. Và cũng về vấn đề
 > Ta nói vị ấy vượt,  
 > Qua khỏi sanh và già.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

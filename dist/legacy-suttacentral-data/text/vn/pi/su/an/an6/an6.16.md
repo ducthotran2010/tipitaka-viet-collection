@@ -22,8 +22,3 @@ Rồi cha của Nakula được nữ gia chủ, mẹ của Nakula giáo giới v
 
 —Thật lợi ích thay cho Ông, này Gia chủ! Thật khéo lợi ích thay cho Ông, này Gia chủ! Ðược nữ gia chủ, mẹ của Nakula với lòng từ mẫn, vì muốn hạnh phúc, đã giáo giới, đã khuyên dạy Ông. Cho đến khi nào, này Gia chủ, Ta còn có những đệ tử gia chủ mặc áo trắng gìn giữ Giới Luật viên mãn, nữ gia chủ, mẹ của Nakula là một trong những vị ấy. Cho đến khi nào, này Gia chủ, Ta còn có những đệ tử gia chủ mặc áo trắng chứng được nội tâm tịnh chỉ, nữ gia chủ, mẹ của Nakula là một trong những vị ấy. Cho đến khi nào, này Gia chủ, Ta còn có những đệ tử gia chủ mặc áo trắng, trong Pháp và Luật này đạt được thể nhập, đạt được an trú, đạt được thoải mái, vượt khỏi nghi hoặc, rời được do dự, đạt được vô úy, không còn phải nhờ người khác sống trong lời dạy đức Bổn Sư, nữ gia chủ, mẹ của Nakula là một trong những vị ấy. Thật lợi ích thay cho Ông, này Gia chủ! Thật khéo lợi ích thay cho Ông, này Gia chủ, được nữ gia chủ, mẹ của Nakula với lòng từ mẫn, vì muốn hạnh phúc, đã giáo giới, đã khuyên dạy Ông.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

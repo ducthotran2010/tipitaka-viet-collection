@@ -30,8 +30,3 @@ Trong các vị nữ đệ tử... mang thô y, tối thắng là Kisàgotami.
 
 Trong các vị nữ đệ tử Tỷ-kheo-ni của Ta, đầy đủ tin thắng giải, này các Tỷ-kheo, tối thắng là Sigalàmàtà.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

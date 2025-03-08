@@ -43,8 +43,3 @@ Ngủ được an lạc, dậy được an lạc, không thấy ác mộng, đư
 > Từ tâm mọi chúng sanh  
 > Không hận thù với ai.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

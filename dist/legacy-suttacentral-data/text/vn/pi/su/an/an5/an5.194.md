@@ -24,8 +24,3 @@ Khi được nói vậy, Bà-la-môn Karanapàli từ chỗ ngồi đứng dậy
 
 —Thật vi diệu thay, Tôn giả Pingiyàni! Thật vi diệu thay, Tôn giả Pingiyàni! Thưa Tôn giả Pingiyàni, như người dựng đứng lại những gì bị quăng ngã xuống, phơi bày ra những gì bị che kín, chỉ đường cho những kẻ đi lạc hướng, đem đèn sáng vào trong bóng tối để những ai có mắt có thể thấy sắc. Cũng vậy, Chánh pháp đã được Thế Tôn dùng nhiều phương tiện trình bày giải thích. Thưa Tôn giả Pingiyàni, con nay xin quy y Tôn giả Gotama, quy y Pháp và chúng Tỷ-kheo. Tôn giả Pingyàni hãy chấp nhận con làm đệ tử cư sĩ, từ nay cho đến mạng chung, con trọn đời quy ngưỡng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

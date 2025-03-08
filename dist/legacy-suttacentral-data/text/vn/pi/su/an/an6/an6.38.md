@@ -28,8 +28,3 @@ Nếu đã có sự khởi sự, thời các loài hữu tình có được nêu
 
 —Thật vi diệu thay, Thưa Tôn giả Gotama! Thật hy hữu thay, thưa Tôn giả Gotama... Từ nay cho đến mạng chung, con trọn đời quy ngưỡng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

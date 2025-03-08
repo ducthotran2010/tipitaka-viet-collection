@@ -12,8 +12,3 @@ Hoặc nếu chưa chứng đạt, nếu chưa thể nhập, sau khi đoạn t�
 
 Như vậy, này các Tỷ-kheo, người hành trì có một phần, thành tựu được một phần; người hành trì toàn phần, thành tựu được toàn phần. Ta tuyên bố rằng, này các Tỷ-kheo, các học giới không phải là rỗng không.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

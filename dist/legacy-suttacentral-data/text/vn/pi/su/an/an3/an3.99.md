@@ -38,8 +38,3 @@ Còn những ai, vị này nhận các vật dụng như y áo, đồ ăn khất
 
 Như vậy, này các Tỷ-kheo, nếu Tỷ-kheo trưởng lão này nói lên ở giữa chúng Tăng. Các Tỷ kheo ấy nói như sau: “Chư Tôn giả hãy im lặng, Tỷ-kheo trưởng lão đang nói pháp và luật, và lời nói của vị ấy trở thành châu báu cần phải cất giữ, như một người cất giữ tấm vải kàsi trong một hộp có hương thơm.” Do vậy, này các Tỷ-kheo, hãy học tập như sau: “Chúng ta sẽ được như ví dụ tấm vải kàsi, không giống như ví dụ tấm vải bằng vỏ cây”. Như vậy, này các Tỷ-kheo, các Thầy cần phải học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

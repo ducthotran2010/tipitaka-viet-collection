@@ -32,8 +32,3 @@ Sợ hãi về sinh sống, sợ hãi về tiếng đồn xấu, sợ hãi về 
 
 Thành tựu bốn lực ấy, này các Tỷ-kheo, Thánh đệ tử vượt qua năm sự sợ hãi này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

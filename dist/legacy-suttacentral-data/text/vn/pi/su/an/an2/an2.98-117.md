@@ -44,8 +44,3 @@ Trong hai hạng người, này các Tỷ-kheo, các lậu hoặc tăng trưởn
 
 Trong hai hạng người, này các Tỷ-kheo, các lậu hoặc không tăng trưởng. Trong hai hạng người nào? Người tưởng là đúng luật đối với việc đúng luật, và người tưởng là phi luật đối với việc phi luật. Trong hai hạng người này, này các Tỷ-kheo, các lậu hoặc không tăng trưởng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

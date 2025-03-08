@@ -24,8 +24,3 @@ Ta không thấy một pháp nào khác, này các Tỷ-kheo, đem lại đau kh
 
 Ta không thấy một pháp nào khác, này các Tỷ-kheo, đem lại an lạc, này các Tỷ-kheo, như tâm được tu tập, được làm cho sung mãn. Tâm được tu tập, được làm cho sung mãn, này các Tỷ-kheo, đem lại an lạc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

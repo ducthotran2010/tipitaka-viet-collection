@@ -18,8 +18,3 @@ Khi nào, này các Tỷ-kheo, các người xuất gia giữ giới đi đến 
 
 Khi nào, này các Tỷ-kheo, các người xuất gia giữ giới đi đến với gia đình, tại đấy các người do năm trường hợp này được nhiều công đức.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

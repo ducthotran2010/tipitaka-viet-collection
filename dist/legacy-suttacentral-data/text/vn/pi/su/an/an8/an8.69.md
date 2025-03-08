@@ -14,8 +14,3 @@ Này các Tỷ-kheo, Ta nhớ rằng Ta đã đi đến hàng trăm hội họ B
 
 Này các Tỷ-kheo, đây là tám hội chúng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

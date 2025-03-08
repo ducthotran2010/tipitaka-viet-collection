@@ -54,8 +54,3 @@ Rồi, này các Tỷ-kheo, người đóng xe đẩy cho chạy bánh xe đư�
 
 Do vậy, này các Tỷ-kheo, hãy học tập như sau: “Chúng tôi sẽ đoạn tận thân cong, thân hư hỏng, thân khuyết điểm, chúng tôi sẽ đoạn tận lời nói cong, lời nói hư hỏng, lời nói khuyết điểm, chúng tôi sẽ đoạn tận ý cong, ý hư hỏng, ý khuyết điểm”. Như vậy, này các Tỷ-kheo, các Thầy cần phải học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

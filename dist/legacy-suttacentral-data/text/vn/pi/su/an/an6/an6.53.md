@@ -16,8 +16,3 @@ Rồi một Bà-la-môn đi đến Thế Tôn; sau khi đến, nói với Thế 
 
 —Thật vi diệu thay, thưa Tôn giả Gotama! Thật vi diệu thay, thưa Tôn giả Gotama! ... Xin Tôn giả Gotama nhận con làm đệ tử, từ nay cho đến mạng chung, con trọn đời quy ngưỡng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

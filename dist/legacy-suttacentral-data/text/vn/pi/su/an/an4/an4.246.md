@@ -22,8 +22,3 @@ Và này các Tỷ-kheo, thế nào là cách nằm của Như Lai?
 
 Ở đây, này các Tỷ-kheo, vị Tỷ-kheo ly dục ... chứng đạt và an trú Thiền thứ tư. Này các Tỷ-kheo, đây là cách nằm của Như Lai. Này các Tỷ-kheo, có bốn cách nằm này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

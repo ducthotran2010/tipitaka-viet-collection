@@ -34,8 +34,3 @@ Rồi Tôn giả Ananda đi đến Tôn giả Mahàkotthita, sau khi đến, nó
 
 ... (giống như đoạn trước, khi Sàriputta trả lời cho Mahàkotthita ... cho đến... “hý luận được chỉ tịnh”).
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

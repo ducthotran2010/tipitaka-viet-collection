@@ -36,8 +36,3 @@ Lại nữa, này các Tỷ-kheo, các Trưởng lão Tỷ-kheo không là nhữ
 
 Này các Tỷ-kheo, bốn pháp này đưa đến diệu pháp được an trú, không bị hỗn loạn, không biến mất.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

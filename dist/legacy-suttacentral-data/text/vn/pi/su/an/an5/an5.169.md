@@ -20,8 +20,3 @@ Tôn giả Sàriputta vâng đáp Tôn giả Ananda. Tôn giả Ananda nói như
 
 —Thật là vi diệu, thưa Hiền giả! Thật là hy hữu, thưa Hiền giả! Khó nói thay, điều này được Tôn giả Ananda nói lên. Chúng tôi tin rằng Tôn giả Ananda thành tựu năm pháp này. Tôn giả Ananda thiện xảo về nghĩa, thiện xảo về pháp, thiện xảo về văn cú, thiện xảo về địa phương ngữ, thiện xảo về liên hệ trước sau.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

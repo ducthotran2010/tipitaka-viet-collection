@@ -12,8 +12,3 @@ Này Ràhula, phàm có nội thủy giới gì, phàm có ngoại thủy giới
 
 Khi nào, này Ràhula, Tỷ-kheo đối với bốn giới này, không có tùy quán là tự ngã hay thuộc ngã sở, này Ràhula, vị này được gọi là Tỷ-kheo đã cắt dứt ái, đã giải tỏa các kiết sử, đã chơn chánh minh quán kiêu mạn, đã chấm dứt khổ đau.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

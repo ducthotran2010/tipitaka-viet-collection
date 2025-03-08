@@ -23,8 +23,3 @@ Này các Tỷ-kheo, có bốn sự thi thiết tối thượng này.
 > Trong thế giới chư Thiên  
 > Phật được gọi tối thượng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

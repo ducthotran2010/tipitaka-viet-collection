@@ -16,8 +16,3 @@ Thành tựu năm pháp này, này các Tỷ-kheo, một Tỷ-kheo đủ điều
 
 Thành tựu năm pháp này, này các Tỷ-kheo, Tỷ-kheo đủ điều kiện để sống biệt lập với chúng Tăng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -16,8 +16,3 @@ Rồi Gia chủ Anàthapindika với khoảng năm trăm nam cư sĩ đi đến 
 
 —Lành thay, lành thay, này Sàriputta, trong khi Thánh đệ tử đạt được và an trú hỷ do viễn ly sanh, trong thời gian ấy, năm sự kiện không xảy ra cho người ấy: Khổ và ưu liên hệ đến dục trong thời gian ấy không xảy ra cho người ấy. Lạc và hỷ liên hệ đến dục trong thời gian ấy không xảy ra cho người ấy. Khổ và ưu liên hệ đến bất thiện trong thời gian ấy không xảy ra cho người ấy. Lạc và hỷ liên hệ đến bất thiện trong thời gian ấy không xảy ra cho người ấy. Khổ và ưu liên hệ đến thiện, trong thời gian ấy không xảy ra cho người ấy. Này Sàriputta, trong khi vị Thánh đệ tử đạt đến và an trú hỷ do viễn ly sanh, trong thời gian ấy, năm sự kiện này không xảy ra cho người ấy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

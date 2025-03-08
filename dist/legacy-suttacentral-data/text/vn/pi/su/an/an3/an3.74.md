@@ -24,8 +24,3 @@ Này Abhaya, có ba sự thanh tịnh, diệt nhiệt não này, được Thế 
 
 —Này bạn, tôi là ai lại không tín thọ lời khéo nói của Tôn giả Ananda là khéo nói. Ðầu người ấy sẽ vỡ tan, nếu ai không tín thọ lời khéo nói của Tôn giả Ananda là khéo nói.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

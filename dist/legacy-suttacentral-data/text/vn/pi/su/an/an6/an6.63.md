@@ -109,8 +109,3 @@ Này các Tỷ-kheo, cần phải biết khổ, cần phải biết khổ sanh k
 
 Này các Tỷ-kheo, đây là thể nhập pháp môn, pháp pháp môn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

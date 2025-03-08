@@ -60,8 +60,3 @@ Muốn thắng tri tham, này các Tỷ-kheo, năm pháp này cần phải tu t�
 
 Muốn biến tri... muốn đoạn diệt... muốn đoạn tận... muốn hủy diệt... muốn hoại diệt... muốn ly tham... muốn diệt tận... muốn xả bỏ... muốn từ bỏ sân... si... phẫn nộ... hiềm hận... giả dối... não hại... tật đố... xan tham... man trá... phản trắc... cứng đầu... cuồng nhiệt... mạn... quá mạn... kiêu căng... phóng dật... , năm pháp này cần phải tu tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

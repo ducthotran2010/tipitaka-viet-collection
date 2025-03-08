@@ -10,8 +10,3 @@ Tưởng vô thường, tưởng khổ trong vô thường, tưởng vô ngã tr
 
 Sáu pháp này, này các Tỷ-kheo, là thuộc về minh phần.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

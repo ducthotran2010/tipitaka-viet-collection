@@ -24,8 +24,3 @@ Ta không thấy một sắc nào khác, này các Tỷ-kheo, xâm chiếm và n
 
 Ta không thấy một tiếng... một hương... một vị... một xúc nào khác. Này các Tỷ-kheo, xâm chiếm và ngự trị tâm người đàn bà, như tiếng... hương... vị... xúc người đàn ông. Này các Tỷ-kheo, xúc người đàn ông xâm chiếm và ngự trị tâm người đàn bà.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

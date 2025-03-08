@@ -38,8 +38,3 @@ Bạch Thế Tôn, trong nội cung này, có những thiếu nữ hoàng tộc,
 
 Thật vi diệu thay, bạch Thế Tôn ... mong Thế Tôn nhận con làm đệ tử nữ cư sĩ, từ nay cho đến mạng chung, con trọn đời quy ngưỡng!
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

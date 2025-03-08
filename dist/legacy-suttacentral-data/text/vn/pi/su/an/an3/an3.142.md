@@ -28,8 +28,3 @@ Như thế nào, này các Tỷ-kheo, là hạng người hiền thiện, thuầ
 
 Ba hạng người này, này các Tỷ-kheo, là ba hạng người hiền thiện, thuần thục.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -14,8 +14,3 @@ Này các Tỷ-kheo, có bốn loại bệnh này cho người xuất gia. Thế
 
 Do vậy, này các Tỷ-kheo, cần phải học tập như sau: “Ta sẽ không có dục lớn, bực bội tức tối, tự bằng lòng với các vật dụng như y, đồ ăn khất thực, sàng tọa, dược phẩm trị bệnh. Ta sẽ không khởi lên thèm khát, ác dục, muốn được các điều không đáng được tán thán, muốn được các lợi dưỡng, cung kính, danh vọng. Ta sẽ không nỗ lực, không cố gắng, không tinh tấn để được các lợi dưỡng, cung kính, danh vọng. Ta sẽ kham nhẫn lạnh, nóng, đói, khát, sự xúc chạm với ruồi và muỗi, với gió và mưa và các vật bò sát, (kham nhẫn) các hình thức nói phô khó chịu, khó chấp nhận. Ta sẽ chịu đựng các khổ thọ về thân, khởi lên khổ đau, nhói đau, mãnh liệt, kịch liệt, không khả hỷ, không khả ý, đứt mạng sống”. Như vậy, này các Tỷ-kheo, các Thầy cần phải học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

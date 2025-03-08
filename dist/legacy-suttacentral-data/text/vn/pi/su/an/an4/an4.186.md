@@ -50,8 +50,3 @@ Tỷ-kheo ấy sau khi hoan hỷ, tín thọ lời Thế Tôn dạy, lại hỏi
 
 —Ở đây, này Tỷ-kheo, Bậc Hiền trí, Ðại tuệ, không có nghĩ tự làm hại mình, không có nghĩ tự làm hại người, không có nghĩ tự mình làm hại cả hai, có suy nghĩ điều gì thời suy nghĩ lợi mình, lợi người, lợi cả hai, lợi toàn thể thế giới. Như vậy, này Tỷ-kheo, là Bậc Hiền trí, Ðại tuệ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

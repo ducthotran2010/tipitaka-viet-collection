@@ -24,8 +24,3 @@ Lúc bấy giờ, Tôn giả Nàgita là thị giả của Thế Tôn. rồi Th�
 
 —Này Nàgita, Ta không có liên hệ gì với danh vọng, và danh vọng không có liên hệ gì với Ta. Này Nàgita, những ai tìm được không có khó khăn, tìm được không có mệt nhọc, tìm được không có phí sức, tìm được an ổn lạc, viễn ly lạc, an tịnh lạc, chánh giác lạc, mà Ta đã tìm được không có khó khăn, tìm được không phí sức. Hãy để họ thọ hưởng lạc như phân ấy, thụy miên lạc, lợi dưỡng, cung kính, danh văn lạc. Này Nàgita, với ai ăn, uống, nhai, nếm, thời đại tiện, tiểu tiện, là kết quả tất nhiên cho người ấy. Với những ai nặng nề về ái lạc, này Nàgita, sự biến hoại, đổi khác, sầu bi khổ ưu não khởi lên. Ðấy là kết quả tất nhiên cho người ấy. Những ai chuyên chú tâm về tướng bất tịnh, này Nàgita, thời sự nhàm chán đối với tịnh tướng được an trú. Ðấy là kết quả tất nhiên cho người ấy. Ai sống tùy quán vô thường trong sáu xúc xứ, này Nàgita, thời sự nhàm chán đối với xúc được an trú. Ðấy là kết quả tất nhiên cho người ấy. Ai sống tùy quán sanh diệt đối với năm thủ uẩn, này Nàgita, thời sự nhàm chán đối với chấp thủ được an trú. Ðấy là kết quả tất nhiên cho người ấy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -10,8 +10,3 @@ Này các Tỷ-kheo, Tỷ-kheo có lòng tin, có giới, nhưng không nghe nhi
 
 Thành tựu tám chi phần này, này các Tỷ-kheo, Tỷ-kheo được tịnh tín hoàn toàn và được viên mãn về mọi phương diện.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

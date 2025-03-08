@@ -35,8 +35,3 @@ Bốn pháp không sợ hãi này của Như Lai, này các Tỷ-kheo, do thành
 > Mọi chúng sanh đảnh lễ  
 > Bậc vượt quan sanh hữu.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

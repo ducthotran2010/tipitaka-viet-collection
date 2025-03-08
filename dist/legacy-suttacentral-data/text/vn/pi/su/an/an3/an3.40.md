@@ -55,8 +55,3 @@ Vị ấy lại quán sát như sau: “Thắng tấn là tinh tấn của ta, k
 > Ðối với tất cả pháp  
 > Không có gì xúc phạm
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

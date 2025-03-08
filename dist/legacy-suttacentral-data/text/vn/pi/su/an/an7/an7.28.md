@@ -14,8 +14,3 @@ Bảy pháp này, này các Tỷ-kheo, đưa Tỷ-kheo hữu học đến không
 
 Không ưa thích công việc; không ưa thích nói chuyện; không ưa thích ngủ nghỉ; không ưa thích hội chúng; các căn được phòng hộ; ăn uống có tiết độ; khi chúng Tăng có sự việc, tại đấy, Tỷ-kheo hữu học có suy tư: “Giữa Tăng chúng, có các trưởng lão có nhiều kinh nghiệm, xuất gia đã lâu năm, gánh vác chức vụ. Họ sẽ được biết đến vì những chức vụ này” và có tự mình chuyên tâm.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

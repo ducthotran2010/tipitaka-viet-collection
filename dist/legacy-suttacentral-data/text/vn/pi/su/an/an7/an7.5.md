@@ -23,8 +23,3 @@ Này các Tỷ-kheo, đây là bảy tài sản.
 > Bậc trí chuyên chú tâm,  
 > Ức niệm lời Phật dạy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

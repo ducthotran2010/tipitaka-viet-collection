@@ -10,8 +10,3 @@ Người đàn bà, này các Tỷ-kheo, thao thức đến đàn ông, ban đê
 
 Năm hạng người này, này các Tỷ-kheo, ban đêm ngủ ít thức nhiều.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -34,8 +34,3 @@ Lại nữa, này các Bà-la-môn, Tỷ-kheo vượt qua khỏi Không vô biê
 
 Lại các Bà-la-môn, Tỷ-kheo vượt qua Phi tưởng phi phi tưởng xứ một cách hoàn toàn, chứng đạt và an trú Diệt thọ tưởng định, thời sau khi thấy với trí tuệ, các lậu hoặc được đoạn tận. Này các Bà-la-môn, đây gọi là Tỷ-kheo sau khi đến tận cùng thế giới, trú trong tận cùng thế giới. Vị này đã vượt khỏi sự triền phược của thế giới.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

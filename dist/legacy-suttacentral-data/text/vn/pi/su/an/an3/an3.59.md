@@ -55,8 +55,3 @@ Như vậy, này Bà-la-môn, là ba minh trong Luật của bậc Thánh.
 
 Thật vi diệu thay, Tôn giả Gotama! Thật vi diệu thay, Tôn giả Gotama! Như người dựng đứng những gì bị quăng ngã xuống, hay trình bày cái gì bị che kín, hay chỉ đường cho người bị lạc hướng, hay cầm đèn sáng vào bóng tối để những ai có mắt có thể thấy sắc. Cũng vậy, Chánh pháp đã được Tôn giả Gotama dùng nhiều phương tiện thuyết giảng. Con nay xin quy y Tôn giả Gotama, quy y Pháp, quy y Tăng. Mong Tôn giả Gotama nhận con làm đệ tử cư sĩ, từ nay cho đến mạng chung, con trọn đời quy ngưỡng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -16,8 +16,3 @@ Quần chúng ái mộ, ưa thích; không có người hận thù; không có n
 
 Này các Tỷ-kheo, có năm lợi ích này cho người có kham nhẫn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

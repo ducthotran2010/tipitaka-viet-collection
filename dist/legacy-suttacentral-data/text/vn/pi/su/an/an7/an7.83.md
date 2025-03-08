@@ -10,8 +10,3 @@ Rồi Tôn giả Upàli đi đến Thế Tôn; sau khi đến, đảnh lễ Th�
 
 —Này Upàli, những pháp nào Thầy biết: “Những pháp này không được đưa đến nhất hướng nhàm chán, ly tham, đoạn diệt, an tịnh, thắng trí, giác ngộ, Niết-bàn”, thời này Upàli, Thầy cần phải nhất hướng thọ trì là: “Ðây không phải Pháp, đây không phải Luật, đây không phải lời dạy Thế Tôn”. Và này Upàli, những pháp nào Thầy biết: “Những pháp này đưa đến nhất hướng, nhàm chán, ly tham, đoạn diệt, an tịnh, thắng trí, giác ngộ, Niết-bàn”, thời này Upàli, Thầy cần phải nhất hướng thọ trì là: “Ðây là Pháp, đây là Luật, đây là lời dạy Thế Tôn”.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

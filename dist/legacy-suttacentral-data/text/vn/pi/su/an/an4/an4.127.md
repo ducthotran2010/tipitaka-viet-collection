@@ -16,8 +16,3 @@ Lại nữa, này các Tỷ-kheo, khi Như Lai chuyển bánh xe pháp vô thư�
 
 Này các Tỷ-kheo, khi Như Lai, bậc A-la-hán,Chánh Ðẳng Giác xuất hiện, có bốn pháp vi diệu chưa từng có này xuất hiện.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

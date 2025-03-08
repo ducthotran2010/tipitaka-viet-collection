@@ -17,8 +17,3 @@ Tăng trưởng với năm tăng trưởng này, này các Tỷ-kheo, vị nữ 
 > Tự thân được kiên cố,  
 > Ngay liền trong đời này
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

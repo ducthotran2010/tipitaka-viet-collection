@@ -28,8 +28,3 @@ Ví như, này các Tỷ-kheo, một cơn mưa lớn làm cho các loại mùa m
 > Nhiếp xan tham cấu uế  
 > Hưởng cuộc đời hạnh phúc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

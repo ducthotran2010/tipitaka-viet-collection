@@ -16,8 +16,3 @@ Có năm an lạc này, này các Tỷ-kheo, cho Sa-môn. Thế nào là năm?
 
 Này các Tỷ-kheo, có năm an lạc này cho vị Sa-môn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

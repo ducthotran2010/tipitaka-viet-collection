@@ -32,8 +32,3 @@ Vị ấy đầy đủ lòng tin tuyệt đối đối với chúng Tăng: “Ch
 
 Vị ấy đầy đủ các giới đức được bậc Thánh quý mến, không bị bể vụn, không bị hủy hoại, không có tỳ vết, không có vết nhơ, đưa đến giải thoát, được người trí tán thán, không bị nhiễm trước, đưa đến Thiền định. Bốn Dự lưu phần này được thành tựu.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

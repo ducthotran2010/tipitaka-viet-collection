@@ -10,8 +10,3 @@ VII. Phẩm Tưởng
 
 Năm pháp này, này các Tỷ-kheo, được tu tập, được làm cho sung mãn, đưa đến đoạn diệt các lậu hoặc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

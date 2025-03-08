@@ -8,8 +8,3 @@ VIII. Phẩm Không Hý Luận
 
 \-Có bốn điều này không thể nghĩ đến được, này các Tỷ-kheo, nếu nghĩ đến, thời có thể đi đến cuồng loạn và thống khổ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

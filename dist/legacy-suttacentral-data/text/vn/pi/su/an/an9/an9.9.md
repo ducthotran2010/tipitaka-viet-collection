@@ -10,8 +10,3 @@ Bậc A-la-hán, bậc đã hướng đến chứng đắc quả A-la-hán; bậ
 
 Này các Tỷ-kheo, có chín hạng người này có mặt, hiện hữu ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

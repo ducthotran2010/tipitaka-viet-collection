@@ -118,8 +118,3 @@ Rồi Thế Tôn, vào buổi sáng, đắp y, cầm y bát, đến trú xứ c�
 
 Rồi tướng quân Sìha tự tay mình hầu hạ và làm cho thỏa mãn chúng Tỷ-kheo với đức Phật và người cầm đầu các món ăn thượng vị, loại cứng và mềm. Rồi tướng quân Sìha, sau khi biết Thế Tôn ăn đã xong, bàn tay đã rời khỏi bát, liền ngồi xuống một bên, và Thế Tôn với bài pháp thoại thuyết giảng cho tướng quân Sìha, khích lệ, làm cho phấn khởi, làm cho hoan hỷ, rồi từ chỗ ngồi đứng dậy ra đi.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

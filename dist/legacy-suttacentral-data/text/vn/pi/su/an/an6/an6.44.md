@@ -32,8 +32,3 @@ Nhưng ở đây, này Ananda, có hạng người đã chinh phục được ph
 
 Và này Ananda, ai là nữ cư sĩ Migasàlà, lại ngu si, kém thông minh, với thân như bà mẹ, với trí như bà mẹ, để có thể biết sự thắng liệt giữa các người? Này Ananda, có sáu hạng người này có mặt, hiện hữu ở đời. Giới như thế nào, này Ananda, Puràna được thành tựu, giới ấy Isidatta chưa thành tựu. Do vậy ở đây, Puràna có sanh thú khác với sanh thú của Isidatta. Tuệ như thế nào, này Ananda, Isidatta được thành tựu, tuệ ấy Puràna chưa thành tựu. Do vậy ở đây, Isidatta có sanh thú khác với sanh thú của Puràna. Như vậy, này Ananda, cả hai người này đều có thiếu sót một chi phần.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

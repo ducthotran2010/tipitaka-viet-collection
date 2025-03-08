@@ -66,8 +66,3 @@ Rồi này Ananda, sau một thời gian, sau khi thấy nguy hiểm trong Phi t
 
 Cho đến khi nào, này Ananda, chín thứ đệ trú Thiền chứng này chưa được Ta thuận thứ nghịch thứ chứng đạt và xuất khởi, thời này Ananda, trong thế giới, với Thiên giới, Ma giới, Phạm thiên giới, với quần chúng Sa-môn và Bà-la-môn, chư Thiên và loài Người, Ta chưa xác chứng rằng ta đã chứng Chánh Ðẳng Chánh Giác. Cho đến khi nào, này Ananda, chín thứ đệ trú Thiền chứng này đã được Ta thuận thứ nghịch thứ chứng đạt và xuất khởi, thời này Ananda, trong thế giới này, với Thiên giới, Ma giới, Phạm thiên giới, với quần chúng Sa-môn và Bà-la-môn, chư Thiên và loài Người, cho đến khi ấy, Ta mới xác chứng rằng Ta đã chứng đắc Vô thượng Chánh đẳng Chánh giác. Tri và Kiến khởi lên nơi Ta. Ta biết rằng: “Bất động là tâm giải thoát của Ta. Ðây là đời sống cuối cùng, nay không còn tái sanh nữa”.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

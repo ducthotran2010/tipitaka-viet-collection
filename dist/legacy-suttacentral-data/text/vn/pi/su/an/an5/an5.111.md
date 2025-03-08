@@ -16,8 +16,3 @@ Vị ấy không thân mật với người không thân tín, không can thiệ
 
 Thành tựu năm pháp, này các Tỷ-kheo, Tỷ-kheo thân cận các gia đình, được các gia đình ái mộ, thích ý, kính trọng, noi gương để tu tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -16,8 +16,3 @@ Cũng vậy, này các Tỷ-kheo, thành tựu năm pháp, Như Lai, bậc A-la-
 
 Thành tựu năm pháp này, này các Tỷ-kheo, Như Lai, bậc A-la-hán, Chánh Ðẳng Giác chuyển Pháp luân Vô Thượng với pháp; bánh xe ấy, không một ai có thể chuyển ngược lại, dầu là Sa-môn, Bà-la-môn, Thiên, Ma, Phạm thiên hay bất cứ ai ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -31,8 +31,3 @@ Này các Tỷ-kheo, đây là bốn sự việc rất xa, rất xa với nhau n
 > Do vậy pháp bậc thiện,  
 > Rất xa pháp kẻ ác.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

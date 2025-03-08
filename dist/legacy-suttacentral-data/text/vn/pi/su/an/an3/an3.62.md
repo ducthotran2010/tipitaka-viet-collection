@@ -38,8 +38,3 @@ Này các Tỷ-kheo, mẹ không muốn con mình bị chết: “Ta nay bị ch
 
 Ðây là con đường Thánh Tám ngành, tức là chánh tri kiến, chánh tư duy, chánh ngữ, chánh nghiệp, chánh mạng, chánh tinh tấn, chánh niệm, chánh định. Ðây là con đường, này các Tỷ-kheo, đây là đạo lộ là đưa đến từ bỏ, vượt qua ba sợ hãi không làm chia rẽ mẹ con này, và ba sợ hãi làm chia rẽ mẹ con này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

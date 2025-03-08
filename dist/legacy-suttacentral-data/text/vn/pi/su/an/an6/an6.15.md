@@ -10,8 +10,3 @@ II. Phẩm Cần Phải Nhớ
 
 ... _(Giống như kinh số 14, chỉ khác là thay thế không hiền thiện bằng có hối hận, thay thế có hiền thiện bằng không hối hận)..._
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

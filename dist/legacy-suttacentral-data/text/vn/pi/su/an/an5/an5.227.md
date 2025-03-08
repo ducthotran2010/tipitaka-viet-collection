@@ -16,8 +16,3 @@ Nhờ tài sản, tự làm cho được an lạc, hoan hỷ và chơn chánh du
 
 Này các Tỷ-kheo, có năm lợi ích này trong các tài sản.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

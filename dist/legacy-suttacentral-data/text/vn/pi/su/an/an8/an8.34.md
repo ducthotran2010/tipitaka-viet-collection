@@ -47,8 +47,3 @@ Này các Tỷ-kheo, ở đây thửa ruộng không lồi lên lõm xuống, kh
 > Giải thoát mọi khổ đau  
 > Tức đầy đủ vẹn toàn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -36,8 +36,3 @@ Này Tỷ-kheo, khi nào định này của Thầy được tu tập, được l
 
 Tỷ-kheo ấy, được Thế Tôn giáo giới với bài giáo giới này, từ chỗ ngồi, đứng dậy, đảnh lễ Thế Tôn, thân bên hữu hướng về Ngài rồi ra đi. Tỷ-kheo ấy sống một mình, thanh tịnh, không phóng dật, nhiệt tâm, tinh cần, không bao lâu chứng đạt được mục đích mà các thiện nam tử xuất gia, từ bỏ gia đình, sống không gia đình. Ðây là vô thượng cứu cánh Phạm hạnh, ngay trong hiện tại, tự mình chứng tri với thắng trí, chứng ngộ, chứng đạt và an trú. Vị ấy rõ biết: “Sanh đã tận, Phạm hạnh đã thành. Những việc nên làm đã làm, không còn trở lui trạng thái này nữa”. Tỷ-kheo ấy trở thành một vị A-la-hán.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

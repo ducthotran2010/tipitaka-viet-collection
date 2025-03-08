@@ -26,8 +26,3 @@ Lại nữa, này các du sĩ, người Bà-la-môn nói như sau: “Ta không 
 
 Này các du sĩ, có bốn sự thật Bà-la-môn này, Ta đã tự mình chứng ngộ với thắng trí và tuyên bố lên.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

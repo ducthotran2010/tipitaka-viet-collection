@@ -39,8 +39,3 @@ Này Gia chủ, vị Thánh đệ tử muốn có được Thiên giới, không
 > Vị ấy đáng được gọi,  
 > Bậc Trí giả, Hiền giả.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

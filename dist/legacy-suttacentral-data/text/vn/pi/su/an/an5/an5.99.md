@@ -8,8 +8,3 @@ X. Phẩm Kakudha
 
 Con sư tử, này các Tỷ-kheo, là đồng nghĩa với bậc A-la-hán Chánh Ðẳng Giác. Khi Như Lai thuyết pháp cho hội chúng, tức là rống tiếng rống con sư tử. Này các Tỷ-kheo, nếu Như Lai thuyết pháp cho các vị Tỷ-kheo, Như Lai thuyết pháp hết sức cẩn thận, chu đáo, không phải không cẩn thận, chu đáo. Nếu Như Lai thuyết pháp cho các vị Tỷ-kheo Ni, Như Lai thuyết pháp hết sức cẩn thận, chu đáo, không phải không cẩn thận, chu đáo. Nếu Như Lai thuyết pháp cho các hàng nam cư sĩ, Như Lai thuyết pháp hết sức cẩn thận, chu đáo, không phải không cẩn thận, chu đáo. Nếu Như Lai thuyết pháp cho các hàng nữ cư sĩ, Như Lai thuyết pháp hết sức cẩn thận, chu đáo, không phải không cẩn thận, chu đáo. Nếu Như Lai thuyết pháp cho các hàng phàm phu , cho các người bắt chim hay xin ăn, Như Lai thuyết pháp hết sức cẩn thận, chu đáo, không phải không cẩn thận, chu đáo. Vì cớ sao? Vì Như Lai là bậc tôn trọng Pháp, này các Tỷ-kheo, là bậc tôn kính Pháp.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -34,8 +34,3 @@ Các nam cư sĩ ở Campà ấy vâng đáp Tôn giả Sàriputta, từ chỗ n
 
 Này Sàriputta, đây là nhân, đây là duyên, khiến cho ở đây, một hạng người bố thí như vậy, không được quả lớn, không được lợi ích lớn. Này Sàriputta, nhưng đây cũng là nhân, là duyên khiến cho ở đây, có hạng người bố thí như vậy, được quả lớn, được lợi ích lớn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

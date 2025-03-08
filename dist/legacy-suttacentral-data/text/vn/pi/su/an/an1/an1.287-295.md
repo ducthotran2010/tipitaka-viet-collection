@@ -14,8 +14,3 @@ Sự kiện này không xảy ra, này các Tỷ-kheo, không có được là n
 
 Sự kiện này không xảy ra, này các Tỷ-kheo, không có được: là người đầy đủ thân làm thiện... miệng nói thiện... ý nghĩ thiện, do nhân ấy, do duyên ấy, sau khi thân hoại mạng chung, có thể sanh cõi dữ, ác thú, đọa xứ, địa ngục, sự kiện này không xảy ra. Sự kiện này có xảy ra, này các Tỷ-kheo, là người đầy đủ thân làm thiện,... miệng nói thiện... ý nghĩ thiện, do nhân ấy, do duyên ấy, sau khi thân hoại mạng chung, có thể sanh cõi lành, cõi Trời, cõi đời này, sự kiện này có xảy ra.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

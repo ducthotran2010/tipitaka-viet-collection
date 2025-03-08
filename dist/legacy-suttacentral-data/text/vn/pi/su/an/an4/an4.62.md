@@ -34,8 +34,3 @@ Có bốn loại lạc này, này Gia chủ, người tại gia thọ hưởng c
 > Bằng một phần mười sáu,  
 > Lạc không có phạm tội.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

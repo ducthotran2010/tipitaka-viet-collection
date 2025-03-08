@@ -32,8 +32,3 @@ Rồi Bà-la-môn Jànussoni đi đến Thế Tôn; sau khi đến, nói lên v�
 
 —Thật vi diệu thay, thưa Tôn giả Gotama. Thật hy hữu thay, thưa Tôn giả Gotama! Tôn giả Gotama rõ biết mong muốn, cận hành, điểm tựa, xu hướng và cứu cánh của các Sát-đế-lỵ, Tôn giả Gotama rõ biết mong muốn, cận hành, điểm tựa, xu hướng, cứu cánh của các Bà-la-môn... của các gia chủ... của các nữ nhân... của các người ăn trộm... của các Sa-môn. Thật vi diệu thay, thưa Tôn giả Gotama! ... Mong Tôn giả Gotama nhận con làm đệ tử cư sĩ, từ nay cho đến mạng chung con xin trọn đời quy ngưỡng!
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

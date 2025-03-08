@@ -20,8 +20,3 @@ Một thời, Thế Tôn trú ở giữa dân chúng Magadha, tại Andhakavinda
 
 Này Ananda, các Tỷ-kheo nào tân học, xuất gia không bao lâu, mới đến trong Pháp Luật này, này Ananda, các Tỷ-kheo ấy cần phải được thầy khích lệ, cần phải làm cho nhập vào, cần làm cho an trú trong năm pháp này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

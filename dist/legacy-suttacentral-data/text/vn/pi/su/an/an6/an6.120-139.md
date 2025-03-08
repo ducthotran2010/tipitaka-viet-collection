@@ -10,8 +10,3 @@ Với lòng tịnh tín bất động đối với Phật, với lòng tịnh t�
 
 Thành tựu sáu pháp này, này các Tỷ-kheo, cư sĩ Sàragga đi đến cứu cánh nơi Như Lai, sống thấy được bất tử, chứng ngộ được bất tử.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

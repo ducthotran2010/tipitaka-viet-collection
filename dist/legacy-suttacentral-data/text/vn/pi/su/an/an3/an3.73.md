@@ -28,8 +28,3 @@ Và này Mahànàma, thế nào là trí tuệ của bậc hữu học?
 
 Ở đây, này Mahànàma, vị Tỷ-kheo như thật quán tri: “Ðây là khổ” ... “Ðây là khổ tập” ... “Ðây là khổ diệt” ... như thật quán tri: “Ðây là con đường đưa đến Khổ diệt”. Này Mahànàma, đây gọi là trí tuệ của bậc Hữu học. Vị Thánh đệ tử như vậy đầy đủ giới, như vậy đầy đủ định, như vậy đầy đủ tuệ, do đoạn tận các lậu hoặc, ngay trong hiện tại, tự mình với thắng trí, chứng ngộ, chứng đạt và an trú vô lậu tâm giải thoát, tuệ giải thoát. Như vậy, này Mahànàma, là giới bậc Hữu học được Thế Tôn thuyết, là giới bậc Vô học được Thế Tôn thuyết, là định bậc Hữu học được Thế Tôn thuyết, là định bậc Vô học được Thế Tôn thuyết, là tuệ bậc Hữu học được Thế Tôn thuyết, là tuệ bậc Vô học được Thế Tôn thuyết.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

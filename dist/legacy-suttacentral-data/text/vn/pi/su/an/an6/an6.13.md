@@ -20,8 +20,3 @@ Này các Tỷ-kheo, ở đây, Tỷ-kheo nói như sau: “Ta đã tu tập x�
 
 Này các Tỷ-kheo, đây là sáu pháp xuất ly giới.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

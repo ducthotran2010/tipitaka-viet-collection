@@ -50,8 +50,3 @@ Lại nữa, này các Tỷ-kheo, các Tỷ-kheo buộc tội một Tỷ-kheo ph
 
 Này các Tỷ-kheo, đây là tám hạng người chưa được điều phục và tám tánh xấu của con người.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

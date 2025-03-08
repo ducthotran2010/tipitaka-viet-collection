@@ -17,8 +17,3 @@ Cho thọ mạng, cho dung sắc, cho an lạc, cho sức mạnh, cho biện tà
 > Ðược sống lâu, danh xưng,  
 > Tại chỗ được tái sanh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

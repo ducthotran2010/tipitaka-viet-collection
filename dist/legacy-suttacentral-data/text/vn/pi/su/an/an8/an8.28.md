@@ -22,8 +22,3 @@ Lại nữa, bạch Thế Tôn, Tỷ-kheo đã đoạn tận các lậu hoặc, 
 
 Bạch Thế Tôn, đây là tám sức mạnh của Tỷ-kheo đã đoạn tận các lậu hoặc, thành tựu với tám sức mạnh này, Tỷ-kheo đã đoạn tận các lậu hoặc. Do sức mạnh này, Tỷ-kheo đã đoạn tận các lậu hoặc, tự nhận mình đã đoạn diệt các lậu hoặc: “Các lậu hoặc đã được ta đoạn tận”.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

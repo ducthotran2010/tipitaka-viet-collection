@@ -64,8 +64,3 @@ Thành tựu năm chi phần này, này các Tỷ-kheo, con voi của vua xứng
 
 Thành tựu năm pháp này, này các Tỷ-kheo, đáng được cung kính, đáng được tôn trọng, đáng được cúng dường, đáng được chắp tay, là vô thượng phước điền ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

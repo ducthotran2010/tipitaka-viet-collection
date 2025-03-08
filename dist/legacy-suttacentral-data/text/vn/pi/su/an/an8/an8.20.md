@@ -58,8 +58,3 @@ Ví như, này các Tỷ-kheo, biển lớn tuần tự thuận xuôi, tuần t�
 
 Này các Tỷ-kheo, trong Pháp và Luật này, có tám pháp vi diệu, chưa từng có này mà do thấy vậy, thấy vậy, các Tỷ-kheo hoan hỷ trong Pháp và Luật này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

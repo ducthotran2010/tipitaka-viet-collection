@@ -14,8 +14,3 @@ Lại nữa, này các Tỷ-kheo, do người nào, người khác đoạn trừ
 
 Ba hạng người này, này các Tỷ-kheo, làm lợi ích nhiều cho người khác. Ta nói rằng không có một người nào khác làm lợi ích nhiều hơn cho người bằng ba hạng người này. Ta nói rằng người này không thể khéo trả ơn cho ba hạng người kia, như đảnh lễ, đứng dậy, chắp tay, hành động thân thiện, bố thí các vật dụng như y, đồ ăn khất thực, sàng tọa, thuốc trị bệnh ...
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

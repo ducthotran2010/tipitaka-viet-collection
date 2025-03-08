@@ -59,8 +59,3 @@ Cái ở đây là Phi tưởng phi phi tưởng xứ chưa diệt. Chính cái 
 
 Lại nữa, thưa Hiền giả, Tỷ-kheo vượt qua Phi tưởng phi phi tưởng xứ, chứng đạt và an trú Diệt thọ tưởng định. Sau khi thấy với trí tuệ, các lậu hoặc được đoạn diệt. Cho đến như vậy, này Hiền giả là giải thoát khỏi triền phược được Thế Tôn nói đến với pháp môn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -38,8 +38,3 @@ Ví như, này các Tỷ-kheo, một chiếc thuyền đi biển, có đầy đ�
 
 Cũng vậy, này các Tỷ-kheo, Tỷ-kheo sống chú tâm trong sự tu tập, các kiết sử rất dễ bị yếu dần và mục nát.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

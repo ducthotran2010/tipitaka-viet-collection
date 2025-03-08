@@ -18,8 +18,3 @@ Thế nào là hai? Cực thiện cho Tăng chúng và an lạc cho Tăng chúng
 
 —Ðể thắng tri ... để biến tri sân, si, phẫn nộ, hiềm hận, giả dối, não hại, tật đố, xan tham, man trá, phản trắc, cứng đầu, cuồng nhiệt, mạn, quá mạn, kiêu căng, phóng dật,... để biến tận, để đoạn tận, để trừ diệt, để biến diệt, để ly tham, để đoạn diệt, để xả bỏ, để từ bỏ sân ... phóng dật, hai pháp này cần phải tu tập. Thế nào là hai? Chỉ và Quán ... hai pháp này cần phải tu tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

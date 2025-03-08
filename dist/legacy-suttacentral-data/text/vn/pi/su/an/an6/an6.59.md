@@ -16,8 +16,3 @@ Một thời, Thế Tôn ở Nàdika, tại giảng đường bằng gạch. B�
 
 —Bạch Thế Tôn, bắt đầu từ hôm nay, con sẽ bố thí cúng dường chúng Tăng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

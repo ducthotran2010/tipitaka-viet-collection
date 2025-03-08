@@ -56,8 +56,3 @@ Và này các Tỷ-kheo, thế nào là hội chúng thuyết đúng pháp? Ở 
 
 Này các Tỷ-kheo, có hai loại hội chúng này. Hội chúng tối thắng trong hai hội chúng này, tức là hội chúng thuyết đúng pháp.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

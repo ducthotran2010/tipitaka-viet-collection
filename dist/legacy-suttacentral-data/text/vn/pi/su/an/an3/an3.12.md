@@ -24,8 +24,3 @@ Lại nữa, này các Tỷ-kheo, tại chỗ nào, môt Tỷ-kheo, sau khi đo�
 
 Ba pháp này, này các Tỷ-kheo, một Tỷ-kheo cần phải trọn đời ghi nhớ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -28,8 +28,3 @@ IV. Phẩm Bánh Xe
 > Nhờ vậy họ đạt được,  
 > Sự cao lớn, tán thán.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

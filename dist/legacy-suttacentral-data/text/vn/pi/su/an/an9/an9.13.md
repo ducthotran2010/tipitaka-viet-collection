@@ -54,8 +54,3 @@ Rồi Tôn giả Mahàkotthita đến Tôn giả Sàriputta, sau khi đến, ch�
 
 —“Ðây là Khổ”, này Hiền giả, là điều không được biết, không được thấy, không đạt, không chứng ngộ, không hiện quán, với mục đích để được biết, được thấy... mà Phạm hạnh được sống dưới Thế Tôn. “Ðây là Khổ tập”... “Ðây là Khổ diệt”... “Ðây là con Ðường đưa đến khổ diệt”, này Hiền giả, là điều không được biết, không được thấy, không được đạt, không được chứng ngộ, không được hiện quán, với mục đích được biết, được thấy, được đạt, được chứng ngộ, được hiện quán, mà Phạm hạnh được sống dưới Thế Tôn. Thưa Hiền giả, đây là điều không được biết, không được thấy, không đạt, không được chứng ngộ, không được hiện quán, với mục đích để được biết, được thấy, được đạt, được chứng ngộ, được hiện quán, mà Phạm hạnh được sống dưới Thế Tôn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

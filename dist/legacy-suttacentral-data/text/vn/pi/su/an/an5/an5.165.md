@@ -12,8 +12,3 @@ Do đần độn ngu si, hỏi người khác câu hỏi; do ác dục, tham d�
 
 Này các Hiền giả, ai hỏi một người khác câu hỏi gì đều nằm trong năm trường hợp này, hay một trong năm trường hợp này. Này các Hiền giả, ta với tâm như sau hỏi người khác câu hỏi: Nếu do ta hỏi, người ấy trả lời một cách chân chánh, thời như vậy thật tốt đẹp. Nếu ta hỏi và vị ấy trả lời không chơn chánh, thời ta sẽ trả lời chơn chánh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

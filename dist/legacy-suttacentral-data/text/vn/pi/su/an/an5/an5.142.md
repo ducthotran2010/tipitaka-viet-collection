@@ -18,8 +18,3 @@ XV. Phẩm Tikandaki
 
 Như vậy, này các Tỷ-kheo, bốn hạng người này, với hạng người thứ năm được giáo giới như vậy, được khuyên dạy như vậy, dần dần đạt đến sự đoạn diệt các lậu hoặc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

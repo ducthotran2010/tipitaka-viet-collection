@@ -38,8 +38,3 @@ Những Tỷ-kheo nào, này các Tỷ-kheo, nêu rõ pháp là phi pháp, sở 
 
 Những Tỷ-kheo nào, này các Tỷ-kheo, nêu rõ phi luật là luật,... nêu rõ luật là phi luật,... Như Lai không nói lên, tuyên bố là Như Lai có nói lên, không tuyên bố là Như Lai không nói lên, ... Như Lai có nói lên, tuyên bố là Như Lai không nói lên, không tuyên bố là Như Lai có nói lên, ... Như Lai không thực hành, tuyên bố là Như Lai có thực hành,... Như Lai thực hành, tuyên bố là Như Lai không thực hành,... Như Lai không chế đặt, tuyên bố là Như Lai có chế đặt... Như Lai có chế đặt, tuyên bố là Như Lai không chế đặt... Sở hành của những vị ấy, này các Tỷ-kheo, đem lại bất hạnh cho đa số, bất lạc cho đa số, bất lợi cho đa số, đưa đến bất hạnh đau khổ cho chư Thiên và loài Người. Và hơn nữa, này các Tỷ-kheo, những Tỷ-kheo ấy tạo điều vô phước, và khiến cho diệu pháp biến mất.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

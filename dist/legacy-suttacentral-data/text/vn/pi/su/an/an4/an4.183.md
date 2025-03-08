@@ -14,8 +14,3 @@ Này Bà-la-môn, phàm nói lên điều thấy gì, các pháp bất thiện t
 
 Rồi Bà-la-môn Vassakàra, vị đại thần xứ Magadha, hoan hỷ, tín thọ lời Thế Tôn nói, từ chỗ ngồi đứng dậy rồi ra đi.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

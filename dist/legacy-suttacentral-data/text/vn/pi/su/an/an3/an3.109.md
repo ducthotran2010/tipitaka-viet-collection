@@ -14,8 +14,3 @@ Này gia chủ, khi tâm được phòng hộ, thời thân nghiệp cũng đư�
 
 Này gia chủ, ví như ngôi nhà nóc nhọn khéo lợp, thời nóc nhọn được phòng hộ, rui kèo được phòng hộ, vách tường được phòng hộ; nóc nhọn không đầy ứ, rỉ nước, các rui kèo không đầy ứ, rỉ nước, các vách tường không đầy ứ, rỉ nước, nóc nhọn không bị hủ bại, rui kèo không bị hủ bại, vách tường không bị hủ bại. Cũng vậy, này gia chủ, khi tâm được phòng hộ, thời thân nghiệp cũng được phòng hộ, khẩu nghiệp ... ý nghiệp không bị hủ bại, thời sự chết được hiền thiện, mạng chung được hiền thiện.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

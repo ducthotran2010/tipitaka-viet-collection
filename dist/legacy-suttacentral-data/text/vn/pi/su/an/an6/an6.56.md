@@ -40,8 +40,3 @@ Lại nữa, này Ananda, Tỷ-kheo với tâm được giải thoát khỏi nă
 
 Có sáu lợi ích này, này Ananda, khi được nghe pháp đúng thời, và khi được thẩm sát ý nghĩa đúng thời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

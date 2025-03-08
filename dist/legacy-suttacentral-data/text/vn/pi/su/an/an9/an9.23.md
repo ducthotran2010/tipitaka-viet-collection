@@ -10,8 +10,3 @@ Do duyên ái nên cầu tìm; do duyên cầu tìm nên có được; do duyên
 
 Này các Tỷ-kheo, đây là chín pháp lấy ái làm cội gốc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

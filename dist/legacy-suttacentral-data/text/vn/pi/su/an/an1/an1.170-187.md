@@ -18,8 +18,3 @@ Sự xuất hiện của một người, này các Tỷ-kheo, là sự xuất hi
 
 Ta không thấy một người nào khác, này các Tỷ-kheo, có thể chơn chánh chuyển vận Vô thượng Pháp luân do Như Lai chuyển vận, này các Tỷ-kheo, như Xá-lợi-phất. Xá-lợi-phất, này các Tỷ-kheo, chơn chánh chuyển vận Vô thượng Pháp luân do Thế Tôn chuyển vận.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

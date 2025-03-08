@@ -100,8 +100,3 @@ Này Bhaddiya, nếu thế giới cùng với chư Thiên, Màra, Phạm thiên,
 
 Này Bhaddiya, nếu các cây sala to lớn này được huyễn thuật dụ dỗ này cám dỗ, để đoạn tận các pháp bất thiện, để đầy đủ các pháp thiện, như vậy tất cả cây sala to lớn này được hạnh phúc an lạc trong một thời gian dài nếu chúng có thể suy nghĩ được, còn nói gì với con người!
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

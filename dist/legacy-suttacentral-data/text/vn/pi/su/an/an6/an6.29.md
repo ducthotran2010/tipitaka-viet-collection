@@ -40,8 +40,3 @@ Bạch Thế Tôn, đây là năm chỗ để tùy niệm.
 
 —Lành thay, lành thay, này Ananda! Ðây là chỗ tùy niệm thứ sáu, hãy thọ trì ở đây, này Ananda, Tỷ-kheo chánh niệm đi ra, chánh niệm đi vào, chánh niệm ngồi, chánh niệm nằm, chánh niệm trong khi làm việc. Này Ananda, đây là chỗ để tùy niệm, như vậy tu tập, như vậy làm cho sung mãn, được đưa đến chánh niệm tỉnh giác.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

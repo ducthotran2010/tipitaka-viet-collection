@@ -12,8 +12,3 @@ Thành tựu năm pháp này, này các Tỷ-kheo, nam cư sĩ sống ở gia đ
 
 Thành tựu năm pháp này, này các Tỷ-kheo, nam cư sĩ sống ở gia đình không có sợ hãi.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -36,8 +36,3 @@ Này Mahànàma, về vị Thánh đệ tử này, được nói như sau: “V�
 
 Này Mahànàma, vị Thánh đệ tử nào đã đi đến quả, đã liễu giải giáo pháp, vị ấy sống một cách sung mãn với nếp sống này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

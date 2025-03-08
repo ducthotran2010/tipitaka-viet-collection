@@ -16,8 +16,3 @@ Không cố gắng đem lại thiệt hại cho các Tỷ-kheo, không cố gắ
 
 Này các Tỷ-kheo, nếu muốn, chúng Tăng có thể lật ngửa bình bát của một nam cư sĩ thành tựu tám pháp này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

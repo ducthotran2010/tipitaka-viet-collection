@@ -30,8 +30,3 @@ Này các Tỷ-kheo, do được nghe các pháp bằng tai, do tụng đọc b�
 
 Này các Tỷ-kheo, do được nghe các pháp bằng tai, do tụng đọc bằng lời, do ý quan sát, do kiến khéo thể nhập; có bốn lợi ích này được chờ đợi.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

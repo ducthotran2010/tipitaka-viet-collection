@@ -24,8 +24,3 @@ Trong các vị đệ tử nam cư sĩ ... được dân chúng kính mến, t�
 
 Trong các vị đệ tử nam cư sĩ của Ta, nói chuyện một cách thân mật, này các Tỷ-kheo, tối thắng là gia chủ Nakulapità.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

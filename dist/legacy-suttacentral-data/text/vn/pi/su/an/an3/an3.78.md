@@ -22,8 +22,3 @@ Rồi Thế Tôn, khi Tôn giả Ananda ra đi không bao lâu, nói với các 
 
 —Này các Tỷ-kheo, Ananda còn là hữu học, nhưng không dễ gì tìm được người có trí tuệ ngang bằng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -44,8 +44,3 @@ Thế Tôn nói:
 
 Ngoài các an ổn trú này, này Ananda, Ta tuyên bố không có một an ổn trú nào khác cao thượng hơn, thù diệu hơn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

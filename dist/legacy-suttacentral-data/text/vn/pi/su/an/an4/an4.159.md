@@ -38,8 +38,3 @@ Rồi Tỷ-kheo-ni ấy, từ giường đứng dậy, đắp thượng y vào m
 
 —Thật vậy, này chị, thật sự chị đã phạm tội vì ngu đần, vì si mê, vì bất thiện. Chị đã làm như vậy. Này chị, vì Chị thấy phạm tội là phạm tội, và như Pháp phát lộ, nên chúng tôi chấp nhận tội ấy cho chị. Này chị, như vậy Luật của bậc Thánh được tăng trưởng khi thấy được phạm tội là phạm tội, và như pháp phát lộ để ngăn giữ trong tương lai.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

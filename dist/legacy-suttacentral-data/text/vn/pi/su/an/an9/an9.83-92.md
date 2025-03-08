@@ -10,8 +10,3 @@ Thế nào là bốn?
 
 —Ở đây, này các Tỷ-kheo, Tỷ-kheo tu tập như ý túc câu hữu với Dục định tinh cần hành.... câu hữu với Tinh tấn định tinh cần hành,... câu hữu với Tâm định tinh cần hành,... câu hữu với Tư duy định tinh cần hành.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

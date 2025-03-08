@@ -26,8 +26,3 @@ Rồi này các Tỷ-kheo, chư Thiên ở cõi trời thứ ba mươi ba hoan h
 
 —“Thật vậy, Thiên chúng sẽ được sung mãn, còn các Asura chúng sẽ bị tổn giảm.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

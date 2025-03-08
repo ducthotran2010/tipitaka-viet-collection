@@ -36,8 +36,3 @@ Ví như, này Sàlhà, người chiến sĩ bắn như chớp nhoáng; cũng v�
 
 Ví như, này Sàlhà, người chiến sĩ đâm thủng được thân hình lớn. Cũng vậy, này Sàlhà là vị Thánh đệ tử có chánh giải thoát. Vị Thánh đệ tử này Sàlhà, có chánh giải thoát đâm thủng được vô minh uẩn to lớn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

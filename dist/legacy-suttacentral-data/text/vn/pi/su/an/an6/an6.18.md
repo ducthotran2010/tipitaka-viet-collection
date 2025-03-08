@@ -30,8 +30,3 @@ Các Thầy nghĩ thế nào, này các Tỷ-kheo, các Thầy có thấy hay c�
 
 Thật vậy, này các Tỷ-kheo, ai với ác ý nhìn các loài bàng sanh bị giết, đem đi giết hại; vì vậy, người ấy không được cưỡi voi, không được cưỡi ngựa, không được cưỡi xe, không được cưỡi cỗ xe, không được thọ hưởng các tài sản, hay không được sống giữa các tài sản lớn hay tài sản chất đống. Còn nói gì về người với ác ý nhìn các loài Người bị giết, bị đem đi giết hại! Thật vậy, này các Tỷ-kheo, như vậy là bất hạnh, đau khổ lâu dài cho người ấy, sau khi thân hoại mạng chung sanh vào cõi dữ, ác thú, đọa xứ, địa ngục.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

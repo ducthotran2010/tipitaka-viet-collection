@@ -104,8 +104,3 @@ Như vậy, này các Sàlhà, chớ có tin vì nghe theo truyền thống; ch�
 
 Vị ấy rõ biết như sau: “Trước ta có tham, tham ấy là bất thiện. Nay ta không có nữa. Như vầy là thiện. Trước ta có sân, sân ấy là bất thiện. Nay ta không có nữa. Như vầy là thiện. Trước ta có si, si ấy là bất thiện. Nay ta không có nữa. Như vậy là thiện”. Như vậy, ngay trong đời sống hiện tại, vị ấy được giải thoát khỏi hy cầu, được tịch tịnh, được thanh lương, cảm thấy an lạc, tự mình an trú trong Phạm tánh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

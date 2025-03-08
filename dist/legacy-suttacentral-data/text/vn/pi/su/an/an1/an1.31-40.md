@@ -24,8 +24,3 @@ Ta không thấy một pháp nào khác, này các Tỷ-kheo, đưa đến bất
 
 Ta không thấy một pháp nào khác, này các Tỷ-kheo, đưa đến lợi ích lớn, này các Tỷ-kheo, như tâm được điều phục, được hộ trì, được phòng hộ, được bảo vệ. Tâm được điều phục, được hộ trì, được phòng hộ, được bảo vệ, này các Tỷ-kheo, đưa đến lợi ích lớn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

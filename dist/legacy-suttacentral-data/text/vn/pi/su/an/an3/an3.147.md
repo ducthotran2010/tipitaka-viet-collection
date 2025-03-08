@@ -12,8 +12,3 @@ Với thân làm có tội, với lời nói có tội, với ý nghĩ có tội
 
 Với thân làm không có tội, với lời nói không có tội, với ý nghĩ không có tội, đầy đủ ba pháp này, này các Tỷ-kheo, tương xứng như vậy, sanh lên cõi Trời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

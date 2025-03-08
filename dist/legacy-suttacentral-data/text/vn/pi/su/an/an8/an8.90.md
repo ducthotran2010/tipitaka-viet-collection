@@ -12,8 +12,3 @@ Này các Tỷ-kheo, với Tỷ-kheo đã bị hành tìm tội Yết-ma, cần 
 
 Bojjhà, Sirimà, Padumà, Sudhanà, Manujà, Uttarà, Muttà, Khemà, Somà Rùpì, Cundì Bimbì, Sumanà, Mallikà, Tissà, mẹ của Tissà, Sonà, mẹ của Cunda Sonà, Kànà, mẹ của Kànà, Uttarà, mẹ của Nandà, Visàkhà, mẹ của Migàra, nữ cư sĩ Khujjuttarà và Sàmavatì, Suppavàsà, người thiếu nữ Koliya, nữ cư sĩ Suppiyà, nữ gia chủ mẹ của Nakula.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

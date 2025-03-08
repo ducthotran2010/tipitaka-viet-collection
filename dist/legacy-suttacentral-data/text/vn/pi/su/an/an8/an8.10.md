@@ -49,8 +49,3 @@ Cũng vậy, này các Tỷ-kheo, ở đây, khi nào một người đi ra, đi
 > Hòa hợp biết khôn khéo  
 > Hãy chấm dứt khổ đau.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

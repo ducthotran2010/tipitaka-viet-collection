@@ -12,8 +12,3 @@ Một thời, Thế Tôn trú ở Vesàli, tại Mahàvana, ở ngôi nhà có n
 
 Và này Gotamì, những pháp nào bà biết: “Những pháp đưa đến ly tham, không đưa đến tham dục; đưa đến ly hệ phước, không đưa đến hệ phước; đưa đến không tích tập, không đưa đến tích tập; đưa đến ít dục, không đưa đến dục lớn; đưa đến biết đủ, không đưa đến không biết đủ; đưa đến nhàn tịnh, không đưa đến tụ hội; đưa đến tinh tấn, không đưa đến biếng nhác; đưa đến dễ nuôi dưỡng, không đưa đến khó nuôi dưỡng”. Này Gotamì, hãy thọ trì nhứt hướng rằng: “Ðó là Pháp, đó là Luật, đó là lời dạy của bậc Ðạo sư”.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

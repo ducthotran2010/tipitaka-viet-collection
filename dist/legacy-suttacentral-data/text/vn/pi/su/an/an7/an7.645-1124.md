@@ -10,8 +10,3 @@ IX. Phẩm Các Kinh Không Nhiếp
 
 Thế Tôn thuyết như vậy, các Tỷ-kheo hoan hỷ tín thọ lời Thế Tôn thuyết.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -49,8 +49,3 @@ Ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đờ
 > Thực hành pháp, tùy pháp  
 > Có thể đoạn khổ đau.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

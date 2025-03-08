@@ -26,8 +26,3 @@ Lại nữa, này Tỷ-kheo, Như Lai, bậc A-la-hán ... ủng hộ đúng ph�
 
 Như Lai ấy, này Tỷ-kheo, bậc A-la-hán ... đúng pháp, sau khi ra lệnh hộ trì che chở ... đối với thân nghiệp ... đối với khẩu nghiệp ... đối với ý nghiệp ... chuyển bánh xe đúng pháp. Bánh xe ấy không bị ngăn chặn sự chuyển vận, bởi Sa-môn, Bà-la-môn, chư Thiên, Ác ma, Phạm thiên, hay bất cứ một ai ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

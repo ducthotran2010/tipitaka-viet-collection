@@ -30,8 +30,3 @@ Do vậy, này chư Hiền, cần phải học tập như sau:
 
 “Chúng ta là những người tu thiền, chúng ta sẽ tán thán các Tỷ-kheo chuyên tâm về Pháp”. Này chư Hiền, chư Hiền cần phải học tập như vậy. Vì cớ sao? Thật vậy, này chư Hiền, các người vi diệu ấy khó tìm được ở đời, những người với trí tuệ thể nhập và thấy con đường thâm sâu hướng dẫn đến đích.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

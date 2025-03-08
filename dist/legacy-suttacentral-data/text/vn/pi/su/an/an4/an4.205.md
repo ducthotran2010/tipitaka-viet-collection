@@ -30,8 +30,3 @@ Này các Tỷ-kheo, thế nào là bậc Chân nhân còn hơn cả bậc Chân
 
 Này các Tỷ-kheo, đây gọi là gọi là bậc Chân nhân còn hơn cả bậc Chân nhân.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -8,8 +8,3 @@ II. Phẩm Sức Mạnh
 
 Tín lực, tàm lực, quý lực, tinh tấn lực, tuệ lực. Có năm Như Lai lực này của Như Lai, này các Tỷ-kheo. Thành tựu các sức mạnh ấy, Như Lai tự xem đã đạt được vị trí Ngưu vương, rống tiếng rống con sư tử giữa các hội chúng, làm vận chuyển bánh xe Phạm thiên.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

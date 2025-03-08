@@ -36,8 +36,3 @@ Trong các vị đệ tử... năng khởi biện tài, tối thắng là Ràdha
 
 Trong các vị đệ tử Tỷ-kheo của Ta mang thô y, này các Tỷ-kheo, tối thắng là Mogharàjà.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

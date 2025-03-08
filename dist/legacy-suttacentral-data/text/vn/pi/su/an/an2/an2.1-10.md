@@ -36,8 +36,3 @@ Hai pháp trắng này, này các Tỷ-kheo, che chở cho thế giới. Thế n
 
 Có hai thời kỳ an cư mùa mưa, này các Tỷ-kheo. Thế nào là hai? Tiền an cư và hậu an cư. Những pháp này, này các Tỷ-kheo, là hai thời kỳ an cư mùa mưa.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

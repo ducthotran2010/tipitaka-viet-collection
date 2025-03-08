@@ -10,8 +10,3 @@ VII. Phẩm Tưởng
 
 Thành tựu năm pháp này, này các Tỷ-kheo, Tỷ-kheo đủ khả năng, với đời sống của mình, làm gương cho các vị đồng Phạm hạnh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

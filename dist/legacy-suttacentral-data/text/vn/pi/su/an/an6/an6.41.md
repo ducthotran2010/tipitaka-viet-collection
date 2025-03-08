@@ -16,8 +16,3 @@ Một thời, Tôn giả Sàriputta trú ở Ràjagaha, tại núi Gijjhakùta. 
 
 Nếu muốn, này các Hiền giả, Tỷ-kheo có thần thông, đạt được tâm tự tại, có thể quán đống gỗ lớn ấy thành nước... thành lửa... thành gió... thành tịnh... thành bất tịnh. Vì cớ sao? Vì rằng có bất tịnh trong đống gỗ lớn ấy, y tựa theo đó, Tỷ-kheo có thần thông, đạt được tâm tự tại, có thể quán đống gỗ ấy thành bất tịnh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

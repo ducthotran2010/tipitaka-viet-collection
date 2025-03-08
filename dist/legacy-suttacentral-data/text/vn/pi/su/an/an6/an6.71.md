@@ -14,8 +14,3 @@ Thành tựu sáu pháp này, các Tỷ-kheo, Tỷ-kheo như thật rõ biết: 
 
 Thành tựu sáu pháp này, này các Tỷ-kheo, Tỷ-kheo có thể đạt được địa vị chứng nhân, quả chứng này hay quả chứng khác, dầu thuộc loại xứ nào.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

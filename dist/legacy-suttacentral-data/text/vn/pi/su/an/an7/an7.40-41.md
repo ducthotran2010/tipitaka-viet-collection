@@ -16,8 +16,3 @@ Thành tựu bảy pháp, này các Tỷ kheo, Sariputta điều phục tâm và
 
 Thành tựu bảy pháp này, này các Tỷ-kheo, Sàriputta điều phục tâm và Sàriputta không để mình bị tâm điều phục.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

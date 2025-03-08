@@ -38,8 +38,3 @@ Và như thế nào, này các Tỷ-kheo, do duyên các pháp làm chỗ ý x�
 
 Có người rõ biết, này các Tỷ-kheo, quả dị thục trong tương lai của các pháp làm chỗ y xứ cho dục tham trong hiện tại. Sau khi biết rõ quả dị thục trong tương lai, người ấy tránh né quả dị thục ấy. Sau khi tránh né quả dị thục ấy, sau khi tâm người ấy không còn tham đắm; với trí tuệ, người ấy thể nhập và thấy. Như vậy, này các Tỷ-kheo, do duyên các pháp làm chỗ ý xứ cho dục tham trong hiện tại, ước muốn không sanh khởi.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

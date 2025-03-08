@@ -14,8 +14,3 @@ Tăng thượng giới học, tăng thượng định học, tăng thượng tu�
 
 Này các Tỷ-kheo, khi nào Tỷ-kheo đã đoạn tận ba hữu này, đã học tập trong ba học pháp này, Tỷ-kheo ấy, này các Tỷ-kheo, được gọi là Tỷ-kheo đã chặt đứt khát ái, đã giải tỏa kiết sử do chơn chánh thực hiện quán kiêu mạn, đã đoạn tận khổ đau.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

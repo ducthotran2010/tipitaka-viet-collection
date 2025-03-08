@@ -10,8 +10,3 @@ X. Phẩm Kakudha
 
 Thành tựu năm pháp này, này các Tỷ-kheo, vị Tỷ-kheo tu tập Niệm hơi thở vô hơi thở ra, không bao lâu thể nhập vào bất động.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

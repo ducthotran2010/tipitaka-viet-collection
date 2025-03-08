@@ -20,8 +20,3 @@ Lại nữa, này các Tỷ-kheo, Thánh đệ tử tùy niệm Thiên: “Có b
 
 Này các Tỷ-kheo, đây là sau Tùy niệm xứ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

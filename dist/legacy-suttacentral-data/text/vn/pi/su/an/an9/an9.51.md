@@ -10,8 +10,3 @@ V. Phẩm Pancala
 
 Lại nữa, này Hiền giả, Tỷ-kheo sau khi vượt qua Phi tưởng phi phi tưởng xứ một cách hoàn toàn, chứng đạt và an trú Diệt thọ tưởng định, sau khi thấy với trí tuệ, các lậu hoặc được tận. Cho đến như vậy, này Hiền giả, là thiết thực hiện tại Niết-bàn được Thế Tôn nói đến với pháp môn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

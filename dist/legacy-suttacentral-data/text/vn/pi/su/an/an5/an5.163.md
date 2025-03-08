@@ -14,8 +14,3 @@ Các vị Tỷ-kheo ấy vâng đáp Tôn giả Sàriputta. Tôn giả Sàriputt
 
 _... (Giống như kinh số 65 ở trước)_
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

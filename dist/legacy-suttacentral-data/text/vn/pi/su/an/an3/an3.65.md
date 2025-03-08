@@ -156,8 +156,3 @@ Vị Thánh đệ tử ấy, bạch Thế Tôn, với tâm không oán như vậ
 
 Thật vi diệu thay, bạch Thế Tôn! Thật vi diệu thay, bạch Thế Tôn! Bạch Thế Tôn, như người dựng đứng những gì bị quăng ngã xuống, hay trình bày cái gì bị che kín, hay chỉ đường cho người bị lạc hướng, hay cầm đèn sáng vào bóng tối để những ai có mắt có thể thấy sắc. Cũng vậy, Chánh pháp đã được Tôn giả Gotama dùng nhiều phương tiện thuyết giảng. Chúng con nay xin quy y Thế Tôn, quy y Pháp, quy y chúng Tỷ-kheo. Mong Thế Tôn nhận chúng con làm đệ tử cư sĩ, từ nay cho đến mạng chung, chúng con xin trọn đời quy ngưỡng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

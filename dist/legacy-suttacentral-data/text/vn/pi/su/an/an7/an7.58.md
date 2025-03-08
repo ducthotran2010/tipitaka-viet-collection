@@ -14,8 +14,3 @@ Này các Tỷ-kheo, pháp được Như Lai khéo thuyết. Ở đây, chắc c
 
 Này các Tỷ-kheo, có bốn điều này, Như Lai không phải che đậy, và đối với ba điều này, Ngài không có phạm lỗi.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

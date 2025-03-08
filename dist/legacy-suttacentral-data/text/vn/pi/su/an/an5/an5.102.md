@@ -10,8 +10,3 @@ XI. Phẩm An Ổn Trú
 
 Thành tựu năm pháp này, này các Tỷ-kheo, một Tỷ-kheo bị mất tin tưởng và bị nghi ngờ là ác Tỷ-kheo, dầu cho vị ấy đã đạt được bất động.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

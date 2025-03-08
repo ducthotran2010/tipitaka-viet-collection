@@ -8,8 +8,3 @@ III. Phẩm Năm Phần
 
 Với năm pháp gì? Ở đây, này các Tỷ-kheo, chánh tri kiến được giới pháp nhiếp thọ, được văn nhiếp thọ, được luận nghị nhiếp thọ, được chỉ nhiếp thọ, được quán nhiếp thọ. Do được năm chi phần này nhiếp thọ, này các Tỷ-kheo, chánh tri kiến được thành tựu với tâm giải thoát quả và các lợi ích của tâm giải thoát quả, với tâm giải thoát quả, với tuệ giải thoát quả và các lợi ích của tuệ giải thoát quả.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -26,8 +26,3 @@ Lại nữa, này các Tỷ-kheo, Thánh đệ tử đoạn tận đắm say rư
 
 Này các Tỷ-kheo, có tám nguồn nước công đức này, là nguồn nước thiện, món ăn cho an lạc làm nhơn sanh Thiên, quả dị thục an lạc, đưa đến cõi trời, dẫn đến khả ái, khả hỷ, khả ý, hạnh phúc, an lạc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

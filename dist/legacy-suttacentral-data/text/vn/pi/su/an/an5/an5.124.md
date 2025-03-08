@@ -16,8 +16,3 @@ Có năng lực pha thuốc; biết cái gì thích đáng, cái gì không thí
 
 Thành tựu năm pháp này, này các Tỷ-kheo, một người săn sóc bệnh có đủ khả năng để săn sóc người bệnh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

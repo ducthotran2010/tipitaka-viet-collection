@@ -37,8 +37,3 @@ Rồi Phạm thiên Sahampati đắp thượng y vào môt bên vai, với đầ
 
 Này các Tỷ-kheo, Phạm Thiên Sahampati nói như vậy; nói vậy xong, đảnh lễ ta, thân hữu hướng về bên Ta rồi biến mất tại chỗ. Rồi này các Tỷ-kheo, sau khi biết được thỉnh nguyện của Phạm thiên, và thích ứng với Ta, Ta sống cung kính, tôn trọng và y chỉ pháp ấy và Ta đã tự Chánh Ðẳng Giác. Và này các Tỷ-kheo, vì rằng chúng Tăng thành tựu sự cao cả nên Ta tôn trọng đặc biệt chúng Tăng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

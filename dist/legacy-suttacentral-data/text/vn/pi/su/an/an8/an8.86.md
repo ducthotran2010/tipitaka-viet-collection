@@ -34,8 +34,3 @@ Này Nàgita, khi nào Ta thấy các Tỷ-kheo, chơi giỡn lấy ngón tay đ
 
 Khi nào, này Nàgita, Ta đi trên đường, không thấy một ai ở phía trước hay ở phía sau, này Nàgita, khi ấy, Ta cảm thấy sảng khoái cho đến vấn đề đại, tiểu tiện.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

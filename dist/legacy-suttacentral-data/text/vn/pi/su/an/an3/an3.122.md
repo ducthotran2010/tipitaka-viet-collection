@@ -19,8 +19,3 @@ Này các Tỷ-kheo, các pháp này là ba toàn hảo.
 > Toàn hảo, được toàn hảo  
 > Ðược gọi đoạn tất cả.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

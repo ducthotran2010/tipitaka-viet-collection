@@ -105,8 +105,3 @@ Nay chính người ấy, này các Tỷ-kheo, nghèo khổ, không có sở h�
 > Trạng thái không nợ này,  
 > Ðược xem là tối thượng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

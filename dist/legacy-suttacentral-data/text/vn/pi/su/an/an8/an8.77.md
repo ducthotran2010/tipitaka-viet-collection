@@ -30,8 +30,3 @@ Các Tỷ-kheo ấy vâng đáp Tôn giả Sàriputta. Tôn giả Sàriputta nó
 
 Này các Hiền giả, có tám hạng người này sống có mặt, hiện hữu ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

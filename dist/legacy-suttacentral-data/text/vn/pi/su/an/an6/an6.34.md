@@ -32,8 +32,3 @@ Tôn giả Mahà Moggalàna ngồi xuống trên chỗ đã soạn sẵn. Phạm
 
 Rồi Tôn giả Mahà Moggalàna sau khi hoan hỷ tín thọ lời nói của Phạm thiên Tissa, như một người lực sĩ duỗi cánh tay đang co lại, hay co lại cánh tay đang duỗi ra, cũng vậy, biến mất tại Phạm thiên giới và hiện ra tại Jetavana.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

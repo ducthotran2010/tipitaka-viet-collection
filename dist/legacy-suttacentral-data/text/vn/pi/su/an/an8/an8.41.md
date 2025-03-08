@@ -30,8 +30,3 @@ Các Tỷ-kheo ấy vâng đáp Thế Tôn. Thế Tôn nói như sau:
 
 Này các Tỷ-kheo, ngày trai giới thành tựu tám chi phần được thực hành như vậy, thời có được quả lớn, có lợi ích lớn, có rực rỡ lớn, có biến mãn lớn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

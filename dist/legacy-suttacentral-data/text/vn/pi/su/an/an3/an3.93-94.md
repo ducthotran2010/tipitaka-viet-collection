@@ -22,8 +22,3 @@ Ví như, này các Tỷ-kheo, ruộng lúa của người nông phu gia chủ �
 
 Ví như, này các Tỷ-kheo, vào mùa thu, khi bầu trời quang đãng, không có mây và mặt trời mọc lên giữa bầu trời, phá sạch hắc ám khắp cả hư không, và chói sáng, bừng sáng, rực sáng; cũng vậy, này các Tỷ-kheo, với vị Thánh đệ tử; pháp nhãn ly trần ly cấu khởi lên; và do tri kiến này khởi lên, này các Tỷ-kheo, ba kiết sử được đoạn tận, thân kiến, nghi, giới cấm thủ. Lại nữa, vị ấy được thoát khỏi hai pháp tham và sân. Vị ấy ly dục, ly pháp bất thiện, chứng đạt và an trú sơ Thiền, một trạng thái hỷ lạc do ly dục sanh, có tầm có tứ. Trong thời gian ấy, này các Tỷ-kheo, vị Thánh đệ tử nếu có mạng chung, sẽ không có kiết sử nào, do kiết sử ấy, vị Thánh đệ tử phải đi đến thế giới này nữa.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

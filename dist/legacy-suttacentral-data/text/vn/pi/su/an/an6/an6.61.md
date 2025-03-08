@@ -66,8 +66,3 @@ Các vị Tỷ-kheo trưởng lão vâng đáp Thế Tôn. Thế Tôn nói như 
 
 —Xúc, này các Tỷ-kheo, là cực đoan. Xúc tập khởi là cực đoan thứ hai. Xúc diệt là chặng giữa. Ái là người dệt vải; vì rằng ái dệt nên khiến cho vị ấy phải sanh ở hữu này. Cho đến như vậy, này các Tỷ-kheo, Tỷ-kheo thắng tri được điều có thể thắng tri, liễu tri được điều có thể liễu tri. Do thắng tri được điều có thể thắng tri, liễu tri được điều có thể liễu tri, ngay trong hiện tại, vị ấy có thể chấm dứt khổ đau.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

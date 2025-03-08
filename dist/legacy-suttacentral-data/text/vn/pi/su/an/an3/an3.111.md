@@ -18,8 +18,3 @@ Vô tham là nhân duyên khiến các nghiệp tập khởi, vô sân là nhân
 
 Phàm nghiệp nào do vô tham tác thành, này các Tỷ-kheo, sanh ra từ vô tham, do vô tham làm nhân duyên, do vô tham tập khởi, nghiệp ấy là thiện, nghiệp ấy không có phạm tội, nghiệp ấy có lạc dị thục, nghiệp ấy đưa đến nghiệp đoạn diệt, nghiệp ấy không đưa đến nghiệp tập khởi. Phàm nghiệp nào do vô sân tác thành ... Phàm nghiệp nào do vô si tác thành, này các Tỷ-kheo, sanh ra từ vô si, do vô si làm nhân duyên, do vô si tập khởi, nghiệp ấy là thiện, nghiệp ấy không có phạm tội, nghiệp ấy có lạc dị thục, nghiệp ấy không đưa đến nghiệp tập khởi, nghiệp ấy đưa đến nghiệp đoạn diệt. Ba pháp này, này các Tỷ-kheo, là ba nhân duyên khiến các nghiệp tập khởi.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

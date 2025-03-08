@@ -32,8 +32,3 @@ Mahà Kaccàna _(lặp lại kinh 27 ở trên)._
 
 —Thưa chư Hiền, chính tôi tự thân nghe từ Thế Tôn, tự thân lãnh thọ như sau: Có sáu thời này, Tỷ-kheo cần đi đến yết kiến Tỷ-kheo đã được tu tập về ý.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

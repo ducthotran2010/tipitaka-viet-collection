@@ -8,8 +8,3 @@ Một thời, Thế Tôn trú ở Sàvavatthì, tại Jetanava, khu vườn ông
 
 ... _(Thế Tôn nói lại kinh 42, kể cả bài kệ, với những thay đổi cần thiết)_ ...
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

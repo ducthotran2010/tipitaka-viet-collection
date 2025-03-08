@@ -10,8 +10,3 @@ Trong tất cả thế giới, tôi sẽ không dự phần vào trong ấy; cá
 
 Thấy được sáu lợi ích này, này các Tỷ-kheo, thật là vừa đủ để Tỷ-kheo làm cho an trú tưởng vô ngã không có hạn chế trong tất cả hành.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

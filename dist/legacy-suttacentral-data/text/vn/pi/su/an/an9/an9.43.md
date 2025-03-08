@@ -14,8 +14,3 @@ V. Phẩm Pancala
 
 —Lại nữa, này các Hiền giả, Tỷ-kheo, sau khi vượt qua Phi tưởng phi phi tưởng xứ một cách hoàn toàn, chứng đạt và an trú Diệt thọ tưởng định. Như thế nào, như thế nào, sau khi cảm xúc với thân, vị ấy như vậy, như vậy an trú xứ ấy. Cho đến như vậy, này Hiền giả, thân chứng được Thế Tôn nói đến với pháp môn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -12,8 +12,3 @@ Thân kiến, nghi, giới cấm thủ, tham đưa đến đọa xứ, sân đư
 
 Thân kiến, nghi, giới cấm thủ, tham đưa đến đọa xứ, sân đưa đến đọa xứ, si đưa đến đọa xứ. Ðoạn tận sáu pháp này, này các Tỷ-kheo, có thể chứng tri kiến đầy đủ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

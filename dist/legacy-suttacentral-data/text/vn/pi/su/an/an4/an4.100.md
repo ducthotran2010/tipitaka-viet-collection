@@ -22,8 +22,3 @@ Này Potaliya, có bốn hạng người này có mặt, hiện hữu ở đời
 
 —Thưa Tôn giả Gotama, có bốn hạng người... hiện hữu ở đời. Thế nào là bốn?... Thưa Tôn giả Gotama, có bốn hạng người này có mặt, hiện hữu ở đời. Trong bốn hạng người này, thưa Tôn giả Gotama, hạng người nói lời không tán thán đối với hạng người không đáng tán thán... nói lời tán thán đối với hạng người đáng được tán thán, đúng sự kiện, đúng sự thật, đúng thời; hạng người này, tôi chấp nhận là vi diệu hơn, thù thắng hơn bốn hạng người trên. Vì cớ sao? Thưa Tôn giả Gotama, thật là vi diệu tức là tại đây, tại đây rõ biết đúng thời. Thật vi diệu thay, thưa Tôn giả Gotama! Thật hy hữu thay, thưa Tôn giả Gotama! Thưa Tôn giả Gotama, như người dựng đứng lại những gì bị quăng ngã xuống... để cho người có mắt có thể thấy sắc. Cũng vậy, pháp được Tôn giả Gotama tuyên thuyết với nhiều pháp môn. Con nay xin quy y Tôn giả Gotama... từ nay cho đến trọn đời, con xin quy ngưỡng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

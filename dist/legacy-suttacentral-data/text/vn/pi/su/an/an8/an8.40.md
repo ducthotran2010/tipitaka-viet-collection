@@ -20,8 +20,3 @@ Này các Tỷ-kheo, nói lời phù phiếm được thực hiện, được tu
 
 Này các Tỷ-kheo, uống men rượu, rượu nấu, được thực hiện, được tu tập, được làm cho sung mãn, đưa đến địa ngục, đưa đến loại bàng sanh, đưa đến cõi ngạ quỷ. Quả dị thục hết sức nhẹ của uống rượu mem, rượu nấu là được làm người với tâm điên loạn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

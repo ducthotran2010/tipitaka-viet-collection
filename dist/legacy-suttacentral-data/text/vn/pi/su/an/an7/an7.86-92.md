@@ -10,8 +10,3 @@ Chận đứng kiến có thân, chặn đứng nghi, chặn đứng giới cấ
 
 Do chặn đứng bảy pháp này, này các Tỷ-kheo, thành vị A-la-hán.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

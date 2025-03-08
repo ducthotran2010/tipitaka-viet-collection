@@ -10,8 +10,3 @@ Người đầy đủ tri kiến không thể đoạn mạng sống của mẹ; 
 
 Này các Tỷ-kheo, có sáu trường hợp này không thể xảy ra.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

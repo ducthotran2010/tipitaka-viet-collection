@@ -40,8 +40,3 @@ Tôn giả Savittha và Tôn giả Mahàkotthita vâng đáp Tôn giả Sàriput
 
 Ở đây, này Sàriputta, thật không dễ gì để trả lời một chiều rằng hạng người này là hy hữu hơn và thù diệu hơn trong ba hạng người kia.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

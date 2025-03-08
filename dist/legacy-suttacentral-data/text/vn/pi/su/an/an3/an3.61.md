@@ -62,8 +62,3 @@ Do vô minh diệt không có tàn dư, nên các hành diệt. Do hành diệt,
 
 Bốn Thánh đế này, này các Tỷ-kheo, là pháp Ta thuyết giảng, không bị chỉ trích, không có uế nhiễm, không có tội lỗi, không bị các Sa-môn, các Bà-la-môn có trí quở trách. Ðiều đã được nói đến, chính do duyên này được nói đến.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -18,8 +18,3 @@ Lại nữa, này các Tỷ-kheo, khi loài Người trở thành phi pháp, nà
 
 Này các Tỷ-kheo, có năm chướng ngại cho mưa này, các người đoán tướng không biết được, ở đây mắt của những người đoán tướng không thể kham nhẫn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

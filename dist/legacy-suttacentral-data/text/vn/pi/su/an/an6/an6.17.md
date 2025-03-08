@@ -32,8 +32,3 @@ Các Thầy nghĩ thế nào, này các Tỷ-kheo, các Thầy có hay có nghe 
 
 Với căn môn được phòng hộ, ăn uống có tiết độ, chú tâm cảnh giác, quán các thiện pháp, đầu đêm cuối đêm sống chuyên tâm tu tập các pháp giác chi, do đoạn tận các lậu hoặc, có thể tự mình với thắng trí chứng ngộ, chứng đạt và an trú tâm giải thoát, tuệ giải thoát. Như vậy, này các Tỷ-kheo, các Thầy cần phải học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

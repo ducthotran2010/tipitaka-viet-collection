@@ -28,8 +28,3 @@ Này các Tỷ-kheo, do quán thấy sợ hãi thứ năm này về tương lai,
 
 Này các Tỷ-kheo, do quán thấy năm sợ hãi về tương lai này, thật là vừa đủ để Tỷ-kheo sống ở rừng không phóng dật, nhiệt tâm, tinh cần, để chứng đạt những gì chưa chứng đạt, chứng đắc những gì chưa chứng đắc, chứng ngộ những gì chưa chứng ngộ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

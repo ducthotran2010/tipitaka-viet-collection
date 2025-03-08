@@ -64,8 +64,3 @@ Ví như, con bò cái con, này Hiền giả Sarabha, khi chuồng bò trống 
 
 Như vậy, các du sĩ ấy bao vây du sĩ Sarabha, công kích du sĩ Sarabha với những dòng nước nhiếc mắng như vậy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

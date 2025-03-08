@@ -28,8 +28,3 @@ Và này các Tỷ-kheo, thế nào là Tỷ-kheo xây dựng được cơ bản
 
 Thành tựu với ba pháp này, này các Tỷ-kheo, Tỷ-kheo không bao lâu, đạt đến sự lớn mạnh và rộng lớn về các thiện pháp.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

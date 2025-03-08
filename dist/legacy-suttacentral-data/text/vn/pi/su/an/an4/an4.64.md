@@ -13,8 +13,3 @@ Thành tựu với bốn pháp này, này các Tỷ-kheo, như vậy tương x�
 > Và đi đến vợ người,  
 > Bậc trí không tán thán.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

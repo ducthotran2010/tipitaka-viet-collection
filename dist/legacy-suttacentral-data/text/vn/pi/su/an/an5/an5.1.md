@@ -20,8 +20,3 @@ Do vậy, này các Tỷ-kheo, cần phải học tập như sau:
 
 “Tôi sẽ thành tựu tín lực, được gọi là hữu học lực. Tôi sẽ thành tựu tàm lực, được gọi là hữu học lực. Tôi sẽ thành tựu quý lực, được gọi là hữu học lực. Tôi sẽ thành tựu tinh tấn lực, được gọi là hữu học lực. Tôi sẽ thành tựu tuệ lực, được gọi là hữu học lực”. Như vậy, này các Tỷ-kheo, các Thầy cần phải học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

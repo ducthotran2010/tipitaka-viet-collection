@@ -66,8 +66,3 @@ Tu tập Tín căn câu hữu với Xả ... Tu tập Tuệ lực câu hữu v�
 
 Nếu tu tập Tín căn ... nếu tu tập Tấn căn ... nếu tu tập Niệm căn ... nếu tu tập Ðịnh căn ... nếu tu tập Tuệ căn ... nếu tu tập Tín lực ... nếu tu tập Tấn lực ... nếu tu tập Niệm lực ... nếu tu tập Ðịnh lực ... nếu tu tập Tuệ lực ... , vị này, này các Tỷ-kheo, được gọi là một Tỷ-kheo trú Thiền không phải trống không, đã làm theo lời dạy bậc Ðạo sư, là vị chịu nghe lời giáo giới, ăn đồ ăn quốc độ không phải uổng phí, còn nói gì vị ấy làm cho sung mãn pháp ấy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

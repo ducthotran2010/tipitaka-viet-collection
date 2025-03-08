@@ -16,8 +16,3 @@ Nếu Tỷ-kheo thành tựu sáu pháp, này các Tỷ-kheo, thời bất luậ
 
 Nếu Tỷ-kheo thành tựu sáu pháp này, này các Tỷ-kheo, thời bất cứ đêm hay ngày, chờ đợi là sự tăng trưởng trong các thiện pháp, không có thối đọa.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

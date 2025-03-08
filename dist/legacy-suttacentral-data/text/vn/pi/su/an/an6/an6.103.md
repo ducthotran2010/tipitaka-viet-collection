@@ -10,8 +10,3 @@ Trong tất cả hành, tưởng Niết-bàn sẽ được an trú trong tôi, v
 
 Thấy được sáu lợi ích này, này các Tỷ-kheo, thật là vừa đủ để Tỷ-kheo làm cho an trú tưởng khổ không có hạn chế trong tất cả hành.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

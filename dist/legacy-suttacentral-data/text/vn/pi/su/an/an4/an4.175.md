@@ -26,8 +26,3 @@ Rồi Tôn giả Upavàna đi đến Tôn giả Sàriputta, sau khi đến, nói
 
 —Này Hiền giả, nếu có người chấm dứt (đau khổ) nhờ minh, thời người ấy vẫn là người chấm dứt (đau khổ) với chấp thủ. Này Hiền giả, nếu có người chấm dứt (đau khổ) nhờ hạnh, thời người ấy vẫn là người chấm dứt (đau khổ) với chấp thủ. Này Hiền giả, nếu có người chấm dứt (đau khổ) nhờ minh và hạnh, thời người ấy vẫn là người chấm dứt (đau khổ) với chấp thủ. Này Hiền giả, nếu có người chấm dứt (đau khổ) ngoài minh và hạnh, thời một người phàm phu có thể là người chấm dứt (đau khổ). Thưa Hiền giả, người phàm phu không có minh và hạnh nên không như thật thấy và biết, nhưng nếu có minh và hạnh đầy đủ như thật thấy và biết, là người chấm dứt (đau khổ).
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

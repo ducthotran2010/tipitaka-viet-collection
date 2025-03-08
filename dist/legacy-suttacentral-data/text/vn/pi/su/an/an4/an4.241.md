@@ -24,8 +24,3 @@ Và này các Tỷ-kheo, thế nào là Sa-môn thứ tư?
 
 Chỉ ở đây, này các Tỷ-kheo, có Sa-môn thứ nhất, ở đây có Sa-môn thứ hai, ở đây có Sa-môn thứ ba, ở đây có Sa-môn thứ tư, còn ngoại đạo khác không có Sa-môn. Như vậy, này các Tỷ kheo là chơn chánh rống tiếng rống con sư tử này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

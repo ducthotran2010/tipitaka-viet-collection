@@ -42,8 +42,3 @@ Trong cuộc tranh tụng nào, này các Tỷ-kheo, cả hai phía có lời qu
 
 Và này các Tỷ-kheo, trong cuộc tranh tụng nào, này các Tỷ-kheo, cả hai phía có lời qua tiếng lại, có những quan điểm ngoan cố, với tâm hiềm hận, ưu não, uất ức, nhưng nội tâm được an tịnh, thời sự tranh tụng ấy, này các Tỷ-kheo, được chờ đợi rằng sẽ không kéo dài, không có gay cấn, không có thô bạo, và các Tỷ-kheo sẽ sống an lạc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

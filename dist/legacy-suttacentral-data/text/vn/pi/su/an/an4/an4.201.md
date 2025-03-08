@@ -26,8 +26,3 @@ Và này các Tỷ-kheo, thế nào là bậc Chân nhân còn hơn cả bậc C
 
 Ở đây, này các Tỷ-kheo, có người tự mình từ bỏ sát sanh và khích lệ người khác từ bỏ sát sanh; tự mình từ bỏ lấy của không cho và khích lệ người khác từ bỏ lấy của không cho; tự mình từ bỏ tà hạnh trong các dục và khích lệ người từ bỏ khác tà hạnh trong các dục; tự mình từ bỏ nói láo và khích lệ người khác từ bỏ nói láo, tự mình từ bỏ đắm say rượu men, rượu nấu và khích lệ người khác từ bỏ đắm say rượu men, rượu nấu. Người này, này các Tỷ-kheo, được gọi là bậc Chân nhân còn hơn cả bậc Chân nhân.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

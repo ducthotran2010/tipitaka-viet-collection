@@ -26,8 +26,3 @@ Và này các Tỷ-kheo, thế nào là Tỷ-kheo sống đạt được địa 
 
 Ở đây, này các Tỷ-kheo, Tỷ-kheo như thật quán tri: “Ðây là khổ” ... “Ðây là khổ tập” ... “Ðây là Khổ diệt” ... như thật quán tri: “Ðây là con Ðường đưa đến khổ diệt”. Như vậy, này các Tỷ-kheo, là Tỷ-kheo đạt được địa vị bậc Thánh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

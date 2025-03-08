@@ -16,8 +16,3 @@ Trong bốn đạo hành này, này Hiền giả, đạo hành nào do đi đế
 
 Này Hiền giả, trong bốn đạo hành này, đạo hành này lạc, thắng trí nhanh. Do đi đến đạo hành này, tâm của tôi được giải thoát khỏi các lậu hoặc, không có chấp thủ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -10,8 +10,3 @@ Lớn mạnh nhờ Thánh giới, lớn mạnh nhờ Thánh định, lớn mạn
 
 Nhờ y tựa bậc chân nhân, này các Tỷ-kheo, chờ đợi là bốn lợi ích này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

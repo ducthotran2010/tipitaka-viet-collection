@@ -32,8 +32,3 @@ Và này các Tỷ-kheo, thế nào gọi Tỷ-kheo là bậc Thánh đã hạ c
 
 Ở đây, này các Tỷ-kheo, Tỷ-kheo đã đoạn trừ ngã mạn, đã cắt đứt tận gốc rễ, đã làm cho như thân cây tàla, đã làm cho không thể hiện hữu, không thể sanh khởi trong tương lai. Này các Tỷ-kheo, như vậy gọi Tỷ-kheo là bậc Thánh đã hạ cây cờ xuống, đã đặt gánh nặng xuống, không còn gì hệ lụy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

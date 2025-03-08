@@ -18,8 +18,3 @@ Rồi này các Tỷ-kheo, Ta suy nghĩ như sau: “Nếu Ta nhận thức đư
 
 Này các Tỷ-kheo, cho đến khi nào tri kiến gồm có tám diễn tiến và thuộc thượng giới Thiên này không được khéo thanh tịnh nơi Ta, thời Ta không có xác chứng trong thế giới chư Thiên với Ma giới, Phạm Thiên giới, với quần chúng Sa-môn, Bà-la-môn, chư Thiên và loài Người, rằng Ta đã chứng ngộ Vô Thượng Chánh Ðẳng Giác. Này các Tỷ-kheo, cho đến khi nào tri kiến gồm có tám diễn tiến và thuộc thượng giới Thiên này được khéo thanh tịnh nơi ta, thời Ta có xác chứng trong thế giới chư Thiên với Ma giới, Phạm Thiên giới, với quần chúng Sa-môn, Bà-la-môn, chư Thiên và loài Người, rằng Ta đã chứng ngộ Vô Thượng Chánh Ðẳng Giác. Tri kiến khởi lên nơi Ta: “Bất động là tâm giải thoát của Ta. Ðây là đời sống cuối cùng, không còn tái sanh nữa”.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

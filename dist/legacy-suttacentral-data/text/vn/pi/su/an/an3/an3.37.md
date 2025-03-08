@@ -44,8 +44,3 @@ Bài kệ ấy, này các Tỷ-kheo, đã bị Thiên chủ Sakka hát sai, khô
 
 Vì cớ sao? Ta nói rằng, vị Tỷ-kheo ấy, này các Tỷ-kheo, đã thoát khỏi sanh, già, chết, sầu, bi, khổ, ưu, não, giải thoát khỏi khổ đau.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

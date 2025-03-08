@@ -18,8 +18,3 @@ Một thời Thế Tôn trú ở Vesàli, tại Ðại Lâm, chỗ giảng đư�
 
 —Tỷ-kheo ấy, sau một thời gian học tập tăng thượng giới, học tập tăng thượng định, học tập tăng thượng tuệ; do học tập tăng thượng giới, học tập tăng thượng định, học tập tăng thượng tuệ, tham được đoạn tận, sân được đoạn tận, si được đoạn tận. Vị ấy, do đoạn tận tham, đoạn tận sân, đoạn tận si; nên không làm điều bất thiện, không theo điều ác.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

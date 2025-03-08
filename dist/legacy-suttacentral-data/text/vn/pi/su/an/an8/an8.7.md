@@ -18,8 +18,3 @@ Này các Tỷ-kheo, do sống không chinh phục, lợi dưỡng được kh�
 
 “Ta sẽ sống chinh phục lợi dưỡng được khởi lên ... không lợi dưỡng được khởi lên ... danh vọng được khởi lên ... không danh vọng được khởi lên ... cung kính được khởi lên ... không cung kính được khởi lên ... ác dục được khởi lên ... ác bằng hữu được khởi lên”. Như vậy, này các Tỷ-kheo, các Thầy cần phải học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

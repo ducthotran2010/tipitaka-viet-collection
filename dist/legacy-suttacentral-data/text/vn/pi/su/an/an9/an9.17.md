@@ -16,8 +16,3 @@ Họ vui vẻ đứng dậy; họ vui vẻ đảnh lễ; họ vui vẻ mời ng�
 
 Này các Tỷ-kheo, gia đình nào thành tựu chín chi phần này, nếu chưa đến thời nên đến, nếu đã đến thời nên ngồi xuống.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

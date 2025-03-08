@@ -14,8 +14,3 @@ Này các Tỷ-kheo, lại có nhiều chư Thiên khác đến chỗ Ta và th�
 
 Này các Tỷ-kheo, đây là những gốc cây, đây là những ngôi nhà trống. Này các Tỷ-kheo, hãy Thiền định, chớ có phóng dật, chớ có hối tiếc về sau, như các Thiên nhân đã được nói đến trước đây.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

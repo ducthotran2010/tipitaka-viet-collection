@@ -40,8 +40,3 @@ Và này các Tỷ-kheo, như thế nào là Tỷ-kheo đâm thủng vật to l�
 
 Ðầy đủ bốn chi phần này, này các Tỷ-kheo, Tỷ-kheo xứng đáng được cung kính, xứng đáng được tôn trọng, xứng đáng được cúng dường, xứng đáng được chắp tay, là ruộng phước vô thượng ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

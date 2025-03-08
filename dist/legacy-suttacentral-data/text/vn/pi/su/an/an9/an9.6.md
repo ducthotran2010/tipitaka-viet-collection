@@ -44,8 +44,3 @@ Quốc độ, này chư Hiền, cần phải được hiểu biết theo hai ph�
 
 Này chư Hiền, quốc độ cần phải được hiểu biết theo hai phương diện: nên được tìm đến hay không nên được tìm đến, được nói đến như vậy, do duyên này được nói đến.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

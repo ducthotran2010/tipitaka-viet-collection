@@ -10,8 +10,3 @@ Do sự có mặt của lòng tin, này các Tỷ-kheo, một thiện nam tử c
 
 Do sự có mặt của ba pháp này, này các Tỷ-kheo, một thiện nam tử có lòng tin tạo ra nhiều phước.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

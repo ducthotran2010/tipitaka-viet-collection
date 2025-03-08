@@ -24,8 +24,3 @@ Và này các Tỷ-kheo, thế nào là người sống trong ánh sáng hướn
 
 Ở đây, này các Tỷ-kheo, có người sanh ra trong gia đình cao quý, trong gia đình Sát-đế-lỵ giàu có, hay trong gia đình Bà-la-môn giàu có, hay trong gia đình gia chủ giàu có, phú hào có tài sản lớn, có của cải lớn, có nhiều vàng và bạc, có nhiều tài sản, vật dụng, có nhiều tiền của, ngũ cốc. Và người ấy đẹp trai, dễ nhìn, dễ thương, với màu da tuyệt đẹp, xinh xắn. Người ấy lại nhận được đồ ăn, đồ uống, vải mặc, xe cộ, vòng hoa, hương liệu, phấn sáp, chỗ nằm, chỗ trú, đèn đuốc. Người ấy, thân làm lành, miệng nói lành, ý nghĩ lành. Do thân làm lành, miệng nói lành, ý nghĩ lành, người ấy khi thân hoại mạng chung được sanh lên cõi lành, cõi trời, cõi đời này. Này các Tỷ-kheo, như vậy là người sống trong ánh sáng hướng đến ánh sáng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

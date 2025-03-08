@@ -42,8 +42,3 @@ Bạch Thế Tôn, sáu kết quả hiện tại của bố thí này được T
 
 —Như vậy là phải, này Sìha! Như vậy là phải, này Sìha! Sìha là người bố thí, là người thí chủ, sau khi thân hoại mạng chung, được sanh lên thiện thú, thiên giới, cõi đời này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

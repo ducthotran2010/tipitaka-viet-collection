@@ -28,8 +28,3 @@ Cũng vậy, này các Tỷ-kheo, có ba hạng người này, có mặt, xuất
 
 Ba hạng người này, này các Tỷ-kheo, có mặt, xuất hiện ở đời được ví dụ với ba hạng người bệnh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

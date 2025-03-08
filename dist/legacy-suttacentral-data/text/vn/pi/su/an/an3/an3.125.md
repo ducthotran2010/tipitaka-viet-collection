@@ -18,8 +18,3 @@ Thật là vừa đủ, này các Tỷ-kheo, để các Thầy bằng lòng. Th�
 
 Thế Tôn thuyết giảng như vậy. Các Tỷ-kheo ấy hoan hỷ lời Thế Tôn giảng. Trong khi lời thuyết giảng này được nói lên, một ngàn thế giới đều rung động.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

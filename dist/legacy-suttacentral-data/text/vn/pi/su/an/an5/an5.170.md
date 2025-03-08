@@ -22,8 +22,3 @@ Tôn giả Bhaddaji vâng đáp Tôn giả Ananda. Tôn giả Ananda nói như s
 
 —Khi người ta nhìn, này Hiền giả, không có gián đoạn, các lậu hoặc được đoạn trừ, như vậy là sự thấy tối thượng. Khi người ta nghe không có gián đoạn, các lậu hoặc được đoạn trừ, như vậy là sự nghe tối thượng. Khi người ta cảm giác lạc thọ không có gián đoạn, các lậu hoặc được đoạn trừ, như vậy là an lạc tối thượng. Khi người ta cảm tưởng không có gián đoạn, các lậu hoặc được đoạn trừ, như vậy là tưởng tối thượng. Khi người ta hiện hữu không có gián đoạn, các lậu hoặc được đoạn trừ, như vậy là hữu tối thượng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

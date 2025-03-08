@@ -32,8 +32,3 @@ Bị si làm cho mê mờ, này Bà-la-môn, bị chinh phục, tâm bị xâm c
 
 Như vậy, này Bà-la-môn, pháp là thiết thực hiện tại, không có thời gian, đến để mà thấy, có khả năng hướng thượng, được người trí tự mình giác hiểu.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

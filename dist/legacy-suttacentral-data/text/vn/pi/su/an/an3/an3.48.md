@@ -31,8 +31,3 @@ Tăng trưởng về lòng tin, tăng trưởng về giới, tăng trưởng v�
 > Trong Thiên giới hỷ lạc  
 > Ước muốn được hoàn hỷ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

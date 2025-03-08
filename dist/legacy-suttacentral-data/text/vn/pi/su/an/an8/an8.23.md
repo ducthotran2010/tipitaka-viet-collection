@@ -34,8 +34,3 @@ Rồi Tỷ-kheo ấy, sau khi nhận đồ ăn khất thực tại trú xứ c�
 
 —Lành thay, lành thay, này Tỷ-kheo! Này Tỷ-kheo, thiện nam tử này là ít dục. Vị ấy không muốn các thiện pháp của mình được người khác biết đến. Do vậy, này Tỷ-kheo, hãy thọ trì rằng, Hatthaka người xứ Alavì, có thành tựu bảy pháp vi diệu chưa từng có này, tức là ít dục.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

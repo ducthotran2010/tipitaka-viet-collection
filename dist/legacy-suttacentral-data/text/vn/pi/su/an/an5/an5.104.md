@@ -14,8 +14,3 @@ Này các Tỷ-kheo, nếu có ai nói một cách chân chánh về vị đem l
 
 Này các Tỷ-kheo, nếu có ai nói một cách chân chánh về vị đem lại an lạc của Sa-môn cho các Sa-môn, thời này các Tỷ-kheo, vị ấy sẽ nói một cách chân chánh về Ta là người đã đem lại an lạc của vị Sa-môn cho các vị Sa-môn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

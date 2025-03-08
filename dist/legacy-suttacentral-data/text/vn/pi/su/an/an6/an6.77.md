@@ -12,8 +12,3 @@ Thất niệm, không tỉnh giác, không phòng hộ các căn, không có th�
 
 Thất niệm, không tỉnh giác, không phòng hộ các căn, tiết độ trong ăn uống, ngụy trá, hư đàm. Ðoạn tận sáu pháp này, này các Tỷ-kheo, có thể chứng ngộ các pháp thượng nhân tri kiến thù thắng xứng đánh bậc Thánh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

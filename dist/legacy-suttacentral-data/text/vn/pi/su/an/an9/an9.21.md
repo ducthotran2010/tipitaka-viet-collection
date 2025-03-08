@@ -20,8 +20,3 @@ Họ là anh hùng, có trú niệm và sống Phạm hạnh ở đời này.
 
 Này các Tỷ-kheo, trong ba phương diện này, loài Người ở cõi Jambudìpa thù thắng hơn loài Người ở cõi Uttarakuruka và chư Thiên ở cõi trời Ba mươi ba.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

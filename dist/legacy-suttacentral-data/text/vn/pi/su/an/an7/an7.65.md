@@ -8,8 +8,3 @@ VII. Ðại Phẩm
 
 Khi tàm quý có mặt, này các Tỷ-kheo, với người đầy đủ tàm quý, chế ngự các căn đi đến đầy đủ. Khi chế ngự các căn có mặt, với người đầy đủ chế ngự các căn, giới đi đến đầy đủ. Khi giới có mặt, với người đầy đủ giới, chánh định đi đến đầy đủ. Khi chánh định có mặt, với người đầy đủ chánh định, tri kiến như thật đi đến đầy đủ. Khi tri kiến như thật có mặt, với người đầy đủ tri kiến như thật, nhàm chán, ly tham đi đến đầy đủ. Khi nhàm chán, ly tham có mặt, với người đầy đủ nhàm chán, ly tham, giải thoát tri kiến đi đến đầy đủ. Ví như, này các Tỷ-kheo, một cây có cành và lá, các mầm non của cây ấy đi đến thành mãn; vỏ trong, giác cây, lõi cây đi đến thành mãn. Cũng vậy, này các Tỷ-kheo, khi tàm quý có mặt, với người đầy đủ tàm quý ... giải thoát tri kiến đi đến đầy đủ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

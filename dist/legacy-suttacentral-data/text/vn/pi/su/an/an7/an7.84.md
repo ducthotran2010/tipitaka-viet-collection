@@ -10,8 +10,3 @@ Luật về sự hiện diện cần phải áp dụng. Luật về ức niệm 
 
 Này các Tỷ-kheo, bảy pháp diệt tránh này đưa đến chấm dứt, làm cho an tịnh các tranh luận tiếp tục khởi lên.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

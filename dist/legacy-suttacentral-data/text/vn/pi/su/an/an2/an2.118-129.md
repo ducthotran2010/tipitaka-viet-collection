@@ -28,8 +28,3 @@ Này các Tỷ-kheo, có hai tội phạm. Thế nào là hai? Tội phạm thô
 
 Này các Tỷ-kheo, có hai tội phạm. Thế nào là hai? Tội phạm có dư tàn và tội phạm không có dư tàn. Hai pháp này, này các Tỷ-kheo, là hai tội phạm.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

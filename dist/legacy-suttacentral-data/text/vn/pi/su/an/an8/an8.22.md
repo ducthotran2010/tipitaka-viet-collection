@@ -30,8 +30,3 @@ Rồi Tỷ-kheo ấy, sau khi nhận đồ ăn khất thực tại trú xứ c�
 
 —Lành thay, lành thay! này Tỷ-kheo, gia chủ Ugga người Hatthigàma nếu có trả lời một cách chơn chánh, có thể trả lời như vậy. Này Tỷ-kheo, gia chủ Ugga người Hatthigàma thành tựu tám pháp vi diệu chưa từng có này. Như Ta đã nói, này Tỷ-kheo, hãy thọ trì rằng gia chủ Ugga, người Hatthigàma, được thành tựu tám pháp vi diệu chưa từng có này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

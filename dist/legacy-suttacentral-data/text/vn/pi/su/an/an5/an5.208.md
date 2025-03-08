@@ -16,8 +16,3 @@ Con mắt không bị ảnh hưởng, miệng không hôi thúi, thần kinh v�
 
 Này các Tỷ-kheo, có năm điều lợi ích nhờ dùng tăm xỉa răng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

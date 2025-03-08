@@ -24,8 +24,3 @@ Tự mình từ bỏ sát sanh, khích lệ người khác từ bỏ sát sanh, 
 
 > ... (Giống như kinh trên, chỉ khác tuần tự các pháp sau này: nói láo, nói hai lưỡi, nói lời độc ác, nói lời phù phiếm, tham, sân, tà kiến )...
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

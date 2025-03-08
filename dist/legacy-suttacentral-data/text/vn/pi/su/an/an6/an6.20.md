@@ -14,8 +14,3 @@ Một thời, Thế Tôn trú ở Nàdika, tại Ginjakàvasatha. Tại đấy, 
 
 Này các Tỷ-kheo, niệm chết, tu tập như vậy, làm cho sung mãn như vậy thời được quả lớn, được lợi ích lớn, thể nhập vào bất tử, cứu cánh là bất tử.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

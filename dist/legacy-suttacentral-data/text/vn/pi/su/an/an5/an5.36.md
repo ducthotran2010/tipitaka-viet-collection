@@ -26,8 +26,3 @@ Bố thí cho người đến, bố thí cho người đi, bố thí cho ngườ
 > Công đức được an lập,  
 > Cho đến trong đời sau.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

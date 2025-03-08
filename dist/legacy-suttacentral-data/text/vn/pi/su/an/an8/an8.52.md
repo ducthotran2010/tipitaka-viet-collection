@@ -14,8 +14,3 @@ Một thời, Thế Tôn trú ở Vesàli, tại Ðại Lâm, ở ngôi nhà có
 
 Thành tựu tám pháp này, này Ananda, vị Tỷ-kheo được chấp nhận là vị giáo giới cho các Tỷ-kheo-ni.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

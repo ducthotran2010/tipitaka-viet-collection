@@ -16,8 +16,3 @@ Ví như, này các Tỷ-kheo, có người mang áo vải đen, xả bối tóc
 
 Này các Tỷ-kheo, có bốn sợ hãi phạm tội này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

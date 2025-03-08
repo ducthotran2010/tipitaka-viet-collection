@@ -56,8 +56,3 @@ Bốn hạng người này, này các Tỷ-kheo, có mặt, hiện hữu ở đ�
 > Chỗ tận cùng thế giới  
 > Bậc đã đến bờ kia.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -26,8 +26,3 @@ Này các Tỷ-kheo, có những loài hữu tình vượt khỏi Vô sở hữu
 
 Này các Tỷ-kheo, đây là chín chỗ cư trú của các loài hữu tình.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

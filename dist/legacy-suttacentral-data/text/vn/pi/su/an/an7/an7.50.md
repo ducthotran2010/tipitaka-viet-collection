@@ -22,8 +22,3 @@ Cho đến khi nào, này Bà-la-môn, Ta còn tiếp tục thấy một hay m�
 
 —Thật vi diệu thay, bạch Thế Tôn!... Mong Tôn giả Gotama nhận con làm đệ tử cư sĩ, từ này cho đến mạng chung, con trọn đời quy ngưỡng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

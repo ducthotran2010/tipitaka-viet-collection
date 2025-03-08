@@ -20,8 +20,3 @@ Này các Tỷ-kheo, nữ cư sĩ có lòng tin, nếu chơn chánh mong cầu, 
 
 Này các Tỷ-kheo, họ là cán cân, là đồ để đo lường các đệ tử nữ cư sĩ của ta, tức là nữ cư sĩ Khujjuttarà và Velukantaki, mẹ của Nandà.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

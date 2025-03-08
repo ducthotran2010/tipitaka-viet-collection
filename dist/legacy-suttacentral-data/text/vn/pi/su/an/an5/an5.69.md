@@ -10,8 +10,3 @@ VII. Phẩm Tưởng
 
 Này các Tỷ-kheo, năm pháp này được tu tập, được làm cho sung mãn, đưa đến nhứt hướng nhàm chán, ly tham, đoạn diệt, an tịnh, thắng trí, giác ngộ, Niết-bàn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

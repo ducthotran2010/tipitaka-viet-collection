@@ -10,8 +10,3 @@ Tự mình có sắc, thấy các sắc, quán tưởng nội sắc là vô sắ
 
 Này các Tỷ-kheo, muốn thắng tri tham ái, tám pháp này cần phải tu tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

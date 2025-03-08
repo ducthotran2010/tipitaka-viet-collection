@@ -12,8 +12,3 @@ Này các Tỷ-kheo, ta đã đi tìm cầu vị ngọt ở đời. Vị ngọt 
 
 Này các Tỷ-kheo, cho đến khi nào ta chưa như thật giác tri vị ngọt ở đời là vị ngọt, nguy hại là nguy hại, xuất ly là xuất ly, cho đến khi ấy, này các Tỷ-kheo, ta không có xác nhận Ta đã giác liễu vô thượng chánh đẳng giác, cùng với thế giới như Thiên giới, Ma giới, Phạm thiên giới, cùng với quần chúng Sa-môn, Bà-la-môn, chư Thiên và loài Người. Này các Tỷ-kheo, cho đến khi nào ta như thật giác tri vị ngọt ở đời là vị ngọt, nguy hại là nguy hại, xuất ly là xuất ly, cho đến khi ấy, này các Tỷ-kheo, ta mới xác nhận Ta đã giác liễu vô thượng Chánh đẳng Chánh giác, cùng với thế giới gồm có Thiên giới, Ma giới, Phạm thiên giới, cùng với quần chúng Sa-môn, Bà-la-môn, chư Thiên và loài Người. Và tri kiến khởi lên nơi ta: “Bất động là tâm giải thoát của ta. Ðây là đời sống cuối cùng. Nay không còn tái sanh nữa”.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -28,8 +28,3 @@ Ta không thấy một pháp nào khác, này các Tỷ-kheo, do pháp ấy, cá
 
 Do vậy, này các Tỷ-kheo, các Thầy cần phải học tập như sau: “Chúng ta sẽ làm tăng trưởng sự tăng trưởng trí tuệ”. Như vậy, này các Tỷ-kheo, các Thầy cần phải học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

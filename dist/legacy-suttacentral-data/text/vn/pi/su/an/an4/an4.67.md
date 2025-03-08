@@ -45,8 +45,3 @@ Gia đình vua các loài rắn Virùpakkha, gia đình vua các loài rắn Er�
 
 “Ðức Phật là vô lượng, Pháp là vô lượng, chúng Tăng là vô lượng, có lượng là các loài bò sát, các loài rắn, các con bò cạp, các con một trăm chân, các loại nhện giăng tơ, các con thằn lằn và các loài chuột. Ta đã làm sự hộ trì. Ta đã làm sự che chở, mong rằng các loài hữu tình sẽ bỏ đi. Ta đảnh lễ đức Thế Tôn. Ta đảnh lễ bảy vị Chánh Ðẳng Giác.”
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

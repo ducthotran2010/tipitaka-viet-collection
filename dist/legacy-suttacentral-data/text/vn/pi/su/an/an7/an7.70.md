@@ -20,8 +20,3 @@ Bạch Thế Tôn, Tỷ-kheo nào cung kính Ðạo Sư, sẽ không cung kính 
 
 Này Sàriputta, chắc chắn Tỷ-kheo nào cung kính Ðạo sư, sẽ không cung kính Pháp, sự kiện này không xảy ra. Này Sàriputta, Tỷ-kheo nào cung kính Ðạo Sư, vị ấy cũng cung kính Pháp... Này Sàriputta, vị Tỷ-kheo nào cung kính Ðạo Sư... cung kính Pháp... cung kính chúng Tăng... cung kính Học pháp... cung kính Thiền định... cung kính không phóng dật, sẽ không cung kính tiếp đón thân tình, sự kiện này không xảy ra. Này Sàriputta, Tỷ-kheo nào cung kính Ðạo Sư, cung kính Pháp, cung kính chúng Tăng, cung kính Học pháp, cung kính Thiền định, cung kính không phóng dật, vị ấy cũng cung kính tiếp đón thân tình. Này Sàriputta, lời nói vắn tắt này của Ta, ý nghĩa cần phải được thấy một cách rộng rãi như vậy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

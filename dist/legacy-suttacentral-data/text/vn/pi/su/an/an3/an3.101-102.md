@@ -48,8 +48,3 @@ Cũng vậy, này các Tỷ-kheo, Tỷ-kheo siêng năng tu tập tăng thượn
 
 Nếu vị ấy muốn: “Ta sẽ chứng đạt nhiều loại thần thông ... _(như 100.5)_ ... chứng tri sáu loại thắng trí ... do đoạn diệt các lậu hoặc ... _(như 100.10)_ ... sau khi chứng ngộ, ta sẽ chứng đạt và an trú”; vị ấy có khả năng, có năng lực đạt đến pháp ấy, dầu thuộc loại xứ nào.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

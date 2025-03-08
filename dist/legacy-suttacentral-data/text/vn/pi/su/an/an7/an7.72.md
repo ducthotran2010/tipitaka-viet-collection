@@ -60,8 +60,3 @@ Này các Tỷ-kheo, với ai thấy được lợi ích của mình, thật là
 
 Thế Tôn thuyết như vậy. Trong khi lời nói này được nói lên, có khoảng sáu mươi vị Tỷ-kheo hộc máu nóng từ miệng, có khoảng sáu mươi Tỷ-kheo từ bỏ học pháp và hoàn tục, nghĩ rằng: “Khó làm thay, Thế Tôn! Thật khó làm thay, Thế Tôn!”. Có khoảng sáu mươi Tỷ-kheo, với tâm được giải thoát, không chấp thủ các lậu hoặc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

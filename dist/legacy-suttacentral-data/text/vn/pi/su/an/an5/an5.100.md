@@ -30,8 +30,3 @@ Lại nữa, này Moggallàna, ở đây có bậc Ðạo sư tri kiến không 
 
 Này Moggallàna, Ta có giới thanh tịnh, và Ta tự biết: “Giới của Ta thanh tịnh, trong sáng, không có uế nhiễm”. Các đệ tử không có che chở Ta về giới, và Ta không có chờ đợi các đệ tử che chở Ta về giới. Mạng sống của Ta thanh tịnh, Ta tự rõ biết: “Mạng sống của Ta thanh tịnh, trong sáng, không có uế nhiễm”. Các đệ tử không có che chở Ta về mạng sống, và Ta không có chờ đợi các đệ tử che chở cho Ta về mạng sống. Thuyết pháp của Ta thanh tịnh, Ta tự rõ biết: “Thuyết pháp của Ta thanh tịnh, Ta tự rõ biết: “Thuyết pháp của Ta thanh tịnh, trong sáng, không có uế nhiễm”. Các đệ tử không có che chở Ta về thuyết pháp và Ta không có chờ đợi các đệ tử che chở Ta về thuyết pháp. Các câu trả lời của Ta thanh tịnh, Ta tự rõ biết :” Các câu trả lời của Ta thanh tịnh, trong sáng, không có uế nhiễm”. Các đệ tử không có che chở Ta về các câu trả lời, và Ta không có chờ đợi các đệ tử che chở Ta về các câu trả lời. Tri kiến của Ta thanh tịnh, Ta tự rõ biết: “Tri kiến của Ta thanh tịnh, trong sáng, không có uế nhiễm”. Các đệ tử không có che chở Ta về tri kiến, và Ta không có chờ đợi các đệ tử che chở Ta về tri kiến.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

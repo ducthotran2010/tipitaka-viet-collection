@@ -16,8 +16,3 @@ Này các Tỷ-kheo, có bốn pháp Thánh cầu này. Thế nào là bốn?
 
 Này các Tỷ-kheo, có bốn pháp Thánh cầu này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

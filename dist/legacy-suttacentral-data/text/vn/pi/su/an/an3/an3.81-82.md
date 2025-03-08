@@ -12,8 +12,3 @@ Ví như, này các Tỷ-kheo, một con lừa đi theo sau lưng một đàn b�
 
 Do vậy, này các Tỷ-kheo, cần phải học tập như sau: “Sắc bén sẽ là ước muốn chúng ta để thọ trì tăng thượng giới học. Sắc bén sẽ là ước muốn chúng ta để thọ trì tăng thượng định học. Sắc bén sẽ là ước muốn chúng ta để thọ trì tăng thượng tuệ học”. Như vậy, này các Tỷ-kheo, các Thầy cần phải học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -12,8 +12,3 @@ Cũng vậy, này các Tỷ-kheo, thành tựu năm pháp, Tỷ-kheo sống tạ
 
 Ở đây, này các Tỷ-kheo, Tỷ-kheo có giới, sống hộ trì với sự hộ trì của giới bổn, đầy đủ oai nghi chánh hạnh, thấy sợ hãi trong các lỗi nhỏ nhiệm, chấp nhận, và học tập trong các học pháp. Như vậy giống như vua Sát-đế-lỵ đã làm lễ quán đảnh, đầy đủ về thọ sanh. Vị ấy là bậc nghe nhiều, thọ trì điều được nghe, tích tập điều được nghe, đối với các pháp sơ thiện, trung thiện, hậu thiện, có nghĩa, có văn, tán thán Phạm hạnh hoàn toàn viên mãn thanh tịnh, đối với các pháp như vậy được nghe nhiều, được thọ trì, được ghi nhớ nhờ đọc nhiều lần, chuyên ý quan sát, khéo thể nhập nhờ chánh kiến. Giống như vua Sát-đế-lỵ đã làm lễ quán đảnh, giàu có, đại phú, sung túc tài sản, ngân khố, kho lúa sung mãn, sống tinh cần, tinh tấn đoạn trừ các pháp bất thiện, thành tựu các thiện pháp, nỗ lực, kiên trì, không từ bỏ gánh nặng đối với các thiện pháp. Giống như vua Sát-đế-lỵ đã làm lễ quán đảnh, đầy đủ uy lực, có trí tuệ, thành tựu với trí tuệ về sanh diệt, với sự thể nhập thuộc bậc Thánh vào con đường đưa đến đoạn tận khổ đau. Giống như vua Sát-đế-lỵ đã làm lễ quán đảnh, đầy đủ với vị tư lệnh. Bốn pháp này khiến sự giải thoát của vị ấy được chín muồi. Thành tựu với pháp giải thoát thứ năm này, vị ấy trú tại phương hướng nào, vị ấy trú với tâm giải thoát. Vì sao? Vì như vậy, này các Tỷ-kheo, đây là (địa hạt) của những tâm giải thoát.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

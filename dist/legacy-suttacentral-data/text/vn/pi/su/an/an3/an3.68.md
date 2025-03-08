@@ -40,8 +40,3 @@ Cần phải trả lời là “Từ tâm giải thoát”. “Với ai như lý
 
 Cần phải trả lời là “như lý tác ý”. “Với ai như lý tác ý, thời si chưa sanh không sanh khởi, và si đã sanh được đoạn tận. Ðây là nhân, này các Hiền giả, đây là duyên khiến si chưa sanh không sanh khởi, hay si đã sanh được đoạn tận.”
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

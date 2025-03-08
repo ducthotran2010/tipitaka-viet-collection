@@ -10,8 +10,3 @@ Tưởng bất tịnh, tưởng chết, tưởng ghê tởm đối với các m�
 
 Này các Tỷ-kheo, chín tưởng này được tu tập, được làm sung mãn, có quả lớn, có lợi ích lớn, thể nhập vào bất tử, lấy bất tử làm cứu cánh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

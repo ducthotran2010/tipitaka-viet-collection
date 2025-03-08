@@ -14,8 +14,3 @@ Nhưng ở đây, này các Tỷ-kheo, Tỷ-kheo đạt được và an trú m�
 
 Ở đây, này các Tỷ-kheo, Tỷ-kheo đạt được và an trú một loại an tịnh tâm giải thoát. Vị ấy tác ý phá hoại vô minh. Do vị ấy tác ý phá hoại vô minh, tâm có phấn chấn, có tịnh tín, có an trú, có giải thoát đối với phá hoại vô minh. Này các Tỷ-kheo, Tỷ-kheo như vậy có chờ đợi được vô minh phá hoại. Ví như, này các Tỷ-kheo, một hồ nước đã được nhiều năm, có người đến bịt tất cả các lỗ nước chảy ra, mở ra tất cả các lỗ nước chảy vào, và trời lại mưa đều đặn. Hồ nước như vậy, này các Tỷ-kheo, có chờ đợi tức nước vỡ bờ. Cũng vậy, này các Tỷ-kheo, Tỷ-kheo đạt được và an trú một loại an tịnh tâm giải thoát. Vị ấy tác ý phá hoại vô minh. Do vị ấy tác ý phá hoại vô minh, tâm có phấn chấn, có tịnh tín, có an trú, có giải thoát đối với phá hoại vô minh. Này các Tỷ-kheo, Tỷ-kheo như vậy có chờ đợi được phá hoại vô minh. Này các Tỷ-kheo, có bốn hạng người này có mặt, hiện hữu ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

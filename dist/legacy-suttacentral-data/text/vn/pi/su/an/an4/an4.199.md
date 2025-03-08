@@ -28,8 +28,3 @@ Mười tám ái hành này liên hệ đến nội tâm, và mười tám ái h
 
 Này các Tỷ-kheo, đây là ái này, lưới triền, khiến cho lưu chuyển, được trải rộng ra, bám dính vào; chính do ái ấy, thế giới này bị hoại vong, trói buộc, rối loạn như một cuộn chỉ, rối ren như một ổ kén, quyện lại như cỏ mujia và lau sậy babbaja, không thể nào ra khỏi khổ xứ, ác thú, đọa xứ, sanh tử.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

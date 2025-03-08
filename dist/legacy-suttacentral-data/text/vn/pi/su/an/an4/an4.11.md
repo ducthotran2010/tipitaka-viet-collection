@@ -23,8 +23,3 @@ Này các Tỷ-kheo, Nếu Tỷ-kheo khi đang đi khởi lên dục tầm, hay 
 > Vị Tỷ-kheo như vậy  
 > Chứng được Vô thượng giác
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

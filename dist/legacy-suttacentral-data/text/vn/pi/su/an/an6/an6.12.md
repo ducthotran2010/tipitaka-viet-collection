@@ -18,8 +18,3 @@ Lại nữa, này các Tỷ-kheo, Tỷ-kheo đối với các tri kiến thuộc
 
 Ðây là sáu pháp cần phải ghi nhớ, này các Tỷ-kheo, tạo thành tương ái, tạo thành tương kính, đưa đến hòa đồng, đưa đến không tranh luận, hòa hợp, nhất trí.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

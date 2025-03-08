@@ -14,8 +14,3 @@ Một thời, Thế Tôn trú ở Kosambì, tại khu vườn Ghosita. Lúc bấ
 
 —Này Ananda, thật không dễ gì để thuyết pháp cho các người khác. Ðể thuyết pháp cho các người khác, này Ananda, sau nội tâm an trú được năm pháp, mới nên thuyết pháp cho các người khác.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

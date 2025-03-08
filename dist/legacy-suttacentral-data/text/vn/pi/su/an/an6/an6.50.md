@@ -12,8 +12,3 @@ Với các căn được phòng hộ, này các Tỷ-kheo, với người đầy
 
 Ví như, này các Tỷ-kheo, một cây với cành và lá đầy đủ, thời chồi non đi đến viên mãn, vỏ cây đi đến viên mãn, giác cây đi đến viên mãn, lõi cây đi đến viên mãn. Cũng vậy, này các Tỷ-kheo, với căn được phòng hộ, với người đầy đủ phòng hộ các căn, giới đi đến đầy đủ... giải thoát tri kiến đi đến đầy đủ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

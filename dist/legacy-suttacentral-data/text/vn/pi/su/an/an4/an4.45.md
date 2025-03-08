@@ -29,8 +29,3 @@ Một thời, Thế Tôn trú ở Sàvatthi, tại Jetavana, khu vườn ông An
 > Không mong cầu đời này,  
 > Không mong cầu đời sau.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

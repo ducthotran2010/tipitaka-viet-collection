@@ -32,8 +32,3 @@ Ví như, này các Tỷ-kheo, một con sông chảy từ núi xuống, chảy 
 
 Cũng vậy, này các Tỷ-kheo, Tỷ-kheo ấy sau khi đoạn tận năm chướng ngại triền cái này bao phủ tâm, làm yếu ớt trí tuệ, có sức mạnh, có trí tuệ, sẽ biết được lợi ích của mình, hay sẽ biết được lợi ích của người, hay có thể biết lợi ích của cả hai, sẽ chứng ngộ được pháp thượng nhân, tri kiến thù thắng, xứng đáng bậc Thánh; sự kiện này có xảy ra.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

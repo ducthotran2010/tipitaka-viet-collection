@@ -62,8 +62,3 @@ Thành tựu năm pháp này, bạch Thế Tôn, Tỷ-kheo trưởng lão đư�
 
 —Lành thay, lành thay, này Upavàna! Thành tựu năm pháp này, Tỷ-kheo trưởng lão được các đồng Phạm hạnh ái mộ, ưa thích , tôn trọng và được noi gương tu tập. Nếu Tỷ-kheo trưởng lão không có được năm pháp này, thời có phải các đồng Phạm hạnh cung kính, tôn trọng, đảnh lễ, cúng dường vị ấy vì răng rụng, tóc bạc và da nhăn. Do vậy, này Upavana, do năm pháp này có hiện hữu trong Tỷ-kheo trưởng lão, cho nên các đồng Phạm hạnh cung kính, tôn trọng, đảnh lễ, cúng dường vị ấy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

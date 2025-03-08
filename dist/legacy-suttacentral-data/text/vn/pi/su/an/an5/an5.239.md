@@ -16,8 +16,3 @@ Không xan tham chỗ ở, không xan tham gia đình, không xan tham lợi dư
 
 Thành tựu năm pháp, này các Tỷ-kheo , Tỷ kheo trú tại chỗ như vậy tương xứng sanh lên cõi trời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

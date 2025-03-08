@@ -16,8 +16,3 @@ Các người Licchavì ấy vâng đáp Thế Tôn. Thế Tôn nói như sau:
 
 Và này các Licchavì, cho đến khi nào bảy pháp không làm suy giảm này được tồn tại giữa dân Vajjì, khi nào dân chúng Vajjì sẽ được thấy giữa bảy pháp không làm suy giảm này, thời này các Licchavì, dân Vajjì sẽ được lớn mạnh, không bị suy giảm.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -26,8 +26,3 @@ Sự kiện này không xảy ra, này các Tỷ-kheo, không có được: là 
 
 Sự kiện này không xảy ra, này các Tỷ-kheo, không có được: là quả dị thục của miệng nói ác... của ý nghĩ ác, có thể là khả lạc, khả hỷ, khả ý, sự kiện này không xảy ra. Sự kiện này có xảy ra, này các Tỷ-kheo, là quả dị thục của miệng nói ác... của ý nghĩ ác, là không khả lạc, không khả hỷ, không khả ý, sự kiện này có xảy ra.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -10,8 +10,3 @@ Cũng vậy, này các Tỷ-kheo, ở đây có Tỷ-kheo, trong đêm hay ngày
 
 Do vậy, này các Tỷ-kheo, các Thầy cần phải học tập như sau: “Ta sẽ sống với tâm người vợ trẻ khi mới đến nhà chồng”. Như vậy, này các Tỷ-kheo, các Thầy cần phải học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

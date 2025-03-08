@@ -10,8 +10,3 @@ Thế nào là bốn?
 
 —Ở đây, này các Tỷ-kheo, với mục đích khiến cho các ác, bất thiện pháp từ trước chưa sanh không cho sanh khởi, khởi lên ý muốn cố gắng, tinh tấn, sách tâm, trì tâm. Với mục đích khiến cho các ác, bất thiện pháp đã sanh ra được trừ diệt, khởi lên ý muốn cố gắng.... trì tâm. Với mục đích khiến cho các thiện pháp đã được sanh có thể duy trì, không có mù mờ, được tăng trưởng, được quảng đại, được tu tập, được viên mãn, khởi lên ý muốn cố gắng, tinh tấn, sách tâm, trì tâm.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

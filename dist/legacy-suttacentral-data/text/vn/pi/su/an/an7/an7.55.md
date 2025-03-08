@@ -30,8 +30,3 @@ Này các Tỷ-kheo, đây là bảy sanh thú của loài Người. Và này c�
 
 Ở đây, này các Tỷ-kheo, vị Tỷ-kheo khi thực hành như vậy, suy nghĩ như sau: “Nếu cái này không có, cái này có thể không phải của ta. Nếu cái này sẽ không có, cái này sẽ không phải của ta. Cái gì có, cái gì được thành, ta đều từ bỏ.”. Vị ấy có được xả, vị ấy không tham đắm sanh hữu, không tham đắm tích tụ của hữu; với chánh trí tuệ, vị ấy thấy có con đường vô thượng tịch tịnh và vị ấy chứng đắc trọn vẹn hoàn toàn con đường ấy. Vị ấy chưa đoạn tận trọn vẹn hoàn toàn mạn tùy miên. Vị ấy chưa đoạn tận trọn vẹn hoàn toàn hữu tham tùy miên. Vị ấy chưa đoạn tận trọn vẹn hoàn toàn vô minh tùy miên. Do diệt tận năm hạ phần kiết sử, vị ấy tự mình với thắng trí, ngay trong hiện tại, chứng nhập, chứng đạt và an trú vô lậu tâm giải thoát, tuệ giải thoát. Này các Tỷ-kheo, đây gọi là Không chấp thủ Bát-niết-bàn. Và này các Tỷ-kheo, đây là bảy sanh thú của loài Người và Không chấp thủ Bát-niết-bàn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

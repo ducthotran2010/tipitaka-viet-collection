@@ -23,8 +23,3 @@ Phạm Thiên, này các Tỷ-kheo, là đồng nghĩa với cha mẹ. Các Ð�
 > Ðời này người Hiền khen  
 > Ðời sau hưởng Thiên lạc
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

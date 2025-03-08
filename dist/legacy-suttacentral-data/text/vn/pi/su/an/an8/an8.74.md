@@ -16,8 +16,3 @@ Này các Tỷ-kheo, Tỷ-kheo ấy cần phải suy xét như sau: “Nếu ta 
 
 Này các Tỷ-kheo, niệm về chết tu tập như vậy làm cho sung mãn như vậy, được quả lớn, được lợi ích lớn, thể nhập vào bất tử, cứu cánh là bất tử.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

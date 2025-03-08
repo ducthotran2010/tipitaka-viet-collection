@@ -44,8 +44,3 @@ Thấy sự nguy hại này của tham, thưa Hiền giả, chúng tôi tuyên t
 
 —Hiền thiện là con đường, thưa Hiền giả! Hiền thiện là đạo lộ đưa đến đoạn tận tham, sân, si! Thật là vừa đủ, thưa Hiền giả Ananda, để áp dụng không phóng dật.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

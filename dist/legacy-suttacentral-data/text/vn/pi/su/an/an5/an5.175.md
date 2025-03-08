@@ -16,8 +16,3 @@ Có lòng tin; có giới; không đoán tương lai với những nghi lễ đ�
 
 Thành tựu năm pháp, này các Tỷ-kheo, một nam cư sĩ là hòn ngọc trong giới nam cư sĩ, là hoa sen hồng trong giới nam cư sĩ, là hoa sen trắng trong giới nam cư sĩ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

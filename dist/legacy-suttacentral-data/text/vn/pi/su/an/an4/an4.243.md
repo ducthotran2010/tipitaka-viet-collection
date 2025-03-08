@@ -24,8 +24,3 @@ Lại nữa, này Ananda, ác Tỷ-kheo tham muốn lợi dưỡng, tham muốn 
 
 Do thấy bốn lợi ích này, này Ananda, kẻ ác Tỷ-kheo thích thú với phá hòa hợp Tăng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

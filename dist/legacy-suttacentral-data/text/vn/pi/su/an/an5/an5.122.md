@@ -10,8 +10,3 @@ XIII. Phẩm Bệnh
 
 Tỷ-kheo hay Tỷ-kheo-ni nào, này các Tỷ-kheo, tu tập năm pháp này, làm cho sung mãn năm pháp này, một trong hai quả sau đây được chờ đợi cho vị ấy: Ngay trong hiện tại, được chánh trí, hay nếu có dư y, chứng quả Bất hoàn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

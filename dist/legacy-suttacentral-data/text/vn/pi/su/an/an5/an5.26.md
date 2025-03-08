@@ -18,8 +18,3 @@ Lại nữa, này các Tỷ-kheo, bậc Ðạo Sư hay một vị đồng Phạm
 
 Có năm giải thoát xứ này, này các Tỷ-kheo, ở đây vị Tỷ-kheo sống không phóng dật, nhiệt tâm, tinh cần, thời tâm chưa giải thoát, được giải thoát, hay các lậu hoặc chưa đoạn diệt hoàn toàn, đi đến đoạn diệt hoàn toàn, hay vô thượng an ổn khỏi các khổ ách chưa đạt, được đạt đến.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

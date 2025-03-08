@@ -54,8 +54,3 @@ Ví như, này Pahàràda, biển lớn là trú xứ các loại chúng sanh l�
 
 Này Pahàràda, đây là tám pháp vi diệu, chưa từng có trong pháp và luật và do thấy vậy, do thấy vậy, các Tỷ-kheo thích thú trong Pháp và Luật này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

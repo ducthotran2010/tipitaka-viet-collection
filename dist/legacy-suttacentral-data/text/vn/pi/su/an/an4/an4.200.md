@@ -70,8 +70,3 @@ Và này các Tỷ-kheo, thế nào là Tỷ-kheo không có sửng sờ?
 
 Ở đây, sự kiêu mạn: “Tôi là” của vị Tỷ-kheo được đoạn tận, cắt đứt từ gốc rễ, làm cho như thân cây tala, làm cho không thể tái sanh, làm cho không thể sanh khởi trong tương lai. Như vậy, này các Tỷ-kheo, là Tỷ-kheo không có sửng sờ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

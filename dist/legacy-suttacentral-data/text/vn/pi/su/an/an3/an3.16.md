@@ -20,8 +20,3 @@ Và này các Tỷ-kheo, như thế nào là Tỷ-kheo chú tâm cảnh giác?
 
 Thành tựu ba pháp này, này các Tỷ-kheo, Tỷ-kheo thực hành con đường không có lỗi lầm, và có những căn bản thắng tấn để đoạn diệt các lậu hoặc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

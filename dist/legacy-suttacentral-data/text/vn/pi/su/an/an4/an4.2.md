@@ -25,8 +25,3 @@ Thành tựu bốn pháp này, này các Tỷ-kheo, được gọi là không r�
 > Người ấy được an lạc  
 > Do an lạc đưa đến
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -14,8 +14,3 @@ Rồi Tôn giả Ananda đi đến Tôn giả Sàriputta. sau khi đến ... ng�
 
 —Ở đây, này Hiền giả Ananda, chúng sanh như thật quán tri: “Các tưởng này dự phần vào thối đọa”, như thật quán tri: “Các tưởng này dự phần vào an trú”, như thật quán tri: “Các tưởng này dự phần vào thù thắng”, như thật quán tri: “Các tưởng này dự phần vào thể nhập”. Do nhân này, do duyên này, này Hiền giả Ananda, ở đây có các chúng sanh ngay trong hiện tại, chứng nhập Niết-bàn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

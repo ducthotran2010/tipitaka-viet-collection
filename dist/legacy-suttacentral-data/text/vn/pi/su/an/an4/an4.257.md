@@ -24,8 +24,3 @@ Rồi Tôn giả Màlunkyàputta, sau khi nghe Thế Tôn giáo giới với l�
 
 Rồi Tôn giả Màlunkyàputta, sống một mình, viễn ly, không phóng dật, nhiệt tâm tinh cần, không bao lâu, do mục đích gì các thiện nam tử chơn chánh xuất gia, từ bỏ gia đình, sống không gia đình, tức là vô thượng cứu cánh Phạm hạnh, ngay trong hiện tại, tự mình với thắng trí, chứng đạt và an trú. Vị ấy biết rõ: “Sanh đã tận, Phạm hạnh đã thành, những việc nên làm đã làm, không còn trở lui trạng thái này nữa”. Rồi Tôn giả Màlunkyàputta trở thành một vị A-la-hán nữa.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

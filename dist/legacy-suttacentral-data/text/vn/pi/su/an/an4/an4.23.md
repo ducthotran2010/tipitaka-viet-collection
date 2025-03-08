@@ -53,8 +53,3 @@ Này các Tỷ-kheo, trong toàn thể thế giới với Thiên giới, Ma gi�
 > Thiên giới, thế giới này  
 > Không ai được bằng ngài.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

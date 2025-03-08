@@ -22,8 +22,3 @@ Có các loài hữu tình, này các Tỷ-kheo, vượt hoàn toàn Thức vô 
 
 Này các Tỷ-kheo, có bảy thức trú này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

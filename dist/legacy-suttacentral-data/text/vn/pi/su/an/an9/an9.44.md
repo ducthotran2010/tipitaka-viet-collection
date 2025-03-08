@@ -10,8 +10,3 @@ V. Phẩm Pancala
 
 Lại nữa, này Hiền giả, Tỷ-kheo vượt qua Phi tưởng phi phi tưởng xứ, chứng đạt và an trú Diệt thọ tưởng định; sau khi thấy với trí tuệ, các lậu hoặc được đoạn tận. Với trí tuệ, vị ấy rõ biết. Cho đến như vậy, này Hiền giả, tuệ giải thoát được Thế Tôn nói đến với pháp môn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

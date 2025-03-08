@@ -20,8 +20,3 @@ Rồi Upaka Mandikàputta hoan hỷ tín thọ lời Thế Tôn dạy, từ ch�
 
 —Thật là độc hại, đứa trẻ làm muối này! Thật là lắm mồm, thật là kẻ liều mạng. Nghĩ rằng nó có thể nhiếc mắng Thế Tôn, bậc A-la-hán, Chánh Ðẳng Giác. Hãy đi đi, này Upaka! Chớ để Ta thấy Ông nữa!
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

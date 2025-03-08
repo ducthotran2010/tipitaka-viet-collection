@@ -26,8 +26,3 @@ Trong trường hợp ngã tư tâm sở và tư tâm sở của người khác 
 
 Này Sàriputta, đây là nhân, đây là duyên, ở đây có hạng chúng sanh, sau khi mạng chung, từ bỏ thân ấy ... đã không trở lui lại, không trở lui lại trạng thái này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

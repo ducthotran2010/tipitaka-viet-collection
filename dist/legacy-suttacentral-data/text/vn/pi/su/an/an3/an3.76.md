@@ -26,8 +26,3 @@ Rồi Tôn giả Ananda đi đến Thế Tôn, sau khi đến, đảnh lễ Th�
 
 —Như vậy, này Ananda, nghiệp là thửa ruộng, thức là hột giống, ái là sự nhuận ướt. Chúng sanh bị vô minh che lấp, bị ái trói buộc, nên thức được an lập trong giới bậc thù thắng. Như vậy, trong tương lai có sự tái sanh sanh khởi. Như vậy, này Ananda, hữu có mặt.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -34,8 +34,3 @@ Rồi Tôn giả Ananda bạch Thế Tôn:
 
 —Này Ananda, Thầy có lòng tín thành nên nói vậy. Nhưng ở đây, này Ananda, Như Lai biết rằng trong chúng Tỷ-kheo này, không có một Tỷ-kheo nào có nghi ngờ hay phân vân gì đối với Phật, Pháp, chúng Tăng, Ðạo hay con đường thực hành. Này Ananda, trong 500 Tỷ-kheo này, Tỷ-kheo thấp nhất đã chứng được quả Dự lưu, không còn bị thối đọa, chắc chắn hướng đến Chánh Giác.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

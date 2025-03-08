@@ -52,8 +52,3 @@ Ví như trong cõi Jambudipa (Diêm-phủ-đề) này, số ít là các khu v�
 
 Cũng vậy, này các Tỷ-kheo, số ít là các chúng sanh, sau khi chết ở cõi ngạ quỷ được tái sanh giữa chư Thiên. Và nhiều hơn là các chúng sanh, sau khi chết, ở cõi ngạ quỷ bị tái sanh ở cõi địa ngục... ở các loài bàng sanh... ở cõi ngạ quỷ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -24,8 +24,3 @@ Một vị tưởng tri vô sắc ở nội tâm, thấy các loại ngoại s�
 
 Này các Tỷ-kheo, những pháp này là tám thắng xứ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

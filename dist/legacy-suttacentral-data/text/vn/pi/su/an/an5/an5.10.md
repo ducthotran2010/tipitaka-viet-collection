@@ -12,8 +12,3 @@ Thành tựu năm pháp này, này các Tỷ-kheo, Tỷ-kheo cung kính, tôn tr
 
 Có lòng tin, này các Tỷ-kheo, Tỷ-kheo có cung kính, có tôn trọng, có thể lớn lên, tăng trưởng, lớn mạnh trong Pháp và Luật này. Có lòng hổ thẹn... có lòng sợ hãi... tinh tấn... có trí tuệ, này các Tỷ-kheo, Tỷ-kheo có cung kính, có tôn trọng, có thể lớn lên, tăng trưởng, lớn mạnh trong Pháp và Luật này. Thành tựu năm pháp này, này các Tỷ-kheo, Tỷ-kheo có cung kính, có tôn trọng, có thể lớn lên, tăng trưởng, lớn mạnh trong Pháp và Luật này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

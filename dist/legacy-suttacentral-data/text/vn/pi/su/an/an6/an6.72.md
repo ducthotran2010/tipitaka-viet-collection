@@ -16,8 +16,3 @@ Thành tựu sáu pháp này, này các Tỷ-kheo có thể đạt được sứ
 
 Thành tựu sáu pháp này, này các Tỷ-kheo, một Tỷ-kheo có thể đạt được sức mạnh trong Thiền định.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

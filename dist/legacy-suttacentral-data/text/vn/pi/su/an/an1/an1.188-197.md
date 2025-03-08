@@ -24,8 +24,3 @@ Trong các vị đệ tử... thuyết pháp, tối thắng là Punna Mantànipu
 
 Trong các đệ tử Tỷ-kheo của Ta, thuyết giảng rộng rãi những điều được nói lên một cách vắn tắt, tối thắng là Mahàkaccàna.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

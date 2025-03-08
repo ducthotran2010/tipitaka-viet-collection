@@ -10,8 +10,3 @@ XXVI. Phẩm Cụ Túc Giới
 
 Thành tựu năm pháp này, này các Tỷ-kheo, Tỷ-kheo cần phải được một sa-di làm thị giả.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

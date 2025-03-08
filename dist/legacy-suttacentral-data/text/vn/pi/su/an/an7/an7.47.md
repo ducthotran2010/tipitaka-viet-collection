@@ -66,8 +66,3 @@ Còn lửa củi này, này Bà-la-môn, cần phải thường thường nhen �
 
 —Thật vi diệu thay, thưa Tôn giả Gotama! Thật vi diệu thay, thưa Tôn giả Gotama! Tôn giả Gotama hãy nhận còn làm đệ tử cư sĩ, từ nay cho đến mạng chung, con trọn đời quy ngưỡng. Và thưa Tôn giả Gotama, con sẽ thả năm trăm con bò đực và cho chúng sống; con sẽ thả năm trăm con nghé đực và cho chúng sống; con sẽ thả năm trăm con nghé cái và cho chúng sống; con sẽ thả năm trăm con dê và cho chúng sống; con sẽ thả năm trăm con cừu và cho chúng sống. Hãy để chúng ăn cỏ xanh; hãy để chúng uống nước mát; hãy để gió thổi chúng mát.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

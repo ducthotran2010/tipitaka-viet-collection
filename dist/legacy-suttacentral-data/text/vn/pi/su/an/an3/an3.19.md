@@ -12,8 +12,3 @@ Thành tựu ba chi phần, này các Tỷ-kheo, một người buôn bán thâu
 
 Cũng vậy, này các Tỷ-kheo, thành tựu ba pháp, Tỷ kheo thâu nhận được thiện pháp chưa được thâu nhận, tăng trưởng thiện pháp đã được thâu nhận. Thế nào là ba? Ở đây, này các Tỷ-kheo, Tỷ kheo vào buổi sáng có nhiệt tâm chăm chú vào định tướng, vào buổi trưa có nhiệt tâm chăm chú vào định tướng, vào buổi chiều có nhiệt tâm chăm chú vào định tướng. Thành tựu với ba pháp này, này các Tỷ-kheo, một Tỷ-kheo thâu nhận được thiện pháp chưa được thâu nhận, và tăng trưởng thiện pháp đã được thâu nhận.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

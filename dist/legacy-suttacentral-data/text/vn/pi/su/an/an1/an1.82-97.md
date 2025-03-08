@@ -36,8 +36,3 @@ Ta không thấy một pháp nào khác, này các Tỷ-kheo, có thể đưa đ
 
 Ta không thấy một pháp nào khác, này các Tỷ-kheo, đưa đến lợi ích lớn, này các Tỷ-kheo, như là hệ lụy với các pháp thiện, không hệ lụy với các pháp bất thiện. Hệ lụy các pháp thiện, này các Tỷ-kheo, không hệ lụy với các pháp bất thiện đưa đến lợi ích lớn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

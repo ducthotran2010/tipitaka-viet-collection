@@ -28,8 +28,3 @@ Chúng lớn lên về cành cây, về lá, về toàn bộ lá cây; chúng l�
 > Họ được niềm hoan hỷ,  
 > Hưởng thọ các dục lạc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

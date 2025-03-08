@@ -10,8 +10,3 @@ Phạm lỗi không mời mà đến; phạm lỗi ngồi một mình; phạm l�
 
 Này các Tỷ-kheo, có năm nguy hại này cho người viếng thăm gia đình.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -14,8 +14,3 @@ Này các Tỷ-kheo, lại nữa, vị Tỷ-kheo giả dối và não hại... t
 
 Này các Tỷ-kheo, đây là sáu tranh căn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

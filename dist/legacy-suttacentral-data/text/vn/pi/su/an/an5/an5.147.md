@@ -16,8 +16,3 @@ Bố thí có cung kính, bố thí có suy nghĩ, bố thí tự tay mình, b�
 
 Các pháp này, này các Tỷ-kheo, là năm loại bố thí xứng bậc Chân nhân.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

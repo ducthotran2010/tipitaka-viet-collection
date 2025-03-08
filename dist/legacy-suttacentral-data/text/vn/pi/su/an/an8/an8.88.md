@@ -16,8 +16,3 @@ Không cố gắng đem lại thiệt hại cho các gia chủ, không cố gắ
 
 Ðối với nam cư sĩ thành tựu tám pháp này, này các Tỷ-kheo, nếu Tỷ-kheo muốn, có thể nói lời tùy thuận.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

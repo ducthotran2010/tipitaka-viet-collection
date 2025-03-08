@@ -22,8 +22,3 @@ Một thời, Thế Tôn trú ở giữa dân chúng Sakka, tại Kapilavatthu, 
 
 —Này Mahànàma, khi nào nam cư sĩ tự mình thành tựu lòng tin và khích lệ người khác thành tựu lòng tin; khi nào tự mình giữ giới và khích lệ người khác giữ giới; khi nào tự mình bố thí và khích lệ người khác bố thí; khi nào tự mình muốn đi đến yết kiến các Tỷ-kheo và khích lệ người khác đi đến yết kiến các Tỷ-kheo; khi nào tự mình muốn nghe diệu pháp và khích lệ người khác nghe diệu pháp; khi nào tự mình thọ trì những pháp đã được nghe và khích lệ người khác thọ trì những pháp đã được nghe; khi nào tự mình suy nghĩ đến ý nghĩa các pháp đã thọ trì và khích lệ người khác suy nghĩ đến ý nghĩa các pháp đã thọ trì; sau khi tự mình biết nghĩa, biết pháp, thực hiện pháp đúng Chánh pháp, khích lệ người khác sau khi biết nghĩa biết pháp, thực hiện pháp đúng Chánh pháp. Cho đến như vậy, này Mahànàma, là nam cư sĩ thực hành vì tự lợi và lợi tha.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

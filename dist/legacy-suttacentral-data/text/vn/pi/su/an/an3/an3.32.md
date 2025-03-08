@@ -46,8 +46,3 @@ Lại nữa, này Ananda, liên hệ đến vấn đề này, Ta đã nói như 
 > Ta nói trí giải thoát  
 > Vô minh được phá tận.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

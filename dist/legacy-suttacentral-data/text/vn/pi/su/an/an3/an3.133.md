@@ -32,8 +32,3 @@ Và này các Tỷ-kheo, thế nào là Tỷ-kheo đâm thủng vật to lớn?
 
 Ở đây, này các Tỷ-kheo, Tỷ-kheo đâm thủng vô minh uẩn to lớn. Như vậy, này các Tỷ-kheo, là Tỷ-kheo đâm thủng vật to lớn. Ðầy đủ ba đức tánh này, này các Tỷ-kheo, Tỷ-kheo đáng được cung kính, đáng được tôn trọng, đáng được cúng dường, đáng được chắp tay, là ruộng phước vô thượng ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

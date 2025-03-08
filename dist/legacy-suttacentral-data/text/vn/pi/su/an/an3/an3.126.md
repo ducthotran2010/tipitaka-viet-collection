@@ -60,8 +60,3 @@ Rồi Bharandu, người Kàlàmà suy nghĩ như sau: “Trước mặt họ Th
 
 Rồi Bharandu người Kàlàmà đi ra khỏi Kapilavatthu, một sự ra đi khỏi Kapilavatthu, không bao giờ có trở lại nữa.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

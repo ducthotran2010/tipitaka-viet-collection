@@ -14,8 +14,3 @@ Không khinh lời thuyết giảng, không khinh người thuyết giảng, kh�
 
 Thành tựu năm pháp này, này các Tỷ-kheo, người nghe diệu pháp có thể nhập vào quyết định tánh, chánh tánh trong các thiện pháp.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -25,8 +25,3 @@ Nếu Tỷ-kheo trong khi đứng, ... nếu Tỷ-kheo trong khi ngồi ... nế
 > Liên tục, hằng siêng năng  
 > Tỷ-kheo được gọi vậy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

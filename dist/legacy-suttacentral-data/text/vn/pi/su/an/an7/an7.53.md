@@ -72,8 +72,3 @@ Thưa Tôn giả, mong rằng mọi công đức của buổi cúng dường nà
 
 Rồi Tôn giả Sàriputta, sau khi với một pháp thoại, nói lên cho nữ cư sĩ mẹ của Nanda, khích lệ làm cho phấn khởi, làm cho hoan hỷ, từ chỗ ngồi đứng dậy rồi ra đi.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

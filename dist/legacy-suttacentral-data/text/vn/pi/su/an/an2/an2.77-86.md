@@ -18,8 +18,3 @@ Này các Tỷ-kheo, các pháp ác, bất thiện khởi lên có duyên, khôn
 
 Này các Tỷ-kheo, các pháp ác, bất thiện khởi lên có sở duyên hữu vi, không phải không có sở duyên hữu vi. Do đoạn tận hữu vi ấy, như vậy các pháp ác, bất thiện ấy, không có mặt.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -44,8 +44,3 @@ Này các Tỷ kheo, bị tám phi diệu pháp này chinh phục, tâm bị xâ
 
 Cho đến nay, thưa Tôn giả Uttara, trong bốn hội chúng giữa loài người: Tỷ-kheo, Tỷ-kheo-Ni, nam cư sĩ, nữ cư sĩ, pháp môn này không được một ai thiết lập. Thưa Tôn giả, Tôn giả Uttara hãy học pháp môn này. Thưa Tôn giả, Tôn giả Uttara hãy học thuộc lòng pháp môn này. Thưa Tôn giả, Tôn giả Uttara hãy thọ trì pháp môn này. Thưa Tôn giả, pháp môn này liên hệ đến mục đích, là căn bản Phạm hạnh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

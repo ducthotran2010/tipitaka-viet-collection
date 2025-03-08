@@ -48,8 +48,3 @@ Khi được nghe nói như vậy, Thế Tôn nói với Tôn giả Udàyi:
 
 —Chớ có nói như vậy, này Udàyi; chớ nói vậy, này Udàyi. Này Udàyi, nếu Ananda chưa có đoạn tận tham và mệnh chung, nhưng với tâm tịnh tín của mình, vị ấy có thể bảy lần ngự trị trên thế giới chư Thiên, có thể bảy lần ngự trị trên cõi Jambudìpa này. Nhưng này Udàyi, Ananda ngay trong hiện tại sẽ được Bát-Niết-bàn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

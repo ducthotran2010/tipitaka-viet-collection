@@ -23,8 +23,3 @@ Thành tựu bảy chi phần này, này các Tỷ-kheo, một Tỷ-kheo cần p
 > Với ai cần bạn hữu,  
 > Hãy gần bạn như vậy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

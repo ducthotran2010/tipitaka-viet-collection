@@ -8,8 +8,3 @@ Một thời, Thế Tôn trú ở Sàvavatthì, tại Ðông Viên, lâu đài m
 
 —Này Visàkhà, ngày trai giới đầy đủ tám chi phần được thực hành, thời có được quả lớn, có lợi ích lớn, có rực rỡ lớn, có biến mãn lớn _... (giống như kinh 42 với cả bài kệ, với những thay đổi cần thiết )._
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

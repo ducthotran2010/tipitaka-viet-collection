@@ -48,8 +48,3 @@ Ví như, này các Hiền giả, một hồ sen có nước trong, có nước 
 
 Này các Hiền giả, có năm trừ khử hiềm hận này, ở đây Tỷ-kheo có hiềm hận khởi lên cần phải trừ khử một cách hoàn toàn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -38,8 +38,3 @@ Này Hiền giả, một thời tôi sống ở Sàketa, rừng Anjanavana tại
 
 Thế Tôn nói như vậy, này Hiền giả, vị ấy có những tưởng như vậy, nhưng không cảm thọ xứ ấy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

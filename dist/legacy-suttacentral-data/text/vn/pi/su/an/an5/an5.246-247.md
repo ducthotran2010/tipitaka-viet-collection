@@ -10,8 +10,3 @@ Tự mình không chỉ trích mình; sau khi suy xét, các bậc trí tán th�
 
 Có năm lợi ích này, này các Tỷ-kheo, cho người ý thiện hành.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -28,8 +28,3 @@ Vị Thánh đệ tử nào, này các Vyagghapajjà, thành tựu với giới 
 
 Bốn thanh tịnh tinh cần chi phần này, này các Vyagghapajjà, đã được Thế Tôn, bậc đã biết đã thấy, bậc A-la-hán, Chánh Ðẳng Giác chơn chánh nói lên để chúng sanh được thanh tịnh, để vượt qua sầu bi, để chấm dứt khổ ưu, để chứng đắc chánh lý, để chứng ngộ Niết-bàn!
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

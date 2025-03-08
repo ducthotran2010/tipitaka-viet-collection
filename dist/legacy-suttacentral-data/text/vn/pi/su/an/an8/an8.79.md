@@ -16,8 +16,3 @@ Không ưa thích công việc, không ưa thích nói chuyện, không ưa thí
 
 Này các Tỷ-kheo, có tám pháp này đưa Tỷ-kheo hữu học đến không thối đọa.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

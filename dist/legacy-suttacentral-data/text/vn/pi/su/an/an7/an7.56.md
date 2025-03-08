@@ -54,8 +54,3 @@ Tôn giả Mahàmoggallàna vâng đáp Thế Tôn. Thế Tôn nói như sau:
 
 —Ở đây, này Moggallàna, Tỷ-kheo không tác ý tất cả tướng, chứng đạt vô tướng tâm định và an trú. Các Thiên nhân ấy biết về vị ấy như sau: “Tôn giả này, do không tác ý tất cả tướng, chứng đạt và an trú vô tướng tâm định. Rất có thể Tôn giả này do sử dụng các sàng tọa thích đáng, do thân cận các thiện bằng hữu, do chế ngự các căn, vị ấy có thể ngay trong hiện tại tự mình chứng ngộ với thắng trí, chứng đạt và an trú vô thượng cứu cánh Phạm hạnh mà các thiện nam tử vì mục đích ấy chơn chánh xuất gia, từ bỏ gia đình, sống không gia đình”. Như vậy, này Moggallàna, các Thiên nhân ấy có trí ấy như sau: “Có dư y là có dư y”.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

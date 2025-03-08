@@ -14,8 +14,3 @@ Có hai loại lạc này, này các Tỷ-kheo. Thế nào là hai? Lạc sanh y
 
 Có hai loại lạc này, này các Tỷ-kheo. Thế nào là hai? Lạc với sở duyên thuộc sắc và lạc với sở duyên thuộc vô sắc. Những pháp này, này các Tỷ-kheo, là hai lạc. Tối thắng trong hai lạc này, này các Tỷ-kheo, tức là lạc với sở duyên thuộc vô sắc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

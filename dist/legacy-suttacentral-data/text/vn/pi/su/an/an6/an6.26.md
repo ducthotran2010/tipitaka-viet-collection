@@ -22,8 +22,3 @@ Lại nữa, này chư Hiền, vị Thánh đệ tử niệm Tăng: “Diệu h�
 
 Thật vi diệu thay, này chư Hiền! Thật hy hữu thay, này chư Hiền, Thế Tôn, bậc Trí giả, bậc Kiến giả, bậc A-la-hán, Chánh Ðẳng Giác, đã chứng ngộ và đạt được sự mở rộng khỏi bị trói buộc, nhờ vậy các loài hữu tình được thanh tịnh vượt khỏi sầu bi, chấm dứt khổ ưu, đạt được chánh lý, chứng ngộ Niết-bàn, tức là sáu Tùy niệm xứ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

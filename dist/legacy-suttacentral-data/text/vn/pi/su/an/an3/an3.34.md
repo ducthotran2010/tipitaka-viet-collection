@@ -43,8 +43,3 @@ Hoàng Tử nghĩ thế nào, này Hoàng Tử, với người gia chủ hay con
 > An tịnh, cảm thọ lạc  
 > Với tâm đạt an tịnh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

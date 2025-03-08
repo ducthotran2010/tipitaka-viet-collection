@@ -26,8 +26,3 @@ Thành tựu bảy pháp, này các Tỷ-kheo, Tỷ-kheo được các đồng P
 
 Thành tựu bảy pháp này, này các Tỷ-kheo, Tỷ-kheo được các đồng Phạm hạnh ái mộ, được khả ý, được kính trọng, được bắt chước tu tập theo.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

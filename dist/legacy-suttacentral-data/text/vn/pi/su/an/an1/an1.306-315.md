@@ -32,8 +32,3 @@ Ví như, này các Tỷ-kheo, hột giống cây mía, hay hột giống cây l
 
 Cũng vậy, này các Tỷ-kheo, đối với người có chánh kiến, này các Tỷ-kheo, phàm mọi thân hành... Vì tánh hiền thiện của chánh kiến, này các Tỷ-kheo.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

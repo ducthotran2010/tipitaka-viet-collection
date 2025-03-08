@@ -44,8 +44,3 @@ Nếu được hỏi và phải trả lời, dè dặt và ngập ngừng, vị 
 
 Thành tựu với bốn pháp này, này các Tỷ-kheo, cần phải được hiểu là bậc Chân nhân.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

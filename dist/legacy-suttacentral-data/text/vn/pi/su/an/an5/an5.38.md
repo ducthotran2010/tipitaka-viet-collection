@@ -34,8 +34,3 @@ Ví như, này các Tỷ-kheo, trên khoảnh đất tốt, tại ngã tư đư�
 > Viên bản nhập Niết-bàn,  
 > Hoàn toàn không lậu hoặc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -71,8 +71,3 @@ Mười sáu trăm năm của một đời người, này các Tỷ-kheo, bằng
 > Ðược sanh lên cõi trời  
 > Không bị người cười chê.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

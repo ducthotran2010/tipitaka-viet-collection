@@ -10,8 +10,3 @@ Không có lòng tin, này các Tỷ-kheo, Tỷ-kheo từ bỏ, không an trú t
 
 Thành tựu năm pháp này, này các Tỷ-kheo, Tỷ-kheo không từ bỏ, an trú trong diệu pháp. Thế nào là năm? Có lòng tin, này các Tỷ-kheo, Tỷ-kheo không từ bỏ, an trú trong diệu pháp. Có lòng hổ thẹn... có lòng sợ hãi... có tinh tấn... có trí tuệ, này các Tỷ-kheo, Tỷ-kheo không từ bỏ, an trú trong diệu pháp. Thành tựu năm pháp này, này các Tỷ-kheo, Tỷ-kheo không từ bỏ, an trú trong diệu pháp.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

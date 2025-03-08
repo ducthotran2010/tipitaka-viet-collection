@@ -12,8 +12,3 @@ Này Hiền giả Anuruddha, Hiền giả suy nghĩ như sau: “Với thiên nh
 
 Rồi Tôn giả Anuruddha, sau môt thời gian, sau khi đoạn trừ ba pháp này, sau khi không tác ý ba pháp này, chú tâm vào giới bất tử. Rồi Tôn giả Anuruddha sống một mình, an tịnh, không phóng dật, nhiệt tâm, tinh cần, không bao lâu đạt được mục đích mà một thiện nam tử chơn chánh xuất gia, từ bỏ gia đình, sống không gia đình. Chính là vô thượng cứu cánh Phạm hạnh, ngay trong hiện tại, tự mình với thắng trí, sau khi chứng ngộ, chứng đạt, vị ấy an trú. Vị ấy chứng tri: “Sanh đã tận, Phạm hạnh đã thành, các việc nên làm đã làm, không còn trở lui trạng thái này nữa. Tôn giả Anuruddha trở thành một vị A-la-hán nữa.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

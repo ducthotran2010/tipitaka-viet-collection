@@ -42,8 +42,3 @@ Thế Tôn nói:
 
 —Này Sàriputta, các người nào không vì lòng tin, xuất gia từ bỏ gia đình, sống không gia đình, những người xảo trá, lường gạt, hư ngụy, mất thăng bằng, cao mạn, dao động, lắm lời, nói thô tạp nhạp, không hộ trì các căn, ăn uống không tiết độ, không chú tâm cảnh giác, thờ ơ với Sa-môn hạnh, không tôn kính học tập, sống quá đầy đủ, uể oải, đi đầu trong thối thất, từ bỏ gánh nặng, viễn ly, biếng nhác, tinh cần thấp kém, thất niệm, không tỉnh giác, không định tâm, tâm tán loạn, liệt tuệ, câm ngọng, hãy để họ một bên. Nhưng này Sàriputta, những thiện nam tử, vì lòng tin, xuất gia từ bỏ gia đình, sống không gia đình, không xảo trá, lường gạt, không hư ngụy, không mất thăng bằng, không cao mạn, không dao động, không lắm lời, không nói thô tạp nhạp, hộ trì các căn, ăn uống có tiết độ, chú tâm cảnh giác, không thờ ơ với Sa-môn hạnh, tôn kính học tập, không sống quá đầy đủ, không uể oải, từ bỏ gánh nặng đọa lạc, đi đầu trong đời sống viễn ly, tinh cần tinh tấn, siêng năng, an trú chánh niệm tỉnh giác, định tĩnh, nhất tâm, có trí tuệ, không câm ngọng, hãy nói chuyện với họ. Hãy giáo giới các vị đồng Phạm hạnh, hãy giảng dạy, này Sàriputta, các vị đồng Phạm hạnh nghĩ rằng: “Sau khi giúp ra khỏi phi diệu pháp, tôi an trú các vị đồng Phạm hạnh trong diệu pháp”. Này Sariputta hãy như vậy học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

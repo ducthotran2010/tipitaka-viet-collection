@@ -82,8 +82,3 @@ Hai pháp này, này các Tỷ-kheo, đưa đến sự hỗn loạn (mê mờ) v
 
 Hai pháp này, này các Tỷ-kheo, đưa đến an trú, không biến loạn, không biến mất của diệu pháp. Thế nào là hai? Văn cú phối trí chơn chánh và ý nghĩa được hiểu chơn chánh. nếu văn cú được phối trí chơn chánh thời ý nghĩa được hiểu chơn chánh. Những pháp này, này các Tỷ-kheo, là hai pháp đưa đến an trú, không hỗn loạn, không biến mất của diệu pháp.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

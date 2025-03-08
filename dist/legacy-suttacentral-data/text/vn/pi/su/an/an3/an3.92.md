@@ -20,8 +20,3 @@ Tỷ-kheo ấy, này các Tỷ-kheo, không có thần lực hay không có uy l
 
 Do vậy, này các Tỷ-kheo, cần phải học tập như sau: “Sắc bén sẽ là ước muốn của ta để chấp hành tăng thượng giới học. Sắc bén sẽ là ước muốn của ta để chấp hành tăng thượng định học. Sắc bén sẽ là ước muốn của ta để chấp hành tăng thượng tuệ học”. Như vậy, này các Tỷ-kheo, các Thầy cần phải học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

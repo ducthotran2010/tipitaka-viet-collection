@@ -10,8 +10,3 @@ III. Phẩm Chỗ Cư Trú Của Hữu Tình
 
 Này các Tỷ-kheo, khi nào tâm Tỷ-kheo được khéo tích tập với trí tuệ, thời thật hợp lý cho Tỷ-kheo ấy nói như sau: “Ta rõ biết: “Sanh đã tận, Phạm hạnh đã thành, những việc nên làm đã làm, không còn trở lui trạng thái này nữa”.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

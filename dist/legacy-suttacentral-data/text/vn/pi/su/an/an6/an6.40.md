@@ -16,8 +16,3 @@ Một thời, Thế Tôn trú ở Kimbila, tại rừng Trúc. Rồi Tôn giả 
 
 Ở đây, này Kimbila, khi Thế Tôn nhập diệt, các Tỷ-kheo, Tỷ-kheo-ni, nam cư sĩ, nữ cư sĩ sống cung kính tùy thuận bậc Ðạo Sư; sống cung kính tùy thuận Pháp; sống cung kính tùy thuận chúng Tăng; sống cung kính tùy thuận học pháp; sống cung kính tùy thuận không phóng dật; sống cung kính tùy thuận tiếp đón. Ðây là nhân, đây là duyên, khi Như Lai nhập diệt, Diệu pháp được tồn tại lâu dài.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

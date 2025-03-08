@@ -70,8 +70,3 @@ Rồi Thế Tôn, nói với Tôn giả Sàriputta:
 
 —Bạch Thế Tôn, con tha thứ cho Tôn giả ấy, nếu Tôn giả ấy nói với con: “Hãy tha thứ cho”, và cũng mong Tôn giả ấy tha thứ cho con.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

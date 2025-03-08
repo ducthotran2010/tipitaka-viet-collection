@@ -18,8 +18,3 @@ Thuở xưa, này các Tỷ-kheo, các Bà-la-môn vào buổi chiều tìm đ�
 
 Năm cựu Bà-la-môn pháp này, này các Tỷ-kheo, nay được thấy giữa các loài chó, không được thấy giữa các Bà-la-môn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -40,8 +40,3 @@ Tôn giả này sống tùy quán sanh diệt trong năm uẩn... (như số 9 �
 
 Này các Tỷ-kheo, tám nhân này, tám duyên này khiến cho căn bản Phạm hạnh chưa chứng được có thể chứng được với trí tuệ, nếu chứng được thời đưa đến tăng trưởng, tăng rộng, được tu tập, được viên mãn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -70,8 +70,3 @@ Và như thế nào, này các Tỷ-kheo, là hạng người hiền thiện thu
 
 Ở đây, này các Tỷ-kheo do đoạn diệt các lậu hoặc, tự mình với thắng trí, chúng ngộ, chứng đạt và an trú vô lậu tâm giải thoát, tuệ giải thoát. Ðây Ta nói trong nghĩa có tốc lực. Khi được hỏi về thắng pháp, thắng luật, vị ấy liền trả lời. Ðây Ta nói trong nghĩa có sắc đẹp. Vị ấy nhận được các đồ tư dụng như y áo, đồ ăn khất thực, sàng tọa, dược phẩm trị bệnh. Ðây Ta nói trong nghĩa có cân đối. Như vậy, này các Tỷ-kheo, là hạng người hiền thiện thuần lương, có tốc lực, có sắc đẹp, có cân đối. Ba hạng người này, này các Tỷ-kheo, là ba hạng người hiền thiện thuần lương.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

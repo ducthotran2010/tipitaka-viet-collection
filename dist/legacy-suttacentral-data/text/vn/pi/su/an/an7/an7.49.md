@@ -40,8 +40,3 @@ Này các Tỷ-kheo, nếu Tỷ-kheo sống nhiều với các tưởng vô ngã
 
 Bảy tưởng này, này các Tỷ-kheo, được tu tập, được làm cho viên mãn, có quả lớn, có lợi ích lớn, thể nhập vào bất tử, lấy bất tử làm cứu cánh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

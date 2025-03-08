@@ -10,8 +10,3 @@ XIII. Phẩm Bệnh
 
 Này các Tỷ-kheo, năm pháp ngũ nghịch này, đưa đến đọa xứ, đưa đến địa ngục, không thể chữa trị.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -20,8 +20,3 @@ Lại nữa, này các Tỷ-kheo, Tỷ-kheo với tâm tùy tầm tùy tứ, v�
 
 Này Tỷ-kheo, như vậy Ta đã thuyết về học thuộc lòng nhiều, đã thuyết về thuyết trình nhiều, đã thuyết về đọc tụng nhiều, đã thuyết về suy tầm nhiều, đã thuyết về sống theo pháp. Này Tỷ-kheo, điều gì bậc Ðạo Sư cần phải làm cho các đệ tử vì hạnh phúc, vì lòng thương tưởng, vì lòng từ khởi lên, các điều ấy, Ta đã làm cho các Thầy. Này Tỷ-kheo, đây là những gốc cây, đây là những căn nhà trống. Này Tỷ-kheo, hãy tu Thiền, chớ có phóng dật, chớ có để về sau sẽ phải hối tiếc. Ðấy là lời giáo giới của Ta cho các Thầy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

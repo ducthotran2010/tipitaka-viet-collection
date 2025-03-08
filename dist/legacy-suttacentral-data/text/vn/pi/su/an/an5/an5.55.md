@@ -47,8 +47,3 @@ Này các Tỷ-kheo, nếu có ai nói rằng: “Là bẫy mồi toàn diện c
 > Họ đến bờ bên kia,  
 > Ðạt được lậu hoặc tận.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

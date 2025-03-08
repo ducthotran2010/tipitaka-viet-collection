@@ -20,8 +20,3 @@ Lại nữa, này Tỷ-kheo, trong khi Tỷ-kheo y cứ nơi tướng nào, do t
 
 Ðây là sái thời gian, mày Tỷ-kheo, để đi đến yết kiến Tỷ-kheo đã được tu tập về ý.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

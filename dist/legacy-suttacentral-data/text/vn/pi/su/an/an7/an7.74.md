@@ -14,8 +14,3 @@ Như vậy, này các Tỷ-kheo, tuổi thọ một trăm năm của loài Ngư�
 
 Này các Tỷ-kheo, những gì bậc Ðạo sư phải làm, vì hạnh phúc, vì lòng thương tưởng đệ tử, những việc ấy Ta đã làm, vì lòng thương tưởng các Thầy. Này các Tỷ-kheo, đây là những gốc cây, đây là những căn nhà không tịnh. Này các Tỷ-kheo, hãy Thiền định, chớ có phóng dật, chớ hối tiếc về sau. Ðó là lời giáo huấn của Ta cho các Thầy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

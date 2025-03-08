@@ -10,8 +10,3 @@ Luôn luôn thấy nữ nhân; do thấy, nên có liên hệ; do có liên hệ
 
 Này các Tỷ-kheo, đây là năm nguy hại đối với vị Tỷ-kheo sống liên hệ quá nhiều với các gia đình.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

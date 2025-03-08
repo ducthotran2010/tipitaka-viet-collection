@@ -12,8 +12,3 @@ Và này các Tỷ-kheo, thế nào là Tỷ-kheo đầy đủ tốc lực?
 
 Ðầy đủ với ba pháp này, này các Tỷ-kheo, Tỷ-kheo xúng đáng được cung kính, xứng đáng được tôn trọng, xúng đáng được cúng dường, xứng đáng được chắp tay, và ruộng phước vô thượng ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

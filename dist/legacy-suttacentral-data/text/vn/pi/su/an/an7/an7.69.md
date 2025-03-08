@@ -10,8 +10,3 @@ Cũng vậy, này các Tỷ-kheo, khi Thánh đệ tử nghĩ đến xuất gia,
 
 Như vậy trong sát-ma ấy, trong giây phút ấy, tiếng ấy truyền đến Phạm thiên giới. Ðây là uy lực của Tỷ-kheo đã đoạn tận các lậu hoặc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

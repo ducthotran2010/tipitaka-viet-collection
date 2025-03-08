@@ -8,8 +8,3 @@ XVIII. Phẩm Nam Cư Sĩ
 
 Có năm nghề buôn bán này, này các Tỷ-kheo, một nam cư sĩ không nên làm.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -28,8 +28,3 @@ Này các Tỷ-kheo, trước khi Như Lai, bậc A-la-hán, Chánh Ðẳng Giá
 
 Này các Tỷ-kheo, trước khi Như Lai, bậc A-la-hán, Chánh Ðẳng Giác được giác ngộ, trước khi thành Chánh Ðẳng Giác, còn là Bồ-tát năm mộng lớn này được hiện ra.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -26,8 +26,3 @@ Lại nữa, này Tỷ-kheo, Như Lai, bậc A-la-hán, Chánh Ðẳng Giác đ�
 
 Như vậy, này Tỷ-kheo, Như Lai, bậc A-la-hán, Chánh Ðẳng Giác đúng pháp pháp vương, y cứ pháp, tôn kính pháp, kính trọng pháp, tôn trọng pháp, lấy pháp làm tràng phan, lấy pháp làm ngọn cờ, lấy pháp làm tăng thượng, sắp đặt một sự phòng hộ, bảo vệ, chế ngự đúng pháp giữa các Tỷ-kheo, sau khi sắp đặt một sự phòng hộ, bảo vệ, chế ngự đúng pháp giữa các Tỷ-kheo ni, sau khi sắp đặt một sự bảo vệ, phòng hộ đúng pháp giữa các nam cư sĩ, sau khi sắp đặt một sự bảo vệ, phòng hộ đúng pháp giữa các nữ cư sĩ, Như Lai làm cho chuyển vận Vô thượng pháp luân với pháp, bánh xe ấy không một Sa-môn hay Bà-la-môn, Thiên Ma hay Phạm thiên, hay bất cứ ai ở đời có thể chuyển ngược lại.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -123,8 +123,3 @@ Những Tỷ-kheo nào, này các Tỷ-kheo, chặn đứng cả văn và nghĩa
 
 Những Tỷ-kheo nào, này các Tỷ-kheo, tùy thuận cả văn và nghĩa, bằng cách nắm giữ đúng đắn các kinh điển và những văn tự thích ứng, thì những Tỷ-kheo ấy, này các Tỷ-kheo, chịu trách nhiệm về hạnh phúc cho đa số, an lạc cho đa số, lợi ích cho đa số, hạnh phúc, và an lạc cho chư Thiên và loài Người. Ngoài ra, các Tỷ-kheo ấy, này các Tỷ-kheo, chất chứa nhiều phước đức, làm cho diệu pháp an trú.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

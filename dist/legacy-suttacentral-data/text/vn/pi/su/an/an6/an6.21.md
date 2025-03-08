@@ -22,8 +22,3 @@ Các Tỷ-kheo ấy vâng đáp Thế Tôn. Thế Tôn nói như sau:
 
 Này các Tỷ-kheo, những ai trong quá khứ đã thối đọa trong các thiện pháp, tất cả đều vì sáu pháp này, sẽ bị thối đọa trong các thiện pháp. Này các Tỷ-kheo, những ai trong tương lai sẽ bị thối đọa trong các thiện pháp, tất cả đều vì sáu pháp này, sẽ bị thối đọa trong các thiện pháp. Này các Tỷ kheo, những ai trong hiện tại bị thối đọa trong các thiện pháp, tất cả đều vì sáu pháp này, bị thối đọa trong các thiện pháp.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

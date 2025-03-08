@@ -23,8 +23,3 @@ Rồi Tôn giả Ananda đi đến Thế Tôn; sau khi đến, đảnh lễ Th�
 > Chỉ có Bậc Chân nhân  
 > Biến mãn mọi phương trời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

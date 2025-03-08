@@ -97,8 +97,3 @@ Rồi vua Munda bảo Piyaka, vị gìn giữ kho bạc:
 
 —Này Piyaka, hãy cho thiêu đốt thân của hoàng hậu Bhaddà, rồi xây tháp cho hoàng hậu. Bắt đầu từ hôm sau, chúng ta sẽ tắm rửa, sẽ thoa dầu, sẽ ăn cơm, sẽ lo làm các công việc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

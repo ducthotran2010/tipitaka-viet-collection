@@ -29,8 +29,3 @@ Này các Tỷ-kheo, say đắm bởi tham dục, bị trói buộc bởi tham d
 > Vượt sợ hãi oán thù,  
 > Mọi đau khổ vượt qua.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

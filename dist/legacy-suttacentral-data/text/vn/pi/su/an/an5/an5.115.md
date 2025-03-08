@@ -16,8 +16,3 @@ Không xan tham về chỗ ở, không xan tham về sự giúp đỡ các gia �
 
 Thành tựu năm pháp, này các Tỷ-kheo, một Tỷ-kheo-ni tương xứng như vậy được sanh lên cõi Trời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

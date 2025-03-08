@@ -64,8 +64,3 @@ Khi được nói vậy, Bà-la-môn Vassakàra, vị đại thần nước Maga
 
 Rồi Bà-la-môn Vassakàra, vị đại thần nước Magadha hoan hỷ tán thán lời dạy của Thế Tôn, từ chỗ ngồi đứng dậy và ra đi.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

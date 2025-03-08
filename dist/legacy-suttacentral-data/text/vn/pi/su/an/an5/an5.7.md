@@ -12,8 +12,3 @@ Ví như, này các Tỷ-kheo, có đứa con nít, trẻ nhỏ, ngây thơ đan
 
 Cũng vậy, này các Tỷ-kheo, cho đến khi nào vị Tỷ-kheo chưa gây được lòng tin đối với các thiện pháp, chưa gây được lòng hổ thẹn đối với các bất thiện pháp, chưa gây được lòng sợ hãi đối với các bất thiện pháp, chưa gây được tinh tấn đối với các thiện pháp; chưa gây được trí tuệ đối với các thiện pháp, cho đến khi ấy, này các Tỷ-kheo, Ta cần phải phòng hộ Tỷ-kheo ấy. Khi nào, này các Tỷ-kheo, Tỷ-kheo gây được lòng tin đối với các thiện pháp, gây được lòng hổ thẹn đối với các bất thiện pháp, gây được lòng sợ hãi đối với các bất thiện pháp, gây được lòng tinh tấn đối với các thiện pháp; gây được trí tuệ đối với các thiện pháp, thời khi ấy, này các Tỷ-kheo, Ta không còn săn sóc Tỷ-kheo ấy, nghĩ rằng: “Nay Tỷ-kheo ấy đã biết tự bảo vệ mình, không còn phóng dật nữa”.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

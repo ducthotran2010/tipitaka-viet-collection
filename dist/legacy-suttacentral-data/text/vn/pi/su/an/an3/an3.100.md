@@ -58,8 +58,3 @@ Hạng người như thế nào, này các Tỷ-kheo, có người làm nghiệp
 
 Ai nói như sau, này các Tỷ-kheo: “Người này làm nghiệp như thế nào, như thế nào, người ấy sẽ cảm thọ (quả) như vậy, như vậy”. Nếu sự kiện là vậy, này các Tỷ-kheo, thời không có đời sống Phạm hạnh, không có cơ hội để nêu rõ đau khổ được chơn chánh đoạn diệt. Và này các Tỷ-kheo, có ai nói như sau: “Người này làm nghiệp được cảm thọ như thế nào, như thế nào, người ấy sẽ cảm thọ quả dị thục như vậy, như vậy”. Nếu sự kiện là vậy, này các Tỷ-kheo, thời có đời sống Phạm hạnh, có cơ hội để nêu rõ đau khổ được chơn chánh đoạn diệt.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

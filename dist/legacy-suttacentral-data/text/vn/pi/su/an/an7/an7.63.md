@@ -103,8 +103,3 @@ Này Sujàtà, có bảy loại vợ này đối với người đàn ông. Con 
 
 —Bạch Thế Tôn, bắt đầu từ hôm nay, Thế Tôn hãy xem con là người vợ đối với chồng như người vợ nữ tỳ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -24,8 +24,3 @@ Lại nữa, này chư Hiền, Tỷ-kheo với các dao động đối với cá
 
 Này chư Hiền, Tỷ-kheo hay Tỷ-kheo-ni nào tuyên bố trước mặt tôi rằng, đã chứng được quả A-la-hán, tất cả vị ấy được đầy đủ bốn chi phần này, hoặc là một trong bốn chi phần này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

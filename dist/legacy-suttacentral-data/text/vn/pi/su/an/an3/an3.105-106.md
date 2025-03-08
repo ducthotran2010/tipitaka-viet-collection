@@ -12,8 +12,3 @@ Các Sa-môn hay Bà-la-môn nào, này các Tỷ-kheo, không như thật rõ b
 
 Các Sa-môn hay Bà-la-môn nào, này các Tỷ-kheo, như thật rõ biết vị ngọt là vị ngọt, nguy hại là nguy hại, xuất ly là xuất ly, các Sa-môn hay Bà-la-môn ấy, này các Tỷ-kheo, đối với Ta được công nhận là Sa-môn trong các hàng Sa-môn, được công nhận là các Bà-la-môn trong các hàng Bà-la-môn. Và các Tôn giả ấy, ngay trong hiện tại sẽ có chứng ngộ với thắng trí, chứng đạt và an trú mục đích của Sa-môn hạnh hay mục đích của Bà-la-môn hạnh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

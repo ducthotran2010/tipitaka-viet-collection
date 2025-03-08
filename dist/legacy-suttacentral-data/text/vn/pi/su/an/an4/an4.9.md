@@ -23,8 +23,3 @@ Bốn ái sanh khởi này, này các Tỷ-kheo, khi nào ái sanh, có thể sa
 > An trú, không thất niệm  
 > Vị ấy sống xuất gia.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

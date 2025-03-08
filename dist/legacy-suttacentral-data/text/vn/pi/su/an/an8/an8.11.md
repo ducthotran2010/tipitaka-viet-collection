@@ -52,8 +52,3 @@ Với tâm định tĩnh, thuần tịnh, trong sáng, không cấu nhiễm, kh�
 
 —Ðệ nhất là Tôn giả Gotama! Tối thắng là Tôn giả Gotama! Thật vi diệu thay, thưa Tôn giả Gotama! Thật vi diệu thay, thưa Tôn giả Gotama! Thưa Tôn giả Gotama, như người dựng đứng lại những gì bị quăng ngã xuống, phơi bày ra những gì bị che kín, chỉ đường cho những người bị lạc hướng, đem đèn sáng vào trong bóng tối, để những ai có mắt có thể thấy sắc. Cũng vậy, Chánh pháp đã được Thế Tôn dùng nhiều phương tiện trình bày giải thích. Con xin quy y Tôn giả Gotama, quy y Pháp, quy y chúng Tỷ-kheo. Mong Tôn giả Gotama nhận con làm đệ tử cư sĩ, từ nay cho đến mạng chung, con trọn đời quy ngưỡng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

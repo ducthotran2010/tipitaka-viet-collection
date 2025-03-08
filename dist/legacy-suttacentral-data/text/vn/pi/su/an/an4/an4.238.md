@@ -20,8 +20,3 @@ Này các Tỷ-kheo, đây là nghiệp không đen trắng, quả không đen t
 
 Này các Tỷ-kheo, có bốn loại nghiệp này, đã được Ta chứng ngộ với thắng trí và tuyên thuyết.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -31,8 +31,3 @@ Say sưa trong Kiêu mạn của tuổi trẻ, này các Tỷ-kheo, vị Tỷ-kh
 > ta sẽ không trở lui  
 > Ðích Phạm hạnh ta đến
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

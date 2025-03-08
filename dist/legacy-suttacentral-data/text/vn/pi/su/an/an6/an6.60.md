@@ -68,8 +68,3 @@ Rồi Citta Hatthisàriputta không bao lâu cạo bỏ râu tóc, đắp áo c�
 
 Và Tôn giả Citta Hatthisàriputta trở thành một vị A-la-hán.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

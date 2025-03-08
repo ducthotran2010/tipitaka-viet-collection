@@ -16,8 +16,3 @@ Khi kiếp đã chuyển hoại và dừng lại, này các Tỷ-kheo, thật kh
 
 Này các Tỷ-kheo, có bốn vô lượng của kiếp này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -16,8 +16,3 @@ Thành tựu sáu pháp, này các Tỷ-kheo, Tỷ-kheo có thể chứng đắc
 
 Thành tựu sáu pháp này, này các Tỷ-kheo, Tỷ-kheo có thể chứng đắc thiện pháp chưa chứng đắc, hay có thể tăng trưởng thiện pháp đã được chứng đắc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

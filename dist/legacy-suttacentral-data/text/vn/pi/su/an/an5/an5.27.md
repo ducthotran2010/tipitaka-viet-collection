@@ -10,8 +10,3 @@ III. Phẩm Năm Phần
 
 Này các Tỷ-kheo, thông minh, thường niệm, hãy tu tập vô lượng định. Với ai thông minh, thường niệm, hãy tu tập vô lượng định, tự mỗi người ấy, khởi lên năm trí này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

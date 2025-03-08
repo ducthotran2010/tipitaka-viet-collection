@@ -36,8 +36,3 @@ Này các Tỷ-kheo, với Tỷ-kheo làm bạn với thiện, thân hữu với
 
 Và này các Tỷ-kheo, khi Tỷ-kheo ấy đã trú trong năm pháp này, bốn pháp nữa cần phải tu tập. Cần phải tu tập tưởng bất tịnh để đoạn tận tham ái, cần phải tu tập từ tâm để đoạn tận sân, cần phải tu tập niệm hơi thở vô, hơi thở ra để cắt đứt tầm, cần phải tu tập tưởng vô thường để phá hoại ngã mạn. Này các Tỷ-kheo, với Tỷ-kheo có tưởng vô thường, tưởng vô ngã được an trú; với Tỷ-kheo có tưởng vô ngã, ngã mạn bị phá hoại, ngay trong hiện tại, đạt được Niết-bàn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

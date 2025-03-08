@@ -34,8 +34,3 @@ Và này các Tỷ-kheo, thế nào là người có tánh hiền thiện còn h
 
 Người này, này các Tỷ-kheo, được gọi là người có tánh hiền thiện còn hơn cả người có tánh hiền thiện.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

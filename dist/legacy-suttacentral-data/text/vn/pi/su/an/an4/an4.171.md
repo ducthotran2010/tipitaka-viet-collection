@@ -14,8 +14,3 @@ Hoặc này các Tỷ-kheo, do tự mình làm ý hành, do duyên này khởi l
 
 Này các Tỷ-kheo, trong những pháp này, có vô minh tháp tùng. Do sự đoạn diệt, ly tham, không có dư tàn của vô minh, thân hành ấy không có, do duyên này khởi lên lạc khổ nội tâm cho người ấy; khẩu hành ấy không có, do duyên này khởi lên lạc khổ nội tâm cho người ấy; ý hành không có, do duyên này khởi lên lạc khổ nội tâm cho người ấy. Thửa ruộng không có, căn cứ không có, xứ không có, duyên sự không có, do duyên này khởi lên lạc khổ nội tâm cho người ấy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -82,8 +82,3 @@ Này các Tỷ-kheo, chớ có sợ hãi các công đức. Này các Tỷ-kheo,
 > Hãy kính trọng diệu pháp,  
 > Hãy nhớ lời Phật dạy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

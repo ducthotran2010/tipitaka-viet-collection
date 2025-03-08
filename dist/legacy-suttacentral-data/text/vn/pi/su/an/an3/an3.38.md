@@ -12,8 +12,3 @@ IV. Phẩm Sứ Giả Của Trời
 
 “Kẻ vô văn phàm phu tự mình bị chết, không vượt khỏi chết, thấy người khác bị chết, lại bực phiền, hổ thẹn, ghê tởm, quên rằng mình cũng như vậy. Ta cũng bị chết, không vượt qua khỏi chết, sau khi thấy người khác chết, ta có thể bực phiền, hổ thẹn, ghê tởm sao? Như vậy, thật không xứng đáng cho ta”. Sau khi quan sát về ta như vậy, này các Tỷ-kheo, sự kiêu mạn của sự sống trong sự sống được đoạn trừ hoàn toàn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

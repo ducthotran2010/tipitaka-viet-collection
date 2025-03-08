@@ -22,8 +22,3 @@ Với thần biến thần thông, với ký thuyết thần thông, với giáo
 
 Với chánh tri kiến, với chánh trí, với chánh giải thoát, đầy đủ với ba pháp này, này các Tỷ-kheo, một Tỷ-kheo là tột cùng tối hảo, tột cùng an ổn khỏi các khổ ách, tột cùng Phạm hạnh, tột cùng cứu cánh, bậc tối thượng giữa chư Thiên và loài Người.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

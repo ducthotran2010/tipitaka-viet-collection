@@ -30,8 +30,3 @@ Những pháp này, này các Tỷ-kheo, là năm sức mạnh của bậc Hữu
 
 “Ta sẽ thành tựu tín lực, được gọi là hữu học lực... tàm lực... quý lực... tinh tấn lực... ta sẽ thành tựu tuệ lực, được gọi là hữu học lực”. Như vậy, này các Tỷ-kheo, các Thầy cần phải học tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

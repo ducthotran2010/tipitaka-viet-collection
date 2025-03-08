@@ -18,8 +18,3 @@ Rồi Tôn giả Sàriputta... ngồi một bên, Tôn giả Sàriputta bạch T
 
 Này Sàriputta, đây là nhân, đây là duyên, ở đây, có hạng người do buôn bán như vậy đi đến thất bại. Ðây là nhân, đây là duyên, này Sàriputta, ở đây, có hạng người do buôn bán như vậy, không thành tựu được như ý muốn. Ðây là nhân, đây là duyên, này Sàriputta, ở đây, có hạng người, do buôn bán như vậy, thành tựu được như ý muốn. Ðây là nhân, đây là duyên, này Sàriputta, ở đây, có hạng người do buôn bán như vậy được thành tựu ngoài ý muốn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

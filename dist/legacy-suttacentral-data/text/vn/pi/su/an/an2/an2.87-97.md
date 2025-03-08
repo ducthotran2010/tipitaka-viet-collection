@@ -28,8 +28,3 @@ IX. Phẩm Các Pháp
 
 Này các Tỷ-kheo, có hai pháp này. Thế nào là hai? Phạm thiện xảo và xuất Phạm thiện xảo. Những pháp này, này các Tỷ-kheo, là hai pháp.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

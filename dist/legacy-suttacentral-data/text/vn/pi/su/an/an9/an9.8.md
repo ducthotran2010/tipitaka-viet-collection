@@ -20,8 +20,3 @@ Một thời, Thế Tôn trú ở Ràjagaha (Vương Xá), tại núi Gijjhakùt
 
 “Tỷ-kheo nào là bậc A-la-hán, đã đoạn tận các lậu hoặc, đã thành tựu viên mãn, việc nên làm đã làm, đã đặt gánh nặng xuống, mục đích đã đạt được, hữu kiết sử đã đoạn tận, chơn chánh giải thoát; vị ấy không có thể vi phạm chín sự”.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -12,8 +12,3 @@ Với người có giới, này các Tỷ-kheo, với người gìn giữ giới
 
 Ví như, này các Tỷ-kheo, một cây, với cành và lá được đầy đủ, thời đọt cây ấy đi đến viên mãn, vỏ cây đi đến viên mãn, giác cây đi đến viên mãn, lõi cây đi đến viên mãn. Cũng vậy, này các Tỷ-kheo, với người có giới, với người giữ gìn giới, chánh định nhân vậy được đầy đủ. Do chánh định có mặt, với người chánh định được thành tựu, như thật tri kiến do vậy được thành tựu. Do như thật tri kiến có mặt, với người như thật tri kiến được thành tựu, nhàm chán, ly tham do vậy được thành tựu. Do nhàm chán, ly tham có mặt, với người nhàm chán, ly tham được thành tựu, giải thoát tri kiến do vậy được thành tựu.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -28,8 +28,3 @@ Này các Tỷ-kheo, đây là sợ hãi thứ năm về tương lai, hiện nay
 
 Năm sự sợ hãi về tương lai này, này các Tỷ-kheo, hiện nay chưa sanh khởi, nhưng sẽ sanh khởi trong tương lai. Các Thầy cần phải hoàn toàn rõ biết chúng. Sau khi hoàn toàn rõ biết, các Thầy cần phải tinh tấn để đoạn tận những sợ hãi ấy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

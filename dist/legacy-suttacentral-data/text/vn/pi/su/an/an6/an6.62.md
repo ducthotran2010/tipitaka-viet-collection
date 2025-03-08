@@ -92,8 +92,3 @@ Cũng vậy, ở đây này Aụnanda, với tâm của Ta, Ta rõ biết tâm c
 
 Ở đây, này Ananda, ba hạng người trước, một trong ba người ấy không phải bị thối đọa, một phải bị thối đọa, một bị rơi vào đọa xứ, địa ngục. Ở đây, này Ananda, trong ba hạng người sau, một trong ba hạng người này không phải bị thối đọa, một phải bị thối đọa, một được nhập Niết-bàn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

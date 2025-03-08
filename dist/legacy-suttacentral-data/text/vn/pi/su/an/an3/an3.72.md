@@ -30,8 +30,3 @@ Rồi một tà mạng đệ tử gia chủ đi đến Tôn giả Ananda; sau kh
 
 Thật vi diệu thay, thưa Tôn giả! Thật vi diệu thay, thưa Tôn giả! Thưa Tôn giả, người như dựng đứng lại những gì bị quăng ngã xuống ... Thưa Tôn giả Ananda, con nay xin quy y Thế Tôn, quy y Pháp và chúng Tăng. Mong Tôn giả Ananda nhận con làm đệ tử cư sĩ, từ nay cho đến mạng chung, con xin trọn đời quy ngưỡng!
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

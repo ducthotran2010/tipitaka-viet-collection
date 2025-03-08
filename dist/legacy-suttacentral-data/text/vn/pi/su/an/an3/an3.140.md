@@ -30,8 +30,3 @@ Như thế nào, này các Tỷ-kheo, là hạng người chưa được điều
 
 Ở đây, này các Tỷ-kheo, Tỷ-kheo như thật rõ biết: “Ðây là khổ”; như thật rõ biết: “Ðây là khổ tập”; như thật rõ biết: “Ðây là khổ diệt”; như thật rõ biết: “Ðây là con đường đưa đến khổ diệt”. Ðây Ta nói trong nghĩa có tốc lực. Nhưng khi được hỏi về thắng pháp thắng luật, vị ấy liền trả lời không có ngập ngừng. Ðây Ta nói trong nghĩa có sắc đẹp. Vị ấy có nhận được các đồ tư dụng, như y áo, đồ ăn khất thực, sàng tọa, dược phẩm trị bệnh. Ðây Ta nói trong nghĩa có cân đối. Như vậy, này các Tỷ-kheo, là người chưa có điều phục, có tốc lực, có sắc đẹp, có cân đối. Những hạng người này, này các Tỷ-kheo, là ba hạng người chưa có cân đối.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

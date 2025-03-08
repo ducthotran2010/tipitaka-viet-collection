@@ -36,8 +36,3 @@ Và này các Tỷ-kheo, thế nào là viên mãn về tri kiến?
 
 Do nhân viên mãn về giới, này các Tỷ-kheo, các loại hữu tình, sau khi thân hoại mạng chung, sanh vào cõi thiện, cõi Trời, cõi đời này. Do nhân viên mãn về tâm, này các Tỷ-kheo, các loại hữu tình, sau khi thân hoại mạng chung, sanh lên cõi thiện, cõi Trời, cõi đời này. Do nhân viên mãn về tri kiến, này các Tỷ-kheo, các loại hữu tình, sau khi thân hoại mạng chung, sanh lên cõi thiện, cõi Trời, cõi đời này. Những pháp này, này các Tỷ-kheo, là ba viên mãn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

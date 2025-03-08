@@ -62,8 +62,3 @@ Thành tựu với ba pháp này, này các Tỷ-kheo, người hiền trí khô
 
 Thành tựu với ba pháp này, này các Tỷ-kheo, tương xứng như vậy được sinh lên cõi Trời. Thế nào là ba? Có giữ giới và cấu uế của các giới được đoạn tận; không có tật đố và cấu uế của tật đố được đoạn tận; không có xan tham và cấu uế của xan tham được đoạn tận. Thành tựu với ba pháp này, đoạn tận ba cấu uế này, tương xứng như vậy được sanh lên cõi Trời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

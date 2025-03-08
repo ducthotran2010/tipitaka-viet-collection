@@ -16,8 +16,3 @@ Các Tỷ-kheo ấy vâng đáp Thế Tôn. Thế Tôn nói như sau:
 
 —Này các Tỷ-kheo, nếu các du sĩ ngoại đạo có hỏi như sau: “Thưa Hiền giả, tất cả pháp lấy gì làm căn bản? Tất cả pháp lấy gì làm sanh khỏi? Tất cả pháp lấy gì làm tập khởi? Tất cả pháp lấy gì làm chỗ tụ hội? Tất cả pháp lấy gì làm thượng thủ? Tất cả pháp lấy gì làm tăng thượng? Tất cả pháp lấy gì làm tối thượng? Tất cả pháp lấy gì làm lõi cây?” Ðược hỏi vậy, này các Tỷ-kheo, các Thầy trả lời như sau: “Này chư Hiền, các pháp lấy dục làm căn bản. Tất cả pháp lấy tác ý làm sanh khởi. Tất cả pháp lấy xúc làm tập khởi. Tất cả pháp lấy thọ làm chỗ tụ hội. Tất cả pháp lấy định làm thượng thủ. Tất cả pháp lấy niệm làm tăng thượng. Tất cả pháp lấy tuệ làm tối thượng. Tất cả pháp lấy giải thoát làm lõi cây”. Ðược hỏi như vậy, này các Tỷ-kheo, các Thầy hãy trả lời cho các du sĩ ngoại đạo ấy như vậy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -12,8 +12,3 @@ Mạn, ty mạn, quá mạn, tăng thượng mạn, cố chấp, ty liệt mạn
 
 Mạn, ty mạn, quá mạn, tăng thượng mạn, cố chấp, ty liệt mạn. Ðoạn tận sáu pháp này, này các Tỷ-kheo, có thể chứng ngộ quả A-la-hán.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

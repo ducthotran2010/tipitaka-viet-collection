@@ -12,8 +12,3 @@ IV. Phẩm Bố Thí
 
 Ở đây, này các Tỷ-kheo, có người bố thí cho Sa-môn, Bà-la-môn với đồ ăn, đồ uống... Nghe rằng: “: “Chư Thiên ở Phạm chúng thiên sống lâu, có dung sắc, được nhiều an lạc”, người ấy suy nghĩ như sau: “Mong rằng..” ....hay với gia chủ đại phú. Ta nói rằng: “Người ấy là người giữ giới, không phải là người ác giới, là người ly tham, không phải là người có tham”. Này các Tỷ-kheo, người giữ giới thành công, vì tâm hướng đến thanh tịnh. Này các Tỷ-kheo, người giữ giới thành công, vì tâm hướng đến ly tham. Này các Tỷ-kheo, tám pháp này là tám pháp thọ sanh do bố thí.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

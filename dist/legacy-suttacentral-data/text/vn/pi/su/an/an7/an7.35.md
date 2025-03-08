@@ -12,8 +12,3 @@ IV. Phẩm Chư Thiên
 
 —Lành thay, lành thay, này Sàriputta! Này Sàriputta, lời nói vắn tắt này của Ta, đã được Thầy hiểu ý nghĩa một cách rộng rãi như vậy. Ở đây, này Sàriputta, Tỷ-kheo tự mình tôn kính bậc Ðạo Sư... (như trên, với những thay đổi cần thiết)... một cách chơn thực, chơn chánh, đúng thời. Lời nói vắn tắt này của Ta, này Sàriputta, cần phải hiểu ý nghĩa một cách rộng rãi như vậy.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

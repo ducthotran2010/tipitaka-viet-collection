@@ -34,8 +34,3 @@ Này các Tỷ-kheo, có sáu Như Lai lực này của Như Lai, do thành tự
 
 Ở đây, này các Tỷ-kheo, liên hệ đến như thật trí này, về xứ là xứ, phi xứ là phi xứ, Ta tuyên bố rằng trí ấy chỉ có đối với người có Thiền định, không phải với người không Thiền định. Liên hệ đến như thật trí về quả báo tùy thuộc sở do, tùy theo sở nhân của các thọ nghiệp quá khứ, vị lai, hiện tại, Ta tuyên bố rằng trí ấy chỉ có đối với người có Thiền định, không phải với người không có Thiền định. Liên hệ đến như thật trí về sự tạp nhiễm, sự thanh tịnh, sự xuất khởi của những thành đạt về Thiền, về giải thoát, về định, Ta tuyên bố rằng trí ấy chỉ có đối với người có Thiền định, không phải với người không có Thiền định. Ở đây, này các Tỷ-kheo, liên hệ đến như thật trí, nhớ đến các đời sống quá khứ, Ta tuyên bố rằng trí ấy chỉ có đối với người có Thiền định, không phải với người không thiền định. Liên hệ đến như thật trí về sự sanh diệt của chúng sanh, Ta tuyên bố rằng trí ấy chỉ có đối với người có Thiền định. Ở đây, này các Tỷ-kheo, liên hệ đến như thật trí về sự đoạn diệt các lậu hoặc, Ta tuyên bố rằng trí ấy chỉ có đối với người có Thiền định, không phải với người không có thiền định . Như vậy, này các Tỷ-kheo, định là chánh đạo, không định là tà đạo.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

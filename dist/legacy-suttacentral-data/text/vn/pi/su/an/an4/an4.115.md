@@ -18,8 +18,3 @@ Tại đây, này các Tỷ-kheo, trường hợp này làm được thích ý, 
 
 Này các Tỷ-kheo, có bốn trường hợp này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

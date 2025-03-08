@@ -102,8 +102,3 @@ Bạch Thế Tôn, lời nói tốt đẹp này của Thế Tôn, con xin tùy h
 > Voi này từ bỏ thân,  
 > Nhập diệt, không lậu hoặc.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

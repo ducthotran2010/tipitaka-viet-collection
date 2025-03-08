@@ -41,8 +41,3 @@ Thành tựu với bốn pháp này, này các Tỷ-kheo, Tỷ-kheo không thể
 > Không có thể thối đọa,  
 > Tỷ-kheo gần Niết-bàn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

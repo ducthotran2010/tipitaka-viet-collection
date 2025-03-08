@@ -8,8 +8,3 @@ V. Phẩm Nhỏ
 
 Ai thuyết pháp cần phải liễu giải nghĩa, và cần phải liễu giải pháp. Ai nghe pháp cần phải liễu giải nghĩa và cần phải liễu giải pháp. Người thuyết pháp và cả người nghe pháp cần phải liễu giải nghĩa, và cần phải liễu giải pháp. Thấy rõ ba lợi ích này, này các Tỷ-kheo, là cần thiết cho một người thuyết pháp cho người khác.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

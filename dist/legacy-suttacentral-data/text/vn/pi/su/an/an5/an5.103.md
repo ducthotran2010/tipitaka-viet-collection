@@ -36,8 +36,3 @@ Cũng vậy, này các Tỷ-kheo, thành tựu năm pháp, kẻ ác Tỷ-kheo t�
 
 Thành tựu năm pháp, này các Tỷ-kheo, ác Tỷ-kheo tự mình xử sự như người bị mất gốc, bị tổn thương, có phạm tội, bị các người trí quở trách, làm nhiều điều vô phước.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

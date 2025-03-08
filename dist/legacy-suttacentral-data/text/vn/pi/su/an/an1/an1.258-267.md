@@ -24,8 +24,3 @@ Trong các vị đệ tử nữ cư sĩ ... nói chuyện một cách thân mậ
 
 Trong các vị nữ cư sĩ đệ tử của Ta, này các Tỷ-kheo, có lòng tịnh tín đối với lời nghe đồn tối thắng là Kàlì, nữ cư sĩ ở Kulagharikà.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

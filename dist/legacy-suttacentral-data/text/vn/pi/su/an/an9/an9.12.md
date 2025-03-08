@@ -36,8 +36,3 @@ Này Sàriputta, một số người du sĩ ngoại đạo là ngu si, không th
 
 Này Sàriputta, chín hạng người này, khi chết có dư y, được giải thoát khỏi địa ngục, được giải thoát khỏi loài bàng sanh, được giải thoát khỏi ngạ quỷ, được giải thoát khỏi cõi dữ, ác thú, đọa xứ. Nhưng này Sàriputta, cho đến nay, pháp môn này chưa được nói cho các Tỷ-kheo, các Tỷ-kheo-ni, các nam cư sĩ, các nữ cư sĩ. Vì cớ sao? Mong rằng khi nghe pháp môn này, họ không đem lại phóng dật. Lại nữa, này Sàriputta, pháp môn này được Ta nói đến vì Ta được hỏi đến.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

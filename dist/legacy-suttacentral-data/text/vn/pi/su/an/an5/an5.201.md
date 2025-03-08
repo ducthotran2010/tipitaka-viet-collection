@@ -14,8 +14,3 @@ Do nhân gì, do duyên gì, bạch Thế Tôn, sau khi Như Lai nhập diệt, 
 
 —Ở đây, này Kimbila, khi Như Lai nhập diệt, các Tỷ-kheo, Tỷ-kheo-ni, nam cư sĩ, nữ cư sĩ sống tôn trọng và vâng lời bậc Ðạo sư; sống tôn trọng và vâng lời Pháp; sống tôn trọng và vâng lời chúng Tăng; sống tôn trọng và vâng lời học pháp; sống tôn trọng và vâng lời lẫn nhau. Ðây là nhân, đây là duyên, này Kimbila, khi Như Lai nhập diệt, diệu pháp được tồn tại lâu dài.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

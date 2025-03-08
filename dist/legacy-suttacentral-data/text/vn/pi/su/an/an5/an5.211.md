@@ -10,8 +10,3 @@ Phạm tội bị tẩn xuất, chặt đứt con đường hướng thượng; 
 
 Tỷ-kheo nào, này các Tỷ-kheo, mắng nhiếc, mạ lỵ, các vị tu Phạm hạnh, phỉ báng bậc Thánh, vị ấy được chờ đợi năm sự nguy hại này.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

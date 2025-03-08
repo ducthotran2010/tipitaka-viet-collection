@@ -57,8 +57,3 @@ Này các Gia chủ, có bốn loại chung sống này.
 > Hân hoan được thỏa mãn,  
 > Ðúng với điều cầu mong.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

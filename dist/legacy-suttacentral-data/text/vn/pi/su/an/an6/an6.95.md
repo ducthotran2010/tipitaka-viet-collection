@@ -12,8 +12,3 @@ Này các Tỷ-kheo, đối với người có đầy đủ tri kiến, nhân v�
 
 Này các Tỷ-kheo, có sáu trường hợp này không thể xảy ra.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -28,8 +28,3 @@ Và này các Tỷ-kheo, thế nào là ác Tỷ-kheo dựa vào kẻ có quyề
 
 Ðầu đủ ba pháp này, này các Tỷ-kheo, ác Tỷ-kheo tự mình xử sự như một vật mất gốc, bị thương tích, phạm tội, bị kẻ trí quở trách, và tạo nên nhiều điều vô phước.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

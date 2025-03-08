@@ -30,8 +30,3 @@ Thế nào, này các Tỷ-kheo, là hạng người không hung dữ với đà
 
 Này các Tỷ-kheo, có bốn hạng người được ví dụ với các loại bò đực này, có mặt, hiện hữu ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -31,8 +31,3 @@ Vì rằng, những ai bị dục ái nhiễm, những ai bị dục tham trói 
 > Vì bị sanh và già  
 > Ám ảnh và chinh phục.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

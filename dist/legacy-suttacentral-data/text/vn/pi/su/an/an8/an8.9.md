@@ -34,8 +34,3 @@ Này các Tỷ-kheo, đây là Nanda chánh niệm tỉnh giác.
 
 Này các Tỷ-kheo, ai khác ngoài Nanda, thành tựu chế ngự các căn, biết tiết độ trong ăn uống, chú tâm cảnh giác, chánh niệm tỉnh giác? Nhờ vậy, Nanda có thể hành Phạm hạnh đầy đủ thanh tịnh.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -16,8 +16,3 @@ Không cố gắng đem lại thiệt hại cho các gia chủ, không cố gắ
 
 Ðối với Tỷ-kheo thành tựu tám pháp, này các Tỷ-kheo, nếu chúng Tăng muốn, chúng Tăng có thể giải tỏa buộc tội Yết-ma.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -14,8 +14,3 @@ Khiếm khuyết về giới, khiếm khuyết về tâm, khiếm khuyết về 
 
 —Ví như, này các Tỷ Kheo, một hột súc sắc chính xác, nếu được liệng về mặt trên, được nằm về mặt ấy, được nằm khéo đặt. Cũng vậy, này các Tỷ kheo, do nhân viên mãn về giới.... do nhân viên mãn về tâm .... do nhân viên mãn về tri kiến, này các Tỷ kheo, các loại hữu tình, sau khi thân hoại mạng chung, được sanh lên cõi thiện, cõi trời, cõi đời này. Các pháp này, này các Tỷ kheo, là ba viên mãn.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

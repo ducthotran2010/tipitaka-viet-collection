@@ -22,8 +22,3 @@ Rồi Thế Tôn sau khi đêm ấy đã mãn, gọi các Tỷ-kheo và nói:
 
 Ðối với các vị Tỷ-kheo khác không tôn kính bậc Ðạo Sư, họ được khích lệ trong sự tôn kính bậc Ðạo Sư. Và đối với các vị Tỷ-kheo khác có tôn kính bậc Ðạo Sư, vị ấy nói lên lời tán thán với họ như chân, như thật, đúng thời. Tự mình tôn kính Pháp... tự mình tôn kính Tăng... tự mình tôn kính học pháp... tự mình tôn kính thiện ngôn... tự mình tôn kính thiện bằng hữu và nói lời tán thán sự tôn kính thiện bằng hữu. Ðối với các Tỷ-kheo khác không tôn kính thiện bằng hữu, họ được khích lệ trong sự tôn kính thiện bằng hữu. Và đối với các Tỷ-kheo khác có tôn kính bằng hữu, vị ấy nói lên lời tán thán với họ như chân, như thật, đúng thời. Này Sàriputta lời nói vắn tắt này của Ta cần phải hiểu ý nghĩa một cách rộng rãi.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

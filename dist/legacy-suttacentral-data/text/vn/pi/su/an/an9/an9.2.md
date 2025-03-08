@@ -12,8 +12,3 @@ Rồi một Tỷ-kheo đi đến Thế Tôn, sau khi đến, đảnh lễ Thế 
 
 Ở đây, này các Tỷ-kheo, Tỷ-kheo sau khi cân nhắc (ước lượng), thực hành một sự, sau khi cân nhắc, kham nhẫn một sự, sau khi cân nhắc, từ bỏ một sự, sau khi cân nhắc, trừ sạch một sự. Như vậy, này các Tỷ-kheo, Tỷ-kheo đầy đủ y chỉ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

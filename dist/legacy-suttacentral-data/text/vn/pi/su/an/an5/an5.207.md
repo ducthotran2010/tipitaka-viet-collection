@@ -10,8 +10,3 @@ Trị đói, trừ khát, điều hòa phong, làm sạch bọng đái (hay thuy
 
 Này các Tỷ-kheo, có năm lợi ích này của cháo.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

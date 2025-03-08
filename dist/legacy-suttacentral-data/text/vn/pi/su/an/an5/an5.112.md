@@ -16,8 +16,3 @@ Không đi quá xa hay không quá gần, cầm lấy bình bát đã được c
 
 Thành tựu năm pháp này, này các Tỷ-kheo, một Tỷ-kheo đáng được nhận làm Sa-môn tùy tùng.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

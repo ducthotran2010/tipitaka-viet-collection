@@ -24,8 +24,3 @@ XXVIII. Phẩm Tham
 
 Ðể liễu tri, đoạn diệt, đoạn tận, trừ diệt, tiêu diệt, ly tham, đoạn diệt, từ bỏ, xả bỏ sân... si... phẫn nộ... hiềm hận... gièm pha... nhiệt não... tật đố... xan tham... man trá... xảo trá... ngoan cố... bồng bột... mạn... quá mạn... say mê... phóng dật, bốn pháp này cần phải tu tập.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

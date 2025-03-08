@@ -26,8 +26,3 @@ Và này các Tỷ kheo, thế nào là hạng người có sấm và có mưa?
 
 Này các Tỷ-kheo, có bốn hạng người giống như các loại mây này có mặt, hiện hữu ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

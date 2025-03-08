@@ -16,8 +16,3 @@ Không xan tham đối với trú xứ; không xan tham đối với gia đình;
 
 Có năm lợi ích này, này các Tỷ-kheo, nếu sống đồng đều tại một chỗ.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

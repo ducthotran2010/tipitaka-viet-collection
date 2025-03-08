@@ -62,8 +62,3 @@ Bốn Thiền này thuộc tăng thượng tâm, hiện tại lạc trú, có đ
 
 Này các Tỷ-kheo, khi nào Thánh đệ tử thành tựu bảy diệu pháp này và bốn Thiền này, thuộc tăng thượng tâm, hiện tại lạc trú, có được không khó khăn, có được không mệt nhọc, có được không phí sức, này các Tỷ-kheo, đây gọi là Thánh đệ tử không bị ma chinh phục, không bị ác chinh phục.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

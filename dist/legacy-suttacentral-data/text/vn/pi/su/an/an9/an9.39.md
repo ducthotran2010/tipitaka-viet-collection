@@ -24,8 +24,3 @@ Này các Tỷ-kheo, trong khi Tỷ-kheo vượt khỏi các sắc tưởng mộ
 
 Này các Tỷ-kheo, trong khi Tỷ-kheo vượt khỏi Không vô biên xứ một cách hoàn toàn, biết rằng: “Thức là vô biên”, chứng đạt và an trú Thức vô biên xứ... Vượt khỏi Thức vô biên xứ một cách hoàn toàn, biết rằng: “Không có vật gì”, chứng đạt và an trú Vô sở hữu xứ... Vượt khỏi Vô sở hữu xứ một cách hoàn toàn, chứng đạt và an trú Phi tưởng phi phi tưởng xứ. Trong khi Tỷ-kheo vượt Phi tưởng phi phi tưởng xứ một cách hoàn toàn, chứng đạt và an trú Diệt thọ tưởng định; vị ấy thấy với trí tuệ, các lậu hoặc được đoạn tận. Này các Tỷ-kheo, như vậy gọi là Tỷ-kheo này làm Ác ma mù mắt, đoạn tuyệt mắt của Màra, không còn dấu tích, khiến Ác ma không thấy đường đi lối về. Vị ấy đã vượt qua triền phược ở đời.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.

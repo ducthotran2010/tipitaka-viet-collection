@@ -26,8 +26,3 @@ Ta không thấy một pháp nào khác, này các Tỷ-kheo, đưa đến trạ
 
 Ta không thấy một pháp nào khác, này các Tỷ-kheo, đưa đến nghi hoặc chưa sanh không sanh khởi, hay nghi hoặc đã sanh được đoạn tận, này các Tỷ-kheo, như lý tác ý. Nếu như lý tác ý, này các Tỷ-kheo, nghi hoặc chưa sanh không sanh khởi, hay nghi hoặc đã sanh được đoạn tận.
 
-Translated by: Hòa thượng Thích Minh Châu dịch Việt
-
-These texts have been used with the kind permission of the webmaster of [http://www.budsas.net/](http://www.budsas.net/)
-
-Prepared for SuttaCentral by Ayya Vimala.
