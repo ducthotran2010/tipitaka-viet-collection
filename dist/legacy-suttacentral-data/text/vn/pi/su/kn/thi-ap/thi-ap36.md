@@ -4,7 +4,7 @@ TẬP BA
 
 IV. PHẨM SÁT-ĐẾ-LỴ
 
-# 36\. Ký Sự về Rūpanandā
+# 36. Ký Sự về Rūpanandā
 
 Trước đây chín mươi mốt kiếp, đã hiện khởi đấng Lãnh Đạo tên Vipassī, là vị có ánh mắt thu hút, là bậc Hữu Nhãn về tất cả các pháp.
 
@@ -59,9 +59,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Rūpanandātrước mặt đức Thế Tôn đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Rūpanandā là phần thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

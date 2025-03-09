@@ -4,7 +4,7 @@ TẬP BA
 
 I. PHẨM SUMEDHĀ
 
-# 10\. Ký Sự về Udakadāyikā
+# 10. Ký Sự về Udakadāyikā
 
 Ở thành phố Bandhumatī, tôi đã là cô gái đội nước. Tôi sống nhờ vào việc đội nước. Nhờ vào việc ấy, tôi nuôi dưỡng các đứa trẻ.
 
@@ -44,9 +44,3 @@ TÓM LƯỢC CỦA PHẨM NÀY:
 Vị ni Sumedhā, cô gái dâng dây nịt, dâng cúng mái che, và con đường đi, cô gái có tràng hoa sậy, cô gái thí vật thực, muỗng (thức ăn), và cô gái dâng cúng đóa sen xanh, cô gái dâng các ngọn đèn, và luôn cả cô gái bố thí nước. Các câu kệ ngôn đã được tính đếm ở đây là một trăm câu kệ ngôn và ba mươi câu thêm vào đó nữa.
 
 Phẩm Sumedhā là phẩm thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

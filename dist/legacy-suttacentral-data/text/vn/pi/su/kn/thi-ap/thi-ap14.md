@@ -4,7 +4,7 @@ TẬP BA
 
 II. PHẨM MỘT LẦN TRAI GIỚI
 
-# 14\. Ký Sự về Ekāsanadāyikā
+# 14. Ký Sự về Ekāsanadāyikā
 
 Lúc bấy giờ, tôi đã là cô thiếu nữ ở tại thành phố Haṃsavatī. Mẹ và luôn cả cha của tôi, họ đều đã đi làm công việc.
 
@@ -57,9 +57,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Vị tỳ khưu ni Ekāsanadāyikā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Ekāsanadāyikā là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

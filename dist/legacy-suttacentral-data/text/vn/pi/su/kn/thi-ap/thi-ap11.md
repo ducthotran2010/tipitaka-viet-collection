@@ -4,7 +4,7 @@ TẬP BA
 
 II. PHẨM MỘT LẦN TRAI GIỚI
 
-# 11\. Ký Sự về Ekuposathikā
+# 11. Ký Sự về Ekuposathikā
 
 Ở thành phố Bandhumatī, có vị Sát-đế-lỵ tên là Bandhumā. Vào ngày trăng tròn, vị ấy thực hành Bát quan trai giới.
 
@@ -49,9 +49,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Ekuposathikā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Ekuposathikā là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

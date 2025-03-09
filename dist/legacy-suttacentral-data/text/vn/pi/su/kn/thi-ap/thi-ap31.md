@@ -4,7 +4,7 @@ TẬP BA
 
 IV. PHẨM SÁT-ĐẾ-LỴ
 
-# 31\. Ký Sự về các Tỳ Khưu Ni đứng đầu là Yasavatī
+# 31. Ký Sự về các Tỳ Khưu Ni đứng đầu là Yasavatī
 
 “Bạch đấng Đại Hiền Trí, chúng con xin trình rằng, tất cả các hữu của chúng con đã được cạn kiệt, mối liên hệ với sự tái sanh của chúng con đã được mở ra, và các lậu hoặc của chúng con không còn.
 
@@ -33,9 +33,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Mười tám ngàn vị tỳ khưu ni công nương dòng Sát-đế-lỵ đứng đầu là Yasavatī trước mặt đức Thế Tôn đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về mười tám ngàn vị tỳ khưu ni đứng đầu là Yasavatī là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -4,7 +4,7 @@ TẬP BA
 
 III. PHẨM KUṆḌALAKESĪ
 
-# 30\. Ký Sự về 18. 000 vị Tỳ Khưu Ni
+# 30. Ký Sự về 18. 000 vị Tỳ Khưu Ni
 
 Mười tám ngàn vị tỳ khưu ni xuất thân dòng Sakya đứng đầu là Yasodharā đã đi đến gặp đấng Toàn Giác.
 
@@ -134,9 +134,3 @@ Phẩm Kuṇḍalakesī là phẩm thứ ba.
 
 TÓM LƯỢC CỦA PHẨM NÀY:  
 Vị ni Kuṇḍalā, vị ni Kisāgotamī, luôn cả vị ni Dhammadinnā, vị ni Sakulā, vị ni Nandā cao quý, vị ni Soṇā, vị ni Bhaddākāpilānī, vị ni Yasodharā, mười ngàn tỳ khưu ni, và mười tám ngàn vị ni, (tổng cộng) là bốn trăm bảy mươi sáu câu kệ cả thảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

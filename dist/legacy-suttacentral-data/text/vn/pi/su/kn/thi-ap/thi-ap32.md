@@ -4,7 +4,7 @@ TẬP BA
 
 IV. PHẨM SÁT-ĐẾ-LỴ
 
-# 32\. Ký Sự về các vị Tỳ Khưu Ni Thiếu Nữ Bà-la-môn
+# 32. Ký Sự về các vị Tỳ Khưu Ni Thiếu Nữ Bà-la-môn
 
 “Bạch đấng Đại Hiền Trí, tám mươi bốn ngàn vị ni xuất thân gia tộc Bà-la-môn, có tay chân mềm mại, là thuộc về Ngài trước đây.
 
@@ -97,9 +97,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tám mươi bốn ngàn vị tỳ khưu ni thiếu nữ Bà-la-môn trước mặt đức Thế Tôn đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về tám mươi bốn ngàn vị tỳ khưu ni là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

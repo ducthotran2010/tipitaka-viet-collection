@@ -4,7 +4,7 @@ TẬP BA
 
 I. PHẨM SUMEDHĀ
 
-# 2\. Ký Sự về Mekhalādāyikā
+# 2. Ký Sự về Mekhalādāyikā
 
 Tôi đã là người cho thực hiện ngôi bảo tháp của đức Thế Tôn Siddhattha. Tôi đã dâng cúng sợi dây thắt lưng đến công trình xây dựng dành cho bậc Đạo Sư.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Mekhalādāyikā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Mekhalādāyikā là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

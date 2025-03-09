@@ -4,7 +4,7 @@ TẬP BA
 
 III. PHẨM KUṆḌALAKESĪ
 
-# 24\. Ký Sự về Sakulā
+# 24. Ký Sự về Sakulā
 
 Trước đây một trăm ngàn kiếp, vị Lãnh Đạo, đấng Chiến Thắng tên Padumuttara, bậc thông suốt về tất cả các pháp đã hiện khởi.
 
@@ -79,9 +79,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Sakulā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Sakulā là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

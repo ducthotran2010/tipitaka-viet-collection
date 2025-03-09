@@ -4,7 +4,7 @@ TẬP BA
 
 II. PHẨM MỘT LẦN TRAI GIỚI
 
-# 18\. Ký Sự về Khemā
+# 18. Ký Sự về Khemā
 
 Trước đây một trăm ngàn kiếp, đấng Chiến Thắng tên Padumuttara, bậc Hữu Nhãn về tất cả các pháp, đấng Lãnh Đạo đã hiện khởi.
 
@@ -64,7 +64,7 @@ Khi ấy, có vị quân vương là đức vua xứ Kāsi tên Kikī ở tại 
 
 Tôi đã là người con gái lớn nhất của vị ấy, được nổi danh là Samaṇī. Sau khi lắng nghe Giáo Pháp của đấng Chiến Thắng cao cả, tôi đã xin xuất gia.
 
-446\. Cha đã không cho phép chúng tôi. Khi ấy, là những người con gái của đức vua khéo được nuôi dưỡng, chúng tôi đã thực hành Phạm hạnh của người thiếu nữ ngay tại nhà trong hai chục ngàn năm, không xao lãng. Được hoan hỷ, bảy người con gái đã vui thích trong việc hộ độ đức Phật.
+446. Cha đã không cho phép chúng tôi. Khi ấy, là những người con gái của đức vua khéo được nuôi dưỡng, chúng tôi đã thực hành Phạm hạnh của người thiếu nữ ngay tại nhà trong hai chục ngàn năm, không xao lãng. Được hoan hỷ, bảy người con gái đã vui thích trong việc hộ độ đức Phật.
 
 Samaṇī, Samaṇaguttā, Bhikkhunī, Bhikkhudāsikā, Dhammā, luôn cả Sudhammā nữa, và Saṅghadāsikā là thứ bảy.
 
@@ -199,9 +199,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Khemā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Khemā là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

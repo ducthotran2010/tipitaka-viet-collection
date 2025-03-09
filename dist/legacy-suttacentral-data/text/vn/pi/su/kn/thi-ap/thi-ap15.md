@@ -4,7 +4,7 @@ TẬP BA
 
 II. PHẨM MỘT LẦN TRAI GIỚI
 
-# 15\. Ký Sự về Pañcadīpadāyikā
+# 15. Ký Sự về Pañcadīpadāyikā
 
 Khi ấy, tôi đã là nữ du sĩ ở thành phố Haṃsavatī. Có sự tầm cầu thiện pháp, tôi (đã) đi từ tu viện này đến tu viện khác.
 
@@ -59,9 +59,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Vị tỳ khưu ni Pañcadīpadāyikā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Pañcadīpadāyikā là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

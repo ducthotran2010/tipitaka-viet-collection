@@ -4,7 +4,7 @@ TẬP BA
 
 III. PHẨM KUṆḌALAKESĪ
 
-# 28\. Ký Sự về Yasodharā
+# 28. Ký Sự về Yasodharā
 
 Vào một thuở nọ, đấng Lãnh Đạo nhân loại đang ngự tại một sườn núi cao quý ở thành Rājagaha đáng yêu, trù phú.
 
@@ -168,9 +168,3 @@ Nàng ấy bố thí chính bản thân mình vì mục đích phước báu c�
 Tỳ khưu ni Yasodharā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Yasodharā là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

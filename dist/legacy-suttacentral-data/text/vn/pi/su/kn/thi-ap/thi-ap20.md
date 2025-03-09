@@ -4,7 +4,7 @@ TẬP BA
 
 II. PHẨM MỘT LẦN TRAI GIỚI
 
-# 20\. Ký Sự về Paṭācārā
+# 20. Ký Sự về Paṭācārā
 
 Trước đây một trăm ngàn kiếp, vị Lãnh Đạo, đấng Chiến Thắng tên Padumuttara, bậc thông suốt về tất cả các pháp đã hiện khởi.
 
@@ -36,7 +36,7 @@ Khi ấy, có vị quân vương là đức vua xứ Kāsi tên Kikī ở tại 
 
 Tôi đã là người con gái thứ ba của vị (vua) ấy, được nổi danh là Bhikkhunī. Sau khi lắng nghe Giáo Pháp của đấng Chiến Thắng cao cả, tôi đã xin xuất gia.
 
-611\. Cha đã không cho phép chúng tôi. Khi ấy, là những người con gái của đức vua khéo được nuôi dưỡng, chúng tôi đã thực hành Phạm hạnh của người thiếu nữ ngay tại nhà trong hai chục ngàn năm, không xao lãng. Được hoan hỷ, bảy người con gái đã vui thích trong việc hộ độ đức Phật.
+611. Cha đã không cho phép chúng tôi. Khi ấy, là những người con gái của đức vua khéo được nuôi dưỡng, chúng tôi đã thực hành Phạm hạnh của người thiếu nữ ngay tại nhà trong hai chục ngàn năm, không xao lãng. Được hoan hỷ, bảy người con gái đã vui thích trong việc hộ độ đức Phật.
 
 Samaṇī, Samaṇaguttā, Bhikkhunī, Bhikkhudāsikā, Dhammā, luôn cả Sudhammā nữa, và Saṅghadāsikā là thứ bảy.
 
@@ -101,9 +101,3 @@ TÓM LƯỢC CỦA PHẨM NÀY:
 Vị ni Ekuposathikā, luôn cả vị ni Saḷalā, rồi vị ni Modakā, vị ni Ekāsanā, vị ni Pañcadīpā, vị ni Naḷamālī, và vị ni Gotamī, vị ni Khemā, vị ni Uppalavaṇṇā, và tỳ khưu ni Paṭācārā, (tổng cộng) là năm trăm câu kệ ngôn và chín câu nữa cũng được thêm vào đó.
 
 Phẩm Một Lần Trai Giới là phẩm thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

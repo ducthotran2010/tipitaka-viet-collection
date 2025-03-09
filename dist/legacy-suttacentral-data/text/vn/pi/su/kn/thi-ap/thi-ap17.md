@@ -4,7 +4,7 @@ TẬP BA
 
 II. PHẨM MỘT LẦN TRAI GIỚI
 
-# 17\. Ký sự về Mahāpajāpatigotamī
+# 17. Ký sự về Mahāpajāpatigotamī
 
 Một thời, bậc Quang Đăng của thế gian, đấng Điều Phục Nhân trú tại thành Vesālī, khu Đại Lâm, ở ngôi nhà mái nhọn, trong giảng đường xinh xắn.
 
@@ -170,7 +170,7 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 
 Khi ấy, với sự cho phép của đức Phật, bà Gotamī đã quỳ xuống (đảnh lễ) đấng Toàn Giác rồi đã bay lên không trung và đã thị hiện nhiều loại thần thông.
 
-308\. Là một, bà đã trở thành nhiều, và tương tợ như thế là nhiều trở thành một. Bà đã hiện ra, biến mất, đi xuyên qua vách tường, xuyên qua ngọn núi không bị chướng ngại. Bà cũng đã chìm vào trong trái đất. Bà đã đi ở trên nước mà không làm chao động như là ở trên đất liền.
+308. Là một, bà đã trở thành nhiều, và tương tợ như thế là nhiều trở thành một. Bà đã hiện ra, biến mất, đi xuyên qua vách tường, xuyên qua ngọn núi không bị chướng ngại. Bà cũng đã chìm vào trong trái đất. Bà đã đi ở trên nước mà không làm chao động như là ở trên đất liền.
 
 Khi ấy, bà đã di chuyển với thế kiết già tương tợ như loài chim ở trên không trung. Bằng thân bà đã thể hiện sự tác động đến tận chỗ ngụ của đấng Phạm Thiên.
 
@@ -389,9 +389,3 @@ Do đó, các ngươi hãy là hòn đảo của chính bản thân, có hành x
 Vị tỳ khưu ni Mahāpajāpatigotamī đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Mahāpajāpatigotamī là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

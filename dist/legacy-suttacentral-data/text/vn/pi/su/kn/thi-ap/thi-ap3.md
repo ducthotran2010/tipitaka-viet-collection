@@ -4,7 +4,7 @@ TẬP BA
 
 I. PHẨM SUMEDHĀ
 
-# 3\. Ký Sự về Maṇḍapadāyikā
+# 3. Ký Sự về Maṇḍapadāyikā
 
 Mái che dành cho đấng Hiền Trí Koṇāgamana đã được tôi cho thực hiện. Và tôi đã thường xuyên dâng cúng y đến đức Phật, bậc quyến thuộc của thế gian.
 
@@ -19,9 +19,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Maṇḍapadāyikā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Maṇḍapadāyikā là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

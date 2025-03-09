@@ -4,7 +4,7 @@ TẬP BA
 
 III. PHẨM KUṆḌALAKESĪ
 
-# 23\. Ký Sự về Dhammadinnā
+# 23. Ký Sự về Dhammadinnā
 
 Trước đây một trăm ngàn kiếp, vị Lãnh Đạo, đấng Chiến Thắng tên Padumuttara, bậc thông suốt về tất cả các pháp đã hiện khởi.  
   
@@ -23,7 +23,7 @@ Khi ấy, Ngài đã tán dương và đã thiết lập vị tỳ khưu ni là 
 
 Tôi đã thỉnh mời đức Thiện Thệ đấng Lãnh Đạo Thế Gian cùng với hội chúng, rồi đã dâng cúng đại thí và đã ước nguyện vị thế ấy.
 
-742\. Sau đó, với giọng có âm điệu đều đều vang vang, đấng Thiện Thệ đã nói với tôi rằng: “Này người thiếu nữ hiền thục là người dâng vật thực, được vui thích trong việc hộ độ Ta cùng với hội chúng, được gắn bó trong việc lắng nghe Chánh Pháp, với tâm ý được tăng trưởng về đức hạnh, nàng hãy hoan hỷ, nàng sẽ đạt được kết quả của điều nguyện ước.
+742. Sau đó, với giọng có âm điệu đều đều vang vang, đấng Thiện Thệ đã nói với tôi rằng: “Này người thiếu nữ hiền thục là người dâng vật thực, được vui thích trong việc hộ độ Ta cùng với hội chúng, được gắn bó trong việc lắng nghe Chánh Pháp, với tâm ý được tăng trưởng về đức hạnh, nàng hãy hoan hỷ, nàng sẽ đạt được kết quả của điều nguyện ước.
 
 Vào một trăm ngàn kiếp về sau này, bậc Đạo Sư tên Gotama, thuộc dòng dõi, xuất thân gia tộc Okkāka sẽ xuất hiện ở thế gian.
 
@@ -39,7 +39,7 @@ Tôi đã là người con gái thứ sáu của vị (vua) ấy được nổi 
 
 Tụng phẩm thứ ba.
 
-751\. Cha đã không cho phép chúng tôi. Là những người con gái của đức vua khéo được nuôi dưỡng có sự cư ngụ cùng với gia đình, chúng tôi đã thực hành Phạm hạnh của người thiếu nữ trong hai chục ngàn năm, không xao lãng. Được hoan hỷ, bảy người con gái đã vui thích trong việc hộ độ đức Phật.
+751. Cha đã không cho phép chúng tôi. Là những người con gái của đức vua khéo được nuôi dưỡng có sự cư ngụ cùng với gia đình, chúng tôi đã thực hành Phạm hạnh của người thiếu nữ trong hai chục ngàn năm, không xao lãng. Được hoan hỷ, bảy người con gái đã vui thích trong việc hộ độ đức Phật.
 
 Samaṇī, Samaṇaguttā, Bhikkhunī, Bhikkhudāsikā, Dhammā, luôn cả Sudhammā nữa, và Saṅghadāsikā là thứ bảy.
 
@@ -78,9 +78,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Dhammadinnā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Dhammadinnā là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

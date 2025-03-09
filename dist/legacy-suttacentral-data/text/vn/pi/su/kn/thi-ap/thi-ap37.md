@@ -4,13 +4,13 @@ TẬP BA
 
 IV. PHẨM SÁT-ĐẾ-LỴ
 
-# 37\. Ký Sự về Aḍḍhakāsī
+# 37. Ký Sự về Aḍḍhakāsī
 
 Ở vào kiếp Bhadda này, trong số các vị đang thuyết giảng đã hiện khởi đấng cao quý tên là Kassapa, có danh tiếng vĩ đại, là thân quyến của đấng Phạm Thiên.
 
 Khi ấy, sau khi xuất gia trong Giáo Pháp của vị Phật ấy, con đã thu thúc trong giới bổn Pātimokkha và ở năm giác quan.
 
-1274\. Là người có sự tri túc trong vật thực và còn được gắn bó trong việc tỉnh thức nữa, trong khi sống con có thiền tập được gắn bó. Với tâm ác xấu, con đã mắng nhiếc vị tỳ khưu ni có lậu hoặc đã được xa lìa. Và khi ấy, con đã nói rằng: “Đồ kỹ nữ.” Do ác nghiệp ấy, con đã bị nung nấu ở địa ngục.
+1274. Là người có sự tri túc trong vật thực và còn được gắn bó trong việc tỉnh thức nữa, trong khi sống con có thiền tập được gắn bó. Với tâm ác xấu, con đã mắng nhiếc vị tỳ khưu ni có lậu hoặc đã được xa lìa. Và khi ấy, con đã nói rằng: “Đồ kỹ nữ.” Do ác nghiệp ấy, con đã bị nung nấu ở địa ngục.
 
 Do phần dư sót của chính nghiệp ấy, con đã bị sanh ra trong gia đình kỹ nữ, đa phần bị phụ thuộc vào người khác cho đến cuộc sống cuối cùng.
 
@@ -39,9 +39,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Aḍḍhakāsī trước mặt đức Thế Tôn đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Aḍḍhakāsī là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

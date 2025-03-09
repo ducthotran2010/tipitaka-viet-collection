@@ -4,7 +4,7 @@ TẬP BA
 
 III. PHẨM KUṆḌALAKESĪ
 
-# 29\. Ký Sự về 10. 000 vị Tỳ Khưu Ni
+# 29. Ký Sự về 10. 000 vị Tỳ Khưu Ni
 
 Vào thuở bốn a-tăng-kỳ và một trăm ngàn kiếp, đấng Chiến Thắng, vị Lãnh Đạo Thế Gian tên là Dīpaṅkara đã hiện khởi.
 
@@ -39,9 +39,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Mười ngàn vị tỳ khưu ni đứng đầu là Yasodharā trước mặt đức Thế Tôn đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về mười ngàn vị tỳ khưu ni là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

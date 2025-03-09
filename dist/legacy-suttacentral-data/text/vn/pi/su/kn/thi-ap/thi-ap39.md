@@ -4,7 +4,7 @@ TẬP BA
 
 IV. PHẨM SÁT-ĐẾ-LỴ
 
-# 39\. Ký Sự về Ambapālī
+# 39. Ký Sự về Ambapālī
 
 Vị có vòng hoa đội đầu được phát ra hào quang là bậc Đại Hiền Trí tên Phussa. Con đã là người em gái của vị ấy. Con đã được sanh ra trong gia tộc Sát-đế-lỵ.
 
@@ -41,9 +41,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Ambapālī trước mặt đức Thế Tôn đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Ambapālī là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

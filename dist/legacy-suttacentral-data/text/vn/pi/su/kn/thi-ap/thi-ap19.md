@@ -4,7 +4,7 @@ TẬP BA
 
 II. PHẨM MỘT LẦN TRAI GIỚI
 
-# 19\. Ký Sự về Uppalavaṇṇā
+# 19. Ký Sự về Uppalavaṇṇā
 
 Tỳ khưu ni Uppalavaṇṇā, được đạt đến sự toàn hảo về thần thông, đã đảnh lễ ở bàn chân của bậc Đạo Sư rồi đã nói lời nói này:
 
@@ -102,7 +102,7 @@ Khi ấy, có vị quân vương là đức vua xứ Kāsi tên Kikī ở tại 
 
 Tôi đã là người con gái thứ hai của vị (vua) ấy có tên là Samaṇagutta. Sau khi lắng nghe Giáo Pháp của đấng Chiến Thắng cao cả, tôi đã xin xuất gia.
 
-560\. Cha đã không cho phép chúng tôi. Khi ấy, là những người con gái của đức vua khéo được nuôi dưỡng, chúng tôi đã thực hành Phạm hạnh của người thiếu nữ ngay tại nhà trong hai chục ngàn năm, không xao lãng. Được hoan hỷ, bảy người con gái đã vui thích trong việc hộ độ đức Phật.
+560. Cha đã không cho phép chúng tôi. Khi ấy, là những người con gái của đức vua khéo được nuôi dưỡng, chúng tôi đã thực hành Phạm hạnh của người thiếu nữ ngay tại nhà trong hai chục ngàn năm, không xao lãng. Được hoan hỷ, bảy người con gái đã vui thích trong việc hộ độ đức Phật.
 
 Samaṇī, Samaṇaguttā, Bhikkhunī, Bhikkhudāsikā, Dhammā, luôn cả Sudhammā nữa, và Saṅghadāsikā là thứ bảy.
 
@@ -126,7 +126,7 @@ Khi đạt được tuổi thanh niên, những người con trai ấy trong lú
 
 Không có những người con trai cao quý ấy, tôi đây có sự sầu muộn. Chết đi, tôi đã được sanh ra ở ngôi làng nhỏ tại sườn núi Isigili.
 
-573\. Khi ấy, tôi đã lớn lên, có con cái. Và tôi đã mang món cháo cho những người con trai và cả người chồng nữa. Trong khi đi tôi đã nhìn thấy tám vị Lãnh Đạo Độc Giác đang đi vào làng để khất thực, và đã tưởng nhớ lại những người con trai. Khi ấy, bầu sữa tôi đã tiết ra ngoài bởi lòng thương yêu những người con trai của tôi.
+573. Khi ấy, tôi đã lớn lên, có con cái. Và tôi đã mang món cháo cho những người con trai và cả người chồng nữa. Trong khi đi tôi đã nhìn thấy tám vị Lãnh Đạo Độc Giác đang đi vào làng để khất thực, và đã tưởng nhớ lại những người con trai. Khi ấy, bầu sữa tôi đã tiết ra ngoài bởi lòng thương yêu những người con trai của tôi.
 
 Sau đó, được tịnh tín tôi đã tự tay mình dâng món cháo đến các vị ấy. Từ nơi ấy chết đi, tôi đã đạt đến vườn hoa Nandana ở cõi Tam Thập.
 
@@ -171,9 +171,3 @@ Quả vậy, tôi đã thành công mỹ mãn, đã thành tựu tam minh, đã 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được tôi đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Tỳ khưu ni Uppalavaṇṇā đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

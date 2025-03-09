@@ -4,7 +4,7 @@ TẬP BA
 
 II. PHẨM MỘT LẦN TRAI GIỚI
 
-# 12\. Ký Sự về Salalapupphikā
+# 12. Ký Sự về Salalapupphikā
 
 Khi ấy, tôi đã là loài kim-sỉ-điểu cái ở bờ sông Candabhāgā. Tôi đã nhìn thấy đấng Nhân Ngưu, vị Trời của chư Thiên, đang đi kinh hành.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Salalapupphikā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Salalapupphikā là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

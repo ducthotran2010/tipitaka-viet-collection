@@ -4,7 +4,7 @@ TẬP BA
 
 IV. PHẨM SÁT-ĐẾ-LỴ
 
-# 40\. Ký Sự về Pesalā
+# 40. Ký Sự về Pesalā
 
 Ở vào kiếp Bhadda này, trong số các vị đang thuyết giảng đã hiện khởi đấng cao quý tên là Kassapa, có danh tiếng vĩ đại, là thân quyến của đấng Phạm Thiên.
 
@@ -49,9 +49,3 @@ GIỜ LÀ PHẦN TÓM LƯỢC CỦA CÁC PHẨM:
 Ký Sự về Trưởng Lão Ni được đầy đủ.
 
 Bộ Kinh Apadāna được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

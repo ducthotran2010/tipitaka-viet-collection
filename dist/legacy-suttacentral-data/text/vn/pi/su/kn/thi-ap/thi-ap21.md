@@ -4,7 +4,7 @@ TẬP BA
 
 III. PHẨM KUṆḌALAKESĪ
 
-# 21\. Ký Sự về Kuṇḍalakesā
+# 21. Ký Sự về Kuṇḍalakesā
 
 Trước đây một trăm ngàn kiếp, đấng Chiến Thắng tên Padumuttara, bậc Hữu Nhãn về tất cả các pháp, đấng Lãnh Đạo đã hiện khởi.
 
@@ -38,7 +38,7 @@ Khi ấy, có vị quân vương là đức vua xứ Kāsi tên Kikī ở tại 
 
 Tôi đã là người con gái thứ tư của vị (vua) ấy được nổi danh là “Bhikkhudāsī.” Sau khi lắng nghe Giáo Pháp của đấng Chiến Thắng cao cả, tôi đã xin xuất gia.
 
-656\. Cha đã không cho phép chúng tôi. Khi ấy, là những người con gái của đức vua khéo được nuôi dưỡng, chúng tôi đã thực hành Phạm hạnh của người thiếu nữ ngay tại nhà trong hai chục ngàn năm, không xao lãng. Được hoan hỷ, bảy người con gái đã vui thích trong việc hộ độ đức Phật.
+656. Cha đã không cho phép chúng tôi. Khi ấy, là những người con gái của đức vua khéo được nuôi dưỡng, chúng tôi đã thực hành Phạm hạnh của người thiếu nữ ngay tại nhà trong hai chục ngàn năm, không xao lãng. Được hoan hỷ, bảy người con gái đã vui thích trong việc hộ độ đức Phật.
 
 Samaṇī, Samaṇaguttā, Bhikkhunī, Bhikkhudāsikā, Dhammā, luôn cả Sudhammā nữa, và Saṅghadāsikā là thứ bảy.
 
@@ -78,7 +78,7 @@ Khi ấy, tôi đã quăng gã Sattuka ấy vào hóc núi, rồi đã đi đế
 
 Và khi ấy, sau khi đã nhổ lên toàn bộ những sợi tóc của tôi bằng nhíp, họ đã cho tôi xuất gia và đã chỉ dạy giáo lý không có gián đoạn.
 
-677\. Tôi đã học xong (giáo lý) ấy từ họ. Tôi đã ngồi xuống mỗi một mình và đã suy xét về (giáo lý) ấy. Có con chó tha bàn tay người đã bị đứt lìa và đã đánh rơi ở cạnh tôi rồi bỏ chạy. Sau khi nhìn thấy cảnh tượng (ấy), tôi đã nhặt lấy bàn tay có đầy dòi bọ ấy.
+677. Tôi đã học xong (giáo lý) ấy từ họ. Tôi đã ngồi xuống mỗi một mình và đã suy xét về (giáo lý) ấy. Có con chó tha bàn tay người đã bị đứt lìa và đã đánh rơi ở cạnh tôi rồi bỏ chạy. Sau khi nhìn thấy cảnh tượng (ấy), tôi đã nhặt lấy bàn tay có đầy dòi bọ ấy.
 
 Sau khi từ chỗ ấy đứng dậy, bị chấn động tôi đã hỏi những người đồng đạo. Họ đã nói rằng: “Những vị tỳ khưu dòng Sakya biết rõ ý nghĩa ấy.”
 
@@ -86,7 +86,7 @@ Sau khi từ chỗ ấy đứng dậy, bị chấn động tôi đã hỏi nhữ
 
 Và đấng Lãnh Đạo ấy đã thuyết Pháp cho tôi về: “Uẩn, xứ, giới, đề mục bất mỹ, vô thường, khổ não, vô ngã.”
 
-682\. Sau khi lắng nghe Giáo Pháp của vị ấy, tôi đã làm cho Pháp nhãn được thanh tịnh. Sau đó, được hiểu rõ Chánh Pháp, tôi đã yêu cầu sự xuất gia và sự tu lên bậc trên. Khi ấy, đấng Lãnh Đạo ấy đã nói rằng: “Này cô gái hiền thục, hãy đến.” Khi ấy, tôi đã được tu lên bậc trên. Tôi đã nhìn thấy một ít nước.
+682. Sau khi lắng nghe Giáo Pháp của vị ấy, tôi đã làm cho Pháp nhãn được thanh tịnh. Sau đó, được hiểu rõ Chánh Pháp, tôi đã yêu cầu sự xuất gia và sự tu lên bậc trên. Khi ấy, đấng Lãnh Đạo ấy đã nói rằng: “Này cô gái hiền thục, hãy đến.” Khi ấy, tôi đã được tu lên bậc trên. Tôi đã nhìn thấy một ít nước.
 
 Với sự rửa sạch bàn chân, tôi đã biết được là có sự tiêu hoại với nước. Khi ấy, tôi đã tự suy xét rằng: “Tất cả các hành cũng là tương tợ như thế.”
 
@@ -109,9 +109,3 @@ Quả vậy, tôi đã thành công mỹ mãn, đã thành tựu tam minh, đã 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được tôi đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Tỳ khưu ni Bhaddā Kuṇḍalakesā đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

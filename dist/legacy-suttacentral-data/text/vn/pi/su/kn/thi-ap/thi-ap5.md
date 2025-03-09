@@ -4,7 +4,7 @@ TẬP BA
 
 I. PHẨM SUMEDHĀ
 
-# 5\. Ký Sự về Naḷamālikā
+# 5. Ký Sự về Naḷamālikā
 
 Khi ấy, tôi đã là loài kim-sỉ-điểu cái ở bờ sông Candabhāgā. Tôi đã nhìn thấy đức Phật, bậc Vô Nhiễm, đấng Tự Chủ, bậc không bị đánh bại.
 
@@ -27,9 +27,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Naḷamālikā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Naḷamālikā là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

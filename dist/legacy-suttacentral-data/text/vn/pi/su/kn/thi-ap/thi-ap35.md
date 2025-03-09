@@ -4,7 +4,7 @@ TẬP BA
 
 IV. PHẨM SÁT-ĐẾ-LỴ
 
-# 35\. Ký Sự về Sukkā
+# 35. Ký Sự về Sukkā
 
 Trước đây chín mươi mốt kiếp, đã hiện khởi đấng Lãnh Đạo tên Vipassī, là vị có ánh mắt thu hút, là vị thấy rõ tất cả các pháp.
 
@@ -73,9 +73,3 @@ Tỳ khưu ni Sukkā trước mặt đức Thế Tôn đã nói lên những l�
 Ký sự về trưởng lão ni Sukkā là phần thứ năm.
 
 Tụng phẩm thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

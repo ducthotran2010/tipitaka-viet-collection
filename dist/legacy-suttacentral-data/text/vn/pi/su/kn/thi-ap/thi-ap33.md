@@ -4,7 +4,7 @@ TẬP BA
 
 IV. PHẨM SÁT-ĐẾ-LỴ
 
-# 33\. Ký Sự về Uppaladāyikā
+# 33. Ký Sự về Uppaladāyikā
 
 Ở thành phố Aruṇavatī, có vị Sát-đế-lỵ tên là Aruṇa. Con đã là người vợ của vị vua ấy. Có một lần con đã khiến (người) đưa con đi (du ngoạn).
 
@@ -59,9 +59,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Uppaladāyikā trước mặt đức Thế Tôn đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Uppaladāyikā là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

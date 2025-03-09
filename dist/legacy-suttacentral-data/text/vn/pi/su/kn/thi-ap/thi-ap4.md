@@ -4,7 +4,7 @@ TẬP BA
 
 I. PHẨM SUMEDHĀ
 
-# 4\. Ký Sự về Saṅkamanatthā
+# 4. Ký Sự về Saṅkamanatthā
 
 Trong lúc đức Thế Tôn Vipassī, bậc Trưởng Thượng của thế gian như thế ấy đang bước đi trên đường, đang tiếp độ chúng sanh.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Saṅkamanatthā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Saṅkamanatthā là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

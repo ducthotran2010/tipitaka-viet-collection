@@ -4,7 +4,7 @@ TẬP BA
 
 I. PHẨM SUMEDHĀ
 
-# 1\. Ký Sự về Sumedhā
+# 1. Ký Sự về Sumedhā
 
 Vào thời đức Thế Tôn Koṇāgamana, chúng tôi gồm ba người bạn gái thân thiết đã dâng cúng trú xá ở tại chỗ cư ngụ mới là tu viện của hội chúng.
 
@@ -47,9 +47,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tỳ khưu ni Sumedhā đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão ni Sumedhā là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.
