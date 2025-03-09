@@ -1,8 +1,6 @@
- 
-
 PHẬT SỬ
 
-# 6\. Lịch Sử Đức Phật Sumana:
+# 6. Lịch Sử Đức Phật Sumana:
 
 Sau (đức Phật) Maṅgala, vị Lãnh Đạo tên Sumana là bậc Tối Thượng của tất cả chúng sanh, không ai sánh bằng về tất cả các pháp (giới, định, tuệ).
 
@@ -97,9 +95,3 @@ Trí tuệ vô song ấy và các châu báu không gì so sánh ấy, tất c�
 Đức Phật Sumana, bậc có danh tiếng, đã Niết Bàn tại tu viện Aṅgāra. Ngôi bảo tháp của đấng Chiến Thắng dành cho vị ấy đã được dựng lên cao bốn do-tuần ở ngay tại nơi ấy.
 
 Lịch sử đức Phật Sumana là phần thứ tư.
-
-Translated by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Ayya Vimala.

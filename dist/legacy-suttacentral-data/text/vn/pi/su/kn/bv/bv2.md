@@ -1,8 +1,6 @@
- 
-
 PHẬT SỬ
 
-# 2\. Phần Nói về Sumedha:
+# 2. Phần Nói về Sumedha:
 
 Vào thuở bốn a-tăng-kỳ và một trăm ngàn kiếp, có thành phố tên Amara là đáng nhìn, xinh xắn.
 
@@ -379,9 +377,3 @@ Giống như mọi con sông đều chảy xuôi về biển cả, tương tợ 
 Khi ấy, được họ tán dương và ca ngợi, vị ấy đã thọ trì mười pháp. Và trong khi làm tròn đủ các pháp ấy, vị ấy đã tiến vào khu rừng thẳm.
 
 Dứt phần nói về Sumedha.
-
-Translated by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Ayya Vimala.

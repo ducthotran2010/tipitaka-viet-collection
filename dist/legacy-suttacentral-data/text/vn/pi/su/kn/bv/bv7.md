@@ -1,8 +1,6 @@
- 
-
 PHẬT SỬ
 
-# 7\. Lịch Sử Đức Phật Revata:
+# 7. Lịch Sử Đức Phật Revata:
 
 Sau (đức Phật) Sumana, có vị Lãnh Đạo, đấng Chiến Thắng tên Revata là vô song, tối thượng, không có tương đương, không gì sánh được.
 
@@ -87,9 +85,3 @@ Và thân thể như là châu báu ấy, Giáo Pháp không gì tương đươn
 Đức Phật Revata, bậc có danh tiếng, vị Đại Hiền Triết ấy đã Niết Bàn. Đã có sự phân tán xá-lợi từ xứ sở ấy đến khắp các nơi.
 
 Lịch sử đức Phật Revata là phần thứ năm.
-
-Translated by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Ayya Vimala.

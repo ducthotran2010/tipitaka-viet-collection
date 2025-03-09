@@ -1,8 +1,6 @@
- 
-
 PHẬT SỬ
 
-# 9\. Lịch Sử Đức Phật Anomadassī:
+# 9. Lịch Sử Đức Phật Anomadassī:
 
 Sau (đức Phật) Sobhita, đấng Toàn Giác Anomadassī là đấng Tối Thượng Nhân có danh tiếng vô lường, có oai lực khó mà vượt trội.
 
@@ -87,9 +85,3 @@ Bậc Đạo Sư có danh tiếng vô lượng ấy và hai vị (Thinh Văn hà
 Đấng Chiến Thắng, bậc Đạo Sư Anomadassī đã Niết Bàn tại tu viện Dhamma. Ngôi bảo tháp của đấng Chiến Thắng dành cho vị ấy có chiều cao hai mươi lăm (do-tuần) ở ngay tại nơi ấy.
 
 Lịch sử đức Phật Anomadassī là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Ayya Vimala.

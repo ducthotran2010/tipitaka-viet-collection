@@ -1,8 +1,6 @@
- 
-
 PHẬT SỬ
 
-# 8\. Lịch Sử Đức Phật Sobhita:
+# 8. Lịch Sử Đức Phật Sobhita:
 
 Sau (đức Phật) Revata, vị Lãnh Đạo tên Sobhita là định tĩnh, có tâm thanh tịnh, không kẻ sánh bằng, không người đối thủ.
 
@@ -87,9 +85,3 @@ Sau khi đã ban lời giáo huấn và nhắc nhở các chúng sanh còn lại
 Đức Phật Sobhita, đấng Toàn Giác cao quý đã Niết Bàn tại tu viện Sīha. Đã có sự phân tán xá-lợi từ xứ sở ấy đến khắp các nơi.
 
 Lịch sử đức Phật Sobhita là phần thứ sáu.
-
-Translated by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Ayya Vimala.

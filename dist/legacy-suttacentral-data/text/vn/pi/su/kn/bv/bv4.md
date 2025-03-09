@@ -1,8 +1,6 @@
- 
-
 PHẬT SỬ
 
-# 4\. Lịch Sử Đức Phật Koṇḍañña:
+# 4. Lịch Sử Đức Phật Koṇḍañña:
 
 Sau (đức Phật) Dīpaṅkara, vị Lãnh Đạo tên Koṇḍañña có vinh quang vô tận, danh tiếng vô cùng, không thể đo lường, khó thể đạt đến.
 
@@ -87,9 +85,3 @@ Thần thông ấy và (thiền) định đã được phát triển toàn diệ
 Đức Phật Koṇḍañña, bậc có niềm vinh quang, đã Niết Bàn tại tu viện Canda. Ngôi bảo tháp đẹp đẽ (dành cho vị ấy) đã được dựng lên cao bảy do-tuần ở ngay tại nơi ấy.
 
 Lịch sử đức Phật Koṇḍañña là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Ayya Vimala.

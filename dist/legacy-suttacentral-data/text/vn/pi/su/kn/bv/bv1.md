@@ -1,8 +1,6 @@
- 
-
 PHẬT SỬ
 
-# 1\. Chương Con Đường Kinh Hành Bằng Châu Báu:
+# 1. Chương Con Đường Kinh Hành Bằng Châu Báu:
 
 Kính lễ đức Thế Tôn, bậc A-la-hán, đấng Chánh Biến Tri!
 
@@ -169,9 +167,3 @@ Bằng trí tuệ hướng về các kiếp sống trước đây, Ngài đã gi
 (Lịch sử ấy) là điều làm tiêu tan các sự đắm say, là sự xua đi các nỗi buồn rầu, là việc hoàn toàn thoát khỏi luân hồi, là đạo lộ tiêu diệt tất cả khổ đau, các ngươi hãy nghiêm trang theo dõi.”
 
 Dứt Chương Con Đường Kinh Hành Bằng Châu Báu.
-
-Translated by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Ayya Vimala.

@@ -1,8 +1,6 @@
- 
-
 PHẬT SỬ
 
-# 5\. ­Lịch Sử Đức Phật Maṅgala:
+# 5. ­Lịch Sử Đức Phật Maṅgala:
 
 Sau (đức Phật) Koṇḍañña, vị Lãnh Đạo tên là Maṅgala đã hủy diệt bóng tối ở thế gian và nâng cao ngọn đuốc Chánh Pháp.
 
@@ -93,9 +91,3 @@ Sau khi đã chỉ cho thế gian luôn cả chư thiên thấy được bản c
 Đức Phật Maṅgala đã Niết Bàn tại công viên tên là Vessara. Ngôi bảo tháp của đấng Chiến Thắng dành cho vị ấy đã được dựng lên cao ba mươi do-tuần ở ngay tại nơi ấy.
 
 Lịch sử đức Phật Maṅgala là phần thứ ba.
-
-Translated by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Ayya Vimala.

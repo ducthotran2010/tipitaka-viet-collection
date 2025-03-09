@@ -1,8 +1,6 @@
- 
-
 PHẬT SỬ
 
-# 3\. Lịch Sử Đức Phật Dīpaṅkara:
+# 3. Lịch Sử Đức Phật Dīpaṅkara:
 
 Lúc bấy giờ, sau khi đã dâng vật thực đến đấng Lãnh Đạo Thế Gian cùng với hội chúng (tỳ khưu), họ đã đi đến nương nhờ (quy y) bậc Đạo Sư Dīpaṅkara ấy.
 
@@ -69,9 +67,3 @@ Thần thông ấy, danh tiếng ấy, và các bánh xe châu báu ấy ở hai
 Đấng Chiến Thắng, bậc Đạo Sư Dīpaṅkara đã Niết Bàn tại tu viện Nandā. Bảo tháp của đấng Chiến Thắng dành cho vị ấy có chiều cao ba mươi sáu do-tuần là ở ngay tại nơi ấy.”
 
 Lịch sử đức Phật Dīpaṅkara là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Ayya Vimala.
