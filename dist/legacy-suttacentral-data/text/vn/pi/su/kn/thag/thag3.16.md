@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 185\. Vimala
+# 185. Vimala
 
 “Sau khi lánh xa các bạn bè ác xấu, nên giao thiệp các nhân vật tối thượng, và nên đứng vững trong sự giáo huấn của vị ấy trong khi mong mỏi sự an lạc không bị lay động.
 
@@ -22,9 +22,3 @@ Vị Passika, và vị Yasoja, vị Sāṭimattiya và vị Upāli, vị Uttarap
 Ở nhóm ba, vị trưởng lão Vimala đã thành tựu ở Niết Bàn. Mười sáu vị trưởng lão đã thuật lại bốn mươi tám câu kệ.”
 
 Nhóm Ba được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

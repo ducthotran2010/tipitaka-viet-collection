@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 161\. Kumārakassapa
+# 161. Kumārakassapa
 
 “Ôi chư Phật! Ôi các Pháp (Giải Thoát)! Ôi các sự thành tựu của bậc Đạo Sư của chúng ta! Với Ngài, vị đệ tử sẽ chứng ngộ Giáo Pháp như thế ấy.
 
@@ -11,9 +11,3 @@ Trải qua nhiều kiếp không thể đếm được, họ đã tự thân ch�
 Đại đức trưởng lão Kumārakassapa đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Kumārakassapa.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

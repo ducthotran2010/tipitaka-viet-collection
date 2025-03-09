@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-16 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 253\. Sela
+# 253. Sela
 
 “‘Bạch Thế Tôn, ngài có thân hình vẹn toàn, có ánh sáng rực rỡ, được thiện sanh, có vẻ đáng mến, có màu da như vàng, có răng trắng tinh, có sự tinh tấn.
 
@@ -61,9 +61,3 @@ Ba trăm vị tỳ khưu này đứng yên, chắp tay. Bậc đấng Anh Hùng,
 Đại đức trưởng lão Sela đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sela.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

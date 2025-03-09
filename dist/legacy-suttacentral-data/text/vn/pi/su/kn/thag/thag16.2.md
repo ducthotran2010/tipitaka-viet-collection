@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-16 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 249\. Pārāsariya
+# 249. Pārāsariya
 
 “Vị Sa-môn tỳ khưu Pārāsariya, ngồi đơn độc một mình, sống tách ly, chứng thiền, đã khởi suy nghĩ rằng:
 
@@ -49,9 +49,3 @@ Vị ấy có mục đích, vị ấy đứng vững ở Giáo Pháp, sau khi th
 Đại đức trưởng lão Pārāsariya đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Pārāsariya.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-4 NHÓM BỐN
+NHÓM BỐN
 
-# 196\. Sappaka
+# 196. Sappaka
 
 “Vào lúc con hạc có cặp cánh trắng trong sạch, bị hoảng hốt vì nỗi sợ hãi đối với đám mây đen, bay về tổ, có sự mong mỏi chỗ trú ngụ, khi ấy con sông Ajakaraṇī khiến tôi thích thú.
 
@@ -15,9 +15,3 @@ Khéo bỏ rơi được bầy rắn, những con ếch có giọng tốt kêu i
 Đại đức trưởng lão Sappaka đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sappaka.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

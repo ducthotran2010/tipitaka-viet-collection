@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 165\. Visākhapañcālaputta
+# 165. Visākhapañcālaputta
 
 “Chớ nâng mình lên, và chớ gây khó dễ những người khác, chớ nên bôi nhọ, chớ nên nhục mạ vị đã đi đến bờ kia, và chớ nên nói lời ca ngợi bản thân ở giữa các đám đông, không tự kiêu, có lời nói chừng mực, là người có sự hành trì tốt đẹp.
 
@@ -11,9 +11,3 @@ Với vị có sự nhìn thấy ý nghĩa vô cùng vi tế, vi diệu, là v�
 Đại đức trưởng lão Visākhapañcālaputta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Visākhapañcālaputta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

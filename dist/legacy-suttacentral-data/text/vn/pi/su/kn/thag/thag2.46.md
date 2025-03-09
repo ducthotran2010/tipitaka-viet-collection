@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 166\. Cūḷaka
+# 166. Cūḷaka
 
 “Những con chim công kêu réo, có mồng xinh, có lông đuôi xinh, có cổ màu xanh xinh xinh, có khuôn mặt đẹp, có những tiếng kêu êm dịu. Và thêm nữa, đại địa cầu này có thảm cỏ đẹp có nước khéo tưới ướt đẫm, bầu trời có những áng mây xinh xắn.
 
@@ -11,9 +11,3 @@ Với dáng vóc vô cùng thích hợp của người có tâm ý tốt đẹp,
 Đại đức trưởng lão Cūḷaka đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Cūḷaka.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

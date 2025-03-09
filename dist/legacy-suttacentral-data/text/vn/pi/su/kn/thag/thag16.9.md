@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-16 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 256\. Anuruddha
+# 256. Anuruddha
 
 “Sau khi lìa bỏ mẹ và cha, chị em gái, thân quyến, và anh em trai, sau khi từ bỏ năm loại dục trần, chính Anuruddha tham thiền.
 
@@ -63,9 +63,3 @@ Tại ngôi làng Veḷuva của xứ Vajji, bên dưới lùm tre, do sự cạ
 Đại đức trưởng lão Anuruddha đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Anuruddha.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

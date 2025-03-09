@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 173\. Dhaniya
+# 173. Dhaniya
 
 “Người có ước vọng về đời sống Sa-môn, nếu mong muốn sống an lạc, không nên chê bai y áo, nước uống, và thức ăn thuộc về hội chúng.
 
@@ -13,9 +13,3 @@ Người có ước vọng về đời sống Sa-môn, nếu mong muốn sống 
 Đại đức trưởng lão Dhaniya đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Dhaniya.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-10 NHÓM MƯỜI
+NHÓM MƯỜI
 
-# 234\. Ekavihāriya
+# 234. Ekavihāriya
 
 “Nếu không tìm thấy người nào khác ở phía trước hoặc ở phía sau, là điều thoải mái vô cùng cho người đang sống một mình ở khu rừng.
 
@@ -27,9 +27,3 @@ Tôi đây, với ý định đã được tròn đủ giống như mặt trăng
 Đại đức trưởng lão Ekavihāriya đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Ekavihāriya.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

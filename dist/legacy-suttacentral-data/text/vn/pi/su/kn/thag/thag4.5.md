@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-4 NHÓM BỐN
+NHÓM BỐN
 
-# 190\. Jambuka
+# 190. Jambuka
 
 “Trong năm mươi lăm năm, tôi đã mang bụi bặm cáu ghét. Trong khi thọ dụng bữa ăn mỗi tháng một lần, tôi đã nhỏ bỏ râu và tóc.
 
@@ -15,9 +15,3 @@ Hãy nhìn xem sự đi đến nương nhờ, hãy nhìn xem bản chất tốt 
 Đại đức trưởng lão Jambuka đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Jambuka.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

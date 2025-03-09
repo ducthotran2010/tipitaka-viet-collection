@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 201\. Sumana
+# 201. Sumana
 
 “Điều nào trong số các pháp (tu tập) mà vị thầy tế độ, trong lúc mong mỏi cho con, đã hỗ trợ cho con (là người) đang ước ao sự Bất Tử, điều cần phải thực hiện ấy đã được con thực hiện.
 
@@ -17,9 +17,3 @@ Thầy đã chỉ dạy cho con sự hành trì của bậc Thánh, có lòng th
 Đại đức trưởng lão Sumana đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sumana.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

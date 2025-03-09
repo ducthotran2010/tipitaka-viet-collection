@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 139\. Nanda
+# 139. Nanda
 
 “Do sự tác ý không theo đúng đường lối, tôi đã bị vướng bận với việc trang sức. Và tôi đã tự kiêu, chao đảo, và bị khổ sở bởi sự luyến ái ở các dục.
 
@@ -11,9 +11,3 @@ Nhờ vào đức Phật, vị thân quyến của mặt trời, vị thiện x�
 Đại đức trưởng lão Nanda đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Nanda.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

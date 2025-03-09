@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 206\. Vijitasena
+# 206. Vijitasena
 
 “Này tâm, ta sẽ buộc chặt ngươi tựa như buộc chặt con voi ở chốt cửa. Này mạng lưới dục vọng, này kẻ sanh ra thân thể, ta sẽ không xúi giục ngươi về việc xấu xa.
 
@@ -17,9 +17,3 @@ Ta sẽ trói buộc ngươi bằng niệm. Có bản thể trong sạch, ta s�
 Đại đức trưởng lão Vijitasena đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Vijitasena.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

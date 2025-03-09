@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-10 NHÓM MƯỜI
+NHÓM MƯỜI
 
-# 239\. Gotama
+# 239. Gotama
 
 “Nên nhận thức về mục đích của mình, nên xem xét lời Phật dạy, và điều nào ở thế gian này có thể thích hợp đối với người đã đạt đến bản thể Sa-môn.
 
@@ -30,9 +30,3 @@ TÓM LƯỢC NHÓM NÀY
 “Vị trưởng lão Kāḷudāyī ấy, vị Ekavihārī, và vị Kappina, vị Cūḷapanthaka, vị Kappa, vị Upasena, và vị Gotama, bảy vị trưởng lão này ở nhóm mười, và ở đây có bảy mươi câu kệ.”
 
 Nhóm Mười được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

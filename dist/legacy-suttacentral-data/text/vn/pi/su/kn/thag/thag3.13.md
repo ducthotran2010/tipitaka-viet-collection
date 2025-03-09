@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 182\. Abhibhūta
+# 182. Abhibhūta
 
 “Này tất cả các quyến thuộc, hết thảy những ai đã tụ hội ở đây, xin hãy lắng nghe. Tôi sẽ thuyết giảng Giáo Pháp cho các người, sự tái sanh lập đi lập lại là khổ đau.
 
@@ -13,9 +13,3 @@ Người nào sẽ sống trong Pháp và Luật này, không xao lãng, sau khi
 Đại đức trưởng lão Abhibhūta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Abhibhūta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

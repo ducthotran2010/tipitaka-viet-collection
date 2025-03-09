@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 159\. Usabha
+# 159. Usabha
 
 “Sau khi đắp lên vai tấm y có màu tựa như chồi non của cây xoài, ngồi ở cổ con voi, tôi đã đi vào làng để khất thực.
 
@@ -11,9 +11,3 @@ Sau khi leo xuống từ thân voi, khi ấy tôi đã cảm nhận sự chấn 
 Đại đức trưởng lão Usabha đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Usabha.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

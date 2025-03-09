@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 207\. Yasadatta
+# 207. Yasadatta
 
 “Kẻ có trí tồi lắng nghe Giáo Pháp của đấng Chiến Thắng với tâm thù nghịch, (kẻ ấy) bị cách xa khỏi Chánh Pháp, giống như trái đất so với bầu trời.
 
@@ -17,9 +17,3 @@ Và người nào lắng nghe Giáo Pháp của đấng Chiến Thắng với t�
 Đại đức trưởng lão Yasadatta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Yasadatta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

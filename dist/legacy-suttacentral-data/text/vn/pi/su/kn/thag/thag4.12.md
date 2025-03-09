@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-4 NHÓM BỐN
+NHÓM BỐN
 
-# 197\. Mudita
+# 197. Mudita
 
 “Tôi đã xuất gia vì mục đích mạng sống, sau khi đã đạt được sự tu lên bậc trên, nhờ đó tôi đã có được niềm tin, với sự tinh tấn vững vàng, tôi đã ra sức.
 
@@ -21,9 +21,3 @@ TÓM LƯỢC NHÓM NÀY
 Candana là vị trưởng lão; mười vị này là các đệ tử của đức Phật. Vị Dhammika, vị trưởng lão Sappaka, và vị Mudita nữa là ba. Có năm mươi hai câu kệ và tất cả các vị trưởng lão là mười ba.”
 
 Nhóm Bốn được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

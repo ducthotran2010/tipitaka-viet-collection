@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 215\. Sappadāsa
+# 215. Sappadāsa
 
 “Hai mươi lăm năm kể từ khi tôi được xuất gia, tôi đã không chứng đắc sự an tịnh của tâm, dầu chỉ là khoảng thời gian của việc khảy móng tay.
 
@@ -19,9 +19,3 @@ Do đó, tâm của tôi đã được giải thoát; hãy nhìn xem bản chấ
 Đại đức trưởng lão Sappadāsa đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sappadāsa.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

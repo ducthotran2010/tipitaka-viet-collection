@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 216\. Kātiyāna
+# 216. Kātiyāna
 
 “Này Kātiyāna, hãy đứng lên, hãy ngồi xuống (tham thiền), chớ có ngủ nhiều, hãy tỉnh thức. Chớ để Thần Chết, kẻ thân quyến của sự xao lãng, chiến thắng kẻ lười biếng ngươi chỉ bằng mưu kế.
 
@@ -19,9 +19,3 @@ Cây đèn có ngọn lửa yếu ớt bị vùi dập bởi ngọn gió tựa n
 Đại đức trưởng lão Kātiyāna đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Kātiyāna.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

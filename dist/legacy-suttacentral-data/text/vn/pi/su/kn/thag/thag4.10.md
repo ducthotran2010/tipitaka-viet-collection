@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-4 NHÓM BỐN
+NHÓM BỐN
 
-# 195\. Dhammika
+# 195. Dhammika
 
 “Thật vậy, Chánh Pháp hộ trì người có sự thực hành Chánh Pháp. Chánh Pháp, khéo được thực hành, đem lại sự an lạc. Điều này là quả báu khi Chánh Pháp khéo được thực hành: Người có sự thực hành Chánh Pháp không đi đến khổ cảnh.
 
@@ -15,9 +15,3 @@ Vị ấy, có gốc rễ của mụt nhọt đã được phá tung, có mạng
 Đại đức trưởng lão Dhammika đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Dhammika.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

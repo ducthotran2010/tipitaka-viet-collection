@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 123\. Valliya
+# 123. Valliya
 
 “Con khỉ, sau khi tiến vào trong cái cốc nhỏ có năm cánh cửa, đi loanh quanh theo từng cánh cửa, trong khi gõ vào một cách liên tục.
 
@@ -11,9 +11,3 @@ Này khỉ, người hãy đứng yên, chớ có chạy, bởi vì việc ấy 
 Đại đức trưởng lão Valliya đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Valliya.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

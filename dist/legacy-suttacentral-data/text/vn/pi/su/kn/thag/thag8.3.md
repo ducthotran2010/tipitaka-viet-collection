@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-8 NHÓM TÁM
+NHÓM TÁM
 
-# 231\. Mahāpanthaka
+# 231. Mahāpanthaka
 
 “Vào lúc tôi đã nhìn thấy đấng Đạo Sư, bậc không có sự sợ hãi từ bất cứ đâu lần đầu tiên, do đó đã có sự chấn động ở tôi sau khi nhìn thấy đấng Tối Thượng Nhân.
 
@@ -28,9 +28,3 @@ TÓM LƯỢC NHÓM NÀY
 “Trưởng lão Mahākaccāyana, vị Sirimitta, vị Mahāpanthaka. Ở nhóm tám này, có hai mươi bốn câu kệ.”
 
 Nhóm Tám được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-7 NHÓM BẢY
+NHÓM BẢY
 
-# 228\. Sarabhaṅga
+# 228. Sarabhaṅga
 
 “Sau khi bẻ gãy những cây sậy bằng hai bàn tay, sau khi làm cốc liêu, tôi đã cư ngụ. Do việc ấy, tên của tôi đã được thừa nhận là ‘Sarabhaṅga’ (Người bẻ sậy).
 
@@ -24,9 +24,3 @@ TÓM LƯỢC NHÓM NÀY
 “Vị trưởng lão Sundarasamudda, vị trưởng lão Lakuṇṭabhaddiya, vị trưởng lão Bhadda, và vị Sopāka, vị đại ẩn sĩ Sarabhaṅga, ở nhóm bảy có năm vị trưởng lão và ba mươi lăm câu kệ.”
 
 Nhóm Bảy được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

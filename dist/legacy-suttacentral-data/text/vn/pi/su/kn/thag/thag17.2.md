@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-17 NHÓM BA MƯƠI
+NHÓM BA MƯƠI
 
-# 259\. Sāriputta
+# 259. Sāriputta
 
 “Vị có hạnh kiểm như thế, có tánh tốt như thế, có niệm, có sự suy tư đã được kiềm chế, có thiền chứng, không bị xao lãng, được thỏa thích ở nội tâm, có bản thân được định tĩnh, đơn độc, tự biết đủ, người ta gọi vị ấy là tỳ khưu.
 
@@ -79,9 +79,3 @@ Quý vị hãy nỗ lực với sự không xao lãng, điều này là lời ch
 Đại đức trưởng lão Sāriputta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sāriputta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

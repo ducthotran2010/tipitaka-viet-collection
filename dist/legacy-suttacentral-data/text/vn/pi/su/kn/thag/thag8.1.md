@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-8 NHÓM TÁM
+NHÓM TÁM
 
-# 229\. Mahākaccāyana
+# 229. Mahākaccāyana
 
 “Không nên làm việc nhiều, nên tránh xa mọi người, không nên gắng sức. Là người năng nổ, bị tham đắm ở vị nếm, vị ấy bỏ bê mục đích, nguồn đem lại sự an lạc.
 
@@ -23,9 +23,3 @@ Người có mắt nên là như kẻ mù, người có tai nên là như kẻ �
 Đại đức trưởng lão Mahākaccāyana đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Mahākaccāyana.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

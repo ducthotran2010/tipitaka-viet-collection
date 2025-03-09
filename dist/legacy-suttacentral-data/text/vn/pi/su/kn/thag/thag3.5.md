@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 174\. Mātaṅgaputta
+# 174. Mātaṅgaputta
 
 “‘Việc này đã là quá lạnh, quá nóng, quá chiều tối rồi,’ như thế cơ hội trôi qua đối với những người tuổi trẻ có công việc bị bỏ dở.
 
@@ -13,9 +13,3 @@ Trong khi đeo đuổi việc ẩn cư, bằng lồng ngực tôi sẽ đẩy d�
 Đại đức trưởng lão Mātaṅgaputta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Mātaṅgaputta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

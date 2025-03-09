@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-10 NHÓM MƯỜI
+NHÓM MƯỜI
 
-# 238\. Upasena
+# 238. Upasena
 
 “Vị tỳ khưu, vì nguyên nhân thiền tịnh, nên tới lui chỗ trú ngụ vắng vẻ, ít tiếng ồn, được lai vãng bởi các thú dữ.
 
@@ -27,9 +27,3 @@ Vị ấy không nên khiển trách bất cứ người nào, nên tránh xa vi
 Đại đức trưởng lão Upasena Vaṅgantaputta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Upasena.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

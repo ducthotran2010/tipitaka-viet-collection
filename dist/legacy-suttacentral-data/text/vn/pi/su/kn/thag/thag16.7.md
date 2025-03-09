@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-16 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 254\. Bhaddiya
+# 254. Bhaddiya
 
 “Các tấm vải mềm mại đã được tôi khoác lên khi ngồi ở cổ con voi, cơm gạo sāli với nước xốt thịt tinh khiết đã được tôi thọ dụng.
 
@@ -55,9 +55,3 @@ Sau khi đã đứng vững ở giới uẩn, trong khi tu tập niệm và tu�
 Đại đức trưởng lão Bhaddiya Kāḷigodhāyaputta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Bhaddiya.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

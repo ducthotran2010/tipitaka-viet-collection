@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 199\. Subhūta
+# 199. Subhūta
 
 “Người đàn ông, trong khi gắn bó bản thân ở sự luyện tập sai trái (sự hành xác), trong khi ước muốn việc nên làm, nếu trong khi thực hành mà không thể chứng đắc, điều ấy là biểu hiện về số phần xui xẻo của tôi.
 
@@ -17,9 +17,3 @@ Cũng giống như bông hoa xinh đẹp có sắc có hương, tương tự nh�
 Đại đức trưởng lão Subhūta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Subhūta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

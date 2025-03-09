@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-16 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 252\. Māluṅkyaputta
+# 252. Māluṅkyaputta
 
 “Sau khi nhìn thấy sắc, trong khi chú ý đến dấu hiệu yêu thích thì niệm của người ấy bị quên lãng. Người có tâm đã bị luyến ái, cảm nhận và vướng mắc vào điều ấy, rồi tồn tại.
 
@@ -53,9 +53,3 @@ Vị ấy không bị luyến ái ở các pháp, sau khi nhận biết pháp, c
 Đại đức trưởng lão Māluṅkyaputta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Māluṅkyaputta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

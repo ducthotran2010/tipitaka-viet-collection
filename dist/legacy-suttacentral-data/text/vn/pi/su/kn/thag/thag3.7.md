@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 176\. Vāraṇa
+# 176. Vāraṇa
 
 “Ở đời này, bất cứ người nào, trong số loài người, hãm hại các mạng sống khác, con người (ấy) bị tiêu hoại ở cả hai nơi, đời này và đời sau.
 
@@ -13,9 +13,3 @@ Nên nói năng khéo léo, nên học tập, và nên thân cận các vị Sa-
 Đại đức trưởng lão Vāraṇa đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Vāraṇa.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

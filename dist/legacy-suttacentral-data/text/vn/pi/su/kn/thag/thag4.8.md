@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-4 NHÓM BỐN
+NHÓM BỐN
 
-# 193\. Rāhula
+# 193. Rāhula
 
 “Họ đã nhận biết về tôi rằng: ‘Rāhula may mắn,’ được thành tựu luôn cả hai điều, bởi vì tôi là người con trai của đức Phật, và bởi vì tôi có sự nhận thức về các pháp.
 
@@ -15,9 +15,3 @@ Sau khi buông bỏ dục vọng ấy, sau khi cắt đứt sự trói buộc c�
 Đại đức trưởng lão Rāhula đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Rāhula.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

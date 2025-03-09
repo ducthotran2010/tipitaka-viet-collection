@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-12 NHÓM MƯỜI HAI
+NHÓM MƯỜI HAI
 
-# 242\. Sunīta
+# 242. Sunīta
 
 “Bị sanh ra ở gia đình thấp kém, tôi là nghèo khó, có ít thức ăn, nghề nghiệp của tôi đã là hạ tiện, tôi đã là người đổ rác hoa.
 
@@ -36,9 +36,3 @@ TÓM LƯỢC NHÓM NÀY
 “Hai vị trưởng lão Sīlava và Sunīta ấy có đại thần lực, ở nhóm mười hai có hai mươi bốn câu kệ.”
 
 Nhóm Mười Hai được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

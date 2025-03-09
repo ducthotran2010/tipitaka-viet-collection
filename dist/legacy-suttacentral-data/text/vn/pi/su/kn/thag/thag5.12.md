@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 209\. Dứt
+# 209. Dứt
 
 “Thật vậy, vị nào thông minh, hiểu được lời nói của các bậc thầy, có thể sống theo lời dạy ấy và còn có thể làm sanh khởi lòng yêu mến, vị ấy được gọi là có sự tôn sùng và là vị sáng suốt, sau khi hiểu biết về các pháp, vị ấy có thể có sự chứng đắc.
 
@@ -23,9 +23,3 @@ TÓM LƯỢC NHÓM NÀY
 Vị Vijita, và vị Yasadatta, vị Soṇa, vị có tên Kosiyasa. Có sáu mươi lăm câu kệ và ở đây là mười hai vị trưởng lão.”
 
 Nhóm Năm được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

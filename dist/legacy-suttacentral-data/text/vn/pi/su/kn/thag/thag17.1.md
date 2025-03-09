@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-17 NHÓM BA MƯƠI
+NHÓM BA MƯƠI
 
-# 258\. Phussa
+# 258. Phussa
 
 “Sau khi nhìn thấy nhiều người có tín tâm, có bản thân đã được tu tập, khéo được thu thúc, vị ẩn sĩ thuộc dòng họ Paṇḍara đã hỏi vị tên Phussa rằng:
 
@@ -71,9 +71,3 @@ Sau khi nhìn thấy sự xao lãng là nguy hiểm, sự không xao lãng là a
 Đại đức trưởng lão Phussa đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Phussa.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

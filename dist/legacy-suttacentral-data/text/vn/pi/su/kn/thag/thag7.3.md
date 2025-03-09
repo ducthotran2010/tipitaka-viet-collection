@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-7 NHÓM BẢY
+NHÓM BẢY
 
-# 226\. Bhadda
+# 226. Bhadda
 
 “Tôi đã là con trai độc nhất, được mẹ yêu, được cha yêu. Do nhiều sự thực hành về phận sự và nhiều lần cầu khấn mà tôi được sanh ra.
 
@@ -21,9 +21,3 @@ Việc tu lên bậc trên đã đạt được bởi tôi vào năm bảy tuổ
 Đại đức trưởng lão Bhadda đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Bhadda.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

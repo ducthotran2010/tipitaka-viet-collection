@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-8 NHÓM TÁM
+NHÓM TÁM
 
-# 230\. Sirimitta
+# 230. Sirimitta
 
 “Không nổi giận, không thù hằn, không xảo trá, sự nói đâm thọc là không có, hẳn nhiên vị tỳ khưu có đức tính thế ấy, sau khi qua đời như vậy không bị sầu muộn.
 
@@ -23,9 +23,3 @@ Do đó, người thông minh, trong lúc ghi nhớ lời giáo huấn của ch�
 Đại đức trưởng lão Sirimitta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sirimitta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

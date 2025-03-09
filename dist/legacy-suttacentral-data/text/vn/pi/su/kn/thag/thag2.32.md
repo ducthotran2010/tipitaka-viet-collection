@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 152\. Sīvaka
+# 152. Sīvaka
 
 “Các ngôi nhà nhỏ là không thường còn, tái đi diễn lại nơi này nơi khác. Trong khi tìm kiếm người thợ làm nhà, sự sanh tái đi diễn lại là khổ đau.
 
@@ -11,9 +11,3 @@ Hỡi người thợ làm nhà, ngươi đã bị nhìn thấy, ngươi sẽ kh�
 Đại đức trưởng lão Sīvaka đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sīvaka.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

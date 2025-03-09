@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 218\. Jenta
+# 218. Jenta
 
 “Tôi bị đắm say với sự kiêu hãnh về dòng dõi, về của cải và về uy quyền. Tôi đã sống, bị đắm say với sự kiêu hãnh về màu da và dáng vóc của thân hình.
 
@@ -19,9 +19,3 @@ Sự ngã mạn quá lố và sự khinh miệt đã được dứt bỏ, đã k
 Đại đức trưởng lão Jenta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Jenta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

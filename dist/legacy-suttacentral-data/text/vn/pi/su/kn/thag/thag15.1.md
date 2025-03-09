@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-15 NHÓM MƯỜI SÁU
+NHÓM MƯỜI SÁU
 
-# 246\. Aññākoṇḍañña
+# 246. Aññākoṇḍañña
 
 “Sau khi lắng nghe Giáo Pháp có phẩm chất vĩ đại, tôi đây thêm phần tịnh tín. Sự xa lìa luyến ái đã được thuyết giảng là pháp không có chấp thủ về mọi mặt.
 
@@ -39,9 +39,3 @@ Vì mục đích nào mà tôi đã xuất gia, rời nhà sống không nhà, m
 Đại đức trưởng lão Aññākoṇḍañña đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Aññākoṇḍañña.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

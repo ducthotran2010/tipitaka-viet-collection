@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-1017 NHÓM BA MƯƠI
+NHÓM BA MƯƠI
 
-# 260\. Ānanda
+# 260. Ānanda
 
 “Người sáng trí không nên kết bạn với kẻ nói đâm thọc, giận dữ, bỏn xẻn, vui với sự bất hạnh (của người khác); việc giao du với kẻ xấu là tệ hại.
 
@@ -88,9 +88,3 @@ TÓM LƯỢC NHÓM NÀY
 “Vị Phussa, vị Upatissa, vị Ānanda, là ba vị đã được thuật lại ở nhóm Ba Mươi, các câu kệ đã được tạo ra ở tại nơi ấy là một trăm lẻ năm.”
 
 Nhóm Ba Mươi được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

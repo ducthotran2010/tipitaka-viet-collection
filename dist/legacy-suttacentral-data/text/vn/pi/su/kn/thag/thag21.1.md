@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-1220 NHÓM LỚN
+NHÓM LỚN
 
-# 264\. Vaṅgīsa
+# 264. Vaṅgīsa
 
 “Thật vậy, trong khi tôi ra đi, rời nhà sống không nhà, những ý nghĩ suy tầm táo bạo này, từ sự tăm tối, đeo đuổi tôi.
 
@@ -161,9 +161,3 @@ TÓM LƯỢC TÁC PHẨM NÀY
 “Các kệ ngôn ấy là một ngàn hai trăm chín mươi mốt câu và các trưởng lão là hai trăm sáu mươi bốn vị đã được biết tiếng. Những người con trai của đức Phật, không còn lậu hoặc, sau khi rống lên tiếng rống của loài sư tử, sau khi đạt được sự an toàn ấy, đã Niết Bàn, tựa như đống lửa đã được diệt tắt.”
 
 TRƯỞNG LÃO KỆ ĐƯỢC CHẤM DỨT.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 183\. Gotama
+# 183. Gotama
 
 “Trong khi luân hồi, tôi đã đi đến địa ngục, tôi đã tiếp tục đi đến thế giới ngạ quỷ nhiều lần nữa. Thậm chí ở tình trạng khó thể chịu đựng thuộc dòng giống thú vật, tôi đã sống dai dẳng không chỉ một lần.
 
@@ -13,9 +13,3 @@ Các sự hiện hữu đã được biết rõ là không có thực chất, b�
 Đại đức trưởng lão Gotama đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Gotama.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

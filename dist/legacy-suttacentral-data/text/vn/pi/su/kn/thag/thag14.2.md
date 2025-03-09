@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-14 NHÓM MƯỜI BỐN
+NHÓM MƯỜI BỐN
 
-# 245\. Godatta
+# 245. Godatta
 
 “Cũng giống như con bò kéo thuần chủng, hiền thiện, được máng vào ách, chịu đựng cái ách, bị đè xuống bởi gánh nặng quá mức, không vượt khỏi việc quàng vào ách.
 
@@ -38,9 +38,3 @@ TÓM LƯỢC NHÓM NÀY
 “Hai vị trưởng lão Revata và luôn cả Godatta ấy có đại thần lực, ở nhóm mười bốn có hai mươi tám câu kệ.”
 
 Nhóm Mười Bốn được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

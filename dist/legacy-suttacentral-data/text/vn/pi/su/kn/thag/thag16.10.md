@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-16 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 257\. Pārāsariya
+# 257. Pārāsariya
 
 “Ở Mahāvana (Đại Lâm) được nở rộ hoa, vị Sa-môn đã ngồi xuống, (có tâm) được tập trung, được tách ly, chứng thiền, đã khởi ý nghĩ rằng:
 
@@ -70,9 +70,3 @@ TÓM LƯỢC NHÓM NÀY
 “Vị Adhimutta, vị Pārāsariya, vị Telakāni, vị Raṭṭhapāla, vị Māluṅkya, vị Sela, vị Bhaddiya, vị Aṅgulimāla, vị có Thiên nhãn (Anuruddha), vị Pārāsariya, mười vị này đã thuật lại ở nhóm hai mươi. Có hai trăm và thêm vào bốn mươi lăm câu kệ.”
 
 Nhóm Hai Mươi được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

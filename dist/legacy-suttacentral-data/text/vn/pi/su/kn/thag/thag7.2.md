@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-7 NHÓM BẢY
+NHÓM BẢY
 
-# 225\. Lakuṇṭakabhaddiya
+# 225. Lakuṇṭakabhaddiya
 
 “Ở cụm rừng thuộc phần khác của khu vườn Ambāṭaka, vị Bhaddiya hiền thiện, sau khi trừ diệt tham ái luôn cả gốc rễ, tham thiền tại nơi ấy.
 
@@ -19,9 +19,3 @@ Nhận biết được bên trong, và nhìn thấy rõ bên ngoài, với sự 
 Đại đức trưởng lão Lakuṇṭakabhaddiya đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Lakuṇṭakabhaddiya.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

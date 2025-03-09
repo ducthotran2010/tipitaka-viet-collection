@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 171\. Paccaya
+# 171. Paccaya
 
 “Tôi đã xuất gia được năm ngày, là bậc Hữu Học, tâm ý chưa đạt. Lúc tôi đi vào trú xá, ý của tôi đã có quyết định rằng:
 
@@ -13,9 +13,3 @@ Trong khi tôi đây sống như vậy, hãy nhìn xem sự tinh tấn và nỗ 
 Đại đức trưởng lão Paccaya đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Paccaya.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

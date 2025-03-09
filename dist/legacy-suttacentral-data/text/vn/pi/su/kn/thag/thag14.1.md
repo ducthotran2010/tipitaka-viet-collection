@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-14 NHÓM MƯỜI BỐN
+NHÓM MƯỜI BỐN
 
-# 244\. Khadiravaniyarevata
+# 244. Khadiravaniyarevata
 
 “Vào lúc tôi đã xuất gia, rời nhà sống không nhà, tôi không biết đến sự suy tư không thánh thiện, gắn liền với sân hận.
 
@@ -35,9 +35,3 @@ Quý vị hãy nỗ lực với sự không xao lãng, điều này là lời ch
 Đại đức trưởng lão Khadiravaniya Revata đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Khadiravaniyarevata.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

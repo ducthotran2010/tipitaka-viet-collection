@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 208\. Soṇakuṭikaṇṇa
+# 208. Soṇakuṭikaṇṇa
 
 “Tôi đã đạt được sự tu lên bậc trên, và tôi đã được giải thoát, không còn lậu hoặc. Tôi đã được diện kiến đức Thế Tôn, và đã ngụ chung trú xá.
 
@@ -17,9 +17,3 @@ Sau khi đã biết toàn diện về năm uẩn, sau khi đã tu tập về Đ�
 Đại đức trưởng lão Soṇakuṭikaṇṇa đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Soṇakuṭikaṇṇa.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

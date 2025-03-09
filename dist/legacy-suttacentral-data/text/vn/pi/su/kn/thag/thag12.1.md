@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-12 NHÓM MƯỜI HAI
+NHÓM MƯỜI HAI
 
-# 241\. Sīlava
+# 241. Sīlava
 
 “Ở đây, nên học tập chủ yếu về giới, bởi vì ở thế gian này, giới đã được học tập kỹ lưỡng, đã được thực hành, đem lại mọi sự thành tựu.
 
@@ -31,9 +31,3 @@ Người sáng trí, khéo chuyên chú vào các giới, nhận lãnh danh thơ
 Đại đức trưởng lão Sīlava đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sīlava.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-16 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 248\. Adhimutta
+# 248. Adhimutta
 
 “‘Những kẻ mà chúng tôi (đã) giết trước đây vì mục đích cúng tế hay vì mục đích tài sản đều không còn sự tự chủ, có sự sợ hãi; chúng run rẩy, than khóc.
 
@@ -49,9 +49,3 @@ Những người ấy, sau khi đã xuất gia trong Giáo Pháp của đấng T
 Đại đức trưởng lão Adhimutta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Adhimutta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

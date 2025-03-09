@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 178\. Yasoja
+# 178. Yasoja
 
 “Người nam, có tay chân giống như các khúc cây màu đen, ốm o, nổi đầy gân, biết chừng mực về cơm ăn nước uống, có tâm ý không biếng nhác.
 
@@ -13,9 +13,3 @@ Một vị (tỳ khưu) giống như Phạm Thiên, hai vị (tỳ khưu) giốn
 Đại đức trưởng lão Yasoja đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Yasoja.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-7 NHÓM BẢY
+NHÓM BẢY
 
-# 224\. Sundarasamudda
+# 224. Sundarasamudda
 
 “Đã được trang sức, có y phục đẹp, có mang vòng hoa, đã được tô điểm, có hai bàn chân đã được làm đỏ, cô kỹ nữ mang đôi dép vào.
 
@@ -21,9 +21,3 @@ Do đó, tâm của tôi đã được giải thoát; hãy nhìn xem bản chấ
 Đại đức trưởng lão Sundarasamudda đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sundarasamudda.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

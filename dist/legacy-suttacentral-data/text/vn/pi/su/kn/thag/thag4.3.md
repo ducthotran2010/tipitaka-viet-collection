@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-4 NHÓM BỐN
+NHÓM BỐN
 
-# 188\. Sabhiya
+# 188. Sabhiya
 
 “Và những người khác không nhận thức được, chúng ta ở đây đang đến gần cái chết. Còn những người nào nhận thức được điều ấy, nhờ thế các sự tranh chấp được chấm dứt.
 
@@ -15,9 +15,3 @@ Kẻ nào không có sự kính trọng đối với các vị đồng Phạm h�
 Đại đức trưởng lão Sabhiya đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sabhiya.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

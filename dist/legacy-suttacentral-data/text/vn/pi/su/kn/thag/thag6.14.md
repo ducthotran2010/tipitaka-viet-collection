@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 223\. Sabbakāmi
+# 223. Sabbakāmi
 
 “Vật có hai chân này, không trong sạch, có mùi hôi, được chứa đầy vật ghê tởm các loại, đang rỉ ra từ chỗ này chỗ nọ, lại được nâng niu.
 
@@ -24,9 +24,3 @@ TÓM LƯỢC NHÓM NÀY
 “Vị Uruvelakassapa và trưởng lão Tekicchakāri, vị Mahānāga, và vị Kulla, vị Māluṅkya, vị Sappadāsaka, vị Katiyāna, vị Migajāla, vị Jenta, vị có tên Sumana, vị Nhātamuni, vị Brahmadatta, vị Sirimanda, và vị Sabbakāmi, có tám mươi bốn câu kệ và ở đây là mười bốn vị trưởng lão.”
 
 Nhóm Sáu được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 135\. Sabbamitta
+# 135. Sabbamitta
 
 “Con người bị vướng bận với con người, con người bị phụ thuộc vào chính con người, con người bị quấy rầy bởi con người, và con người quấy rầy con người.
 
@@ -11,9 +11,3 @@ Vậy kẻ ấy có lợi ích gì với con người, hoặc với con người
 Đại đức trưởng lão Sabbamitta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sabbamitta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

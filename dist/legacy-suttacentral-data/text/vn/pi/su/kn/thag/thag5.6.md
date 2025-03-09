@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 203\. Nadīkassapa
+# 203. Nadīkassapa
 
 “Quả thật vì sự lợi ích của tôi, đức Phật đã đi đến dòng sông Nerañjarā. Sau khi lắng nghe Giáo Pháp của Ngài, tôi đã lánh xa tà kiến.
 
@@ -17,9 +17,3 @@ Tất cả si mê của tôi đã được dứt bỏ, sự tham ái về hiện
 Đại đức trưởng lão Nadīkassapa đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Nadīkassapa.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

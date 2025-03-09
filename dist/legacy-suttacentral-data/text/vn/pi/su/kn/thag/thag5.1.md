@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 198\. Rājadatta
+# 198. Rājadatta
 
 “Là vị tỳ khưu, sau khi đi đến bãi tha ma, tôi đã nhìn thấy (thây) người phụ nữ bị liệng bỏ, bị quăng ở nghĩa địa, đang bị gặm nhấm, lúc nhúc những dòi.
 
@@ -17,9 +17,3 @@ Do đó, tâm của tôi đã được giải thoát; hãy nhìn xem bản chấ
 Đại đức trưởng lão Rājadatta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Rājadatta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

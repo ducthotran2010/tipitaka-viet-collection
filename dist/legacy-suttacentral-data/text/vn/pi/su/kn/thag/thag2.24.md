@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 144\. Valliya
+# 144. Valliya
 
 “Việc nào cần phải làm với sự tinh tấn vững chãi, việc nào cần phải làm bởi người đang ước muốn được giác ngộ, tôi sẽ thực hiện, tôi sẽ không thất bại, hãy nhìn xem sự tinh tấn, sự nỗ lực (của tôi).
 
@@ -11,9 +11,3 @@ Và xin ngài hãy nói cho tôi con đường trực chỉ thể nhập vào B�
 Đại đức trưởng lão Valliya đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Valliya.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

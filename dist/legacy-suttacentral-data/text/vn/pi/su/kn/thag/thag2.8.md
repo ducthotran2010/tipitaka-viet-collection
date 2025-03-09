@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 128\. Surādha
+# 128. Surādha
 
 “Sự tái sanh của tôi đã được cạn kiệt thật sự, lời dạy của đấng Chiến Thắng đã được sống qua, cái được gọi là màng lưới (tà kiến, vô minh) đã được dứt bỏ, lối dẫn đến hiện hữu đã được xóa sạch.
 
@@ -11,9 +11,3 @@ Vì mục đích nào mà tôi đã xuất gia, rời nhà sống không nhà, m
 Đại đức trưởng lão Surādha đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Surādha.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

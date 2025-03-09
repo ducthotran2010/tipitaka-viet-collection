@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 177\. Passika
+# 177. Passika
 
 “Mặc dầu chỉ một mình giữa những người bà con không có đức tin ở thế gian này, tôi có đức tin, thông minh, vững vàng trong Giáo Pháp, được đầy đủ về giới; (việc ấy) là vì sự lợi ích cho các thân quyến.
 
@@ -13,9 +13,3 @@ Vì lòng thương tưởng, sau khi phê bình, tôi đã quở trách những 
 Đại đức trưởng lão Passika đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Passika.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

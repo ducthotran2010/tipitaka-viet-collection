@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-15 NHÓM MƯỜI SÁU
+NHÓM MƯỜI SÁU
 
-# 247\. Udāyi
+# 247. Udāyi
 
 “Bậc Toàn Giác, có bản thể nhân loại, đã chế ngự bản thân, được định tĩnh, trong khi cư xử theo đường lối Phạm hạnh, được thích thú trong sự tĩnh lặng của tâm.
 
@@ -42,9 +42,3 @@ TÓM LƯỢC NHÓM NÀY
 “Hai vị trưởng lão Koṇḍañña và Udāyi ấy có đại thần lực, ở nhóm mười sáu có ba mươi hai câu kệ.”
 
 Nhóm Mười Sáu được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

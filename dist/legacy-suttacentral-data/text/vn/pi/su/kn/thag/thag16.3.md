@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-16 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 250\. Telakāni
+# 250. Telakāni
 
 “Quả thật, có sự tinh cần một thời gian dài, trong khi suy tư về Giáo Pháp, trong khi học hỏi các vị Sa-môn và Bà-la-môn, tôi đã không đạt được sự bình lặng của tâm.
 
@@ -49,9 +49,3 @@ Mũi tên có nguồn phát xuất ở tự ngã, đã sản sanh ra lối dẫn
 Đại đức trưởng lão Telakāni đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Telakāni.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

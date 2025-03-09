@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 202\. Vaḍḍha
+# 202. Vaḍḍha
 
 “Lành thay! Quả đúng vậy mẹ của tôi đã giơ lên cây roi đầu nhọn. Sau khi lắng nghe lời nói của bà, được nhắc nhở bởi đấng sanh thành, tôi có sự nỗ lực tinh tấn, có bản tính cương quyết, đã đạt đến sự giác ngộ tối thượng.
 
@@ -17,9 +17,3 @@ Khổ đau đã được làm cho chấm dứt; đây là xác thân sau chót c
 Đại đức trưởng lão Vaḍḍha đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Vaḍḍha.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

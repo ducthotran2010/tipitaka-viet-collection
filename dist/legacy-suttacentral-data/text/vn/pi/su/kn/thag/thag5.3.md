@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 200\. Girimānanda
+# 200. Girimānanda
 
 “Trời mưa giống như (đang hát) bài hát hay, cái cốc nhỏ của tôi đã được lợp, thoải mái, kín gió. Tôi sống ở trong ấy, được yên tĩnh. Như vậy, này ông Trời, nếu ông muốn, ông hãy đổ mưa.
 
@@ -17,9 +17,3 @@ Trời mưa giống như (đang hát) bài hát hay, cái cốc nhỏ của tôi
 Đại đức trưởng lão Girimānanda đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Girimānanda.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

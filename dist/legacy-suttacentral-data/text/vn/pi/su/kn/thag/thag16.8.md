@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-16 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 255\. Aṅgulimāla
+# 255. Aṅgulimāla
 
 “Này ông Sa-môn, trong khi ông đang đi, ông lại nói: ‘Ta đã đứng lại,’ còn tôi đã đứng lại thì ông lại nói: ‘Ngươi chưa đứng lại.’ Này ông Sa-môn, tôi hỏi ông về ý nghĩa này: ‘Tại sao ông đã đứng lại, còn tôi thì chưa đứng lại?’
 
@@ -59,9 +59,3 @@ Bậc Đạo Sư đã được tôi hầu hạ, lời dạy của đức Phật 
 Đại đức trưởng lão Aṅgulimāla đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Aṅgulimāla.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

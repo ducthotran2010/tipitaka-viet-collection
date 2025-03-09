@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-9 NHÓM CHÍN
+NHÓM CHÍN
 
-# 232\. Bhūta
+# 232. Bhūta
 
 “Khi nào bậc sáng trí (nhận thức rằng) ‘già và chết là khổ,’ là điều mà những kẻ phàm nhân ngu si bị vướng mắc, sau khi biết toàn diện về khổ, rồi tham thiền, thật sự có niệm, thì không còn tìm thấy sự thích thú nào tối thắng hơn điều ấy.
 
@@ -28,9 +28,3 @@ TÓM LƯỢC NHÓM NÀY
 “Vị trưởng lão Bhūta đã được thấy như vậy, một mình, như sừng của loài tê giác; ở nhóm chín cũng chỉ có chín câu kệ này.”
 
 Nhóm Chín được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 220\. Nhātakamuni
+# 220. Nhātakamuni
 
 “Trong khi sống ở trong khu rừng là cánh rừng rộng lớn, có chỗ khất thực bị hạn chế, khốn khó, này tỳ khưu, ngươi sẽ làm thế nào?
 
@@ -19,9 +19,3 @@ Năm uẩn đã được biết toàn diện, chúng tồn tại với gốc r�
 Đại đức trưởng lão Nhātakamuni đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Nhātakamuni.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

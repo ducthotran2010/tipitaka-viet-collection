@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-13 NHÓM MƯỜI BA
+NHÓM MƯỜI BA
 
-# 243\. Soṇa
+# 243. Soṇa
 
 “Vị nào đã được nổi bật ở vương quốc, đã là người hầu cận của đức vua Aṅga, vị ấy hôm nay là nổi bật về các pháp (siêu thế), Soṇa là người đã đi đến bờ kia của khổ đau.
 
@@ -36,9 +36,3 @@ TÓM LƯỢC NHÓM NÀY
 “Trưởng lão Soṇa Koḷivisa, chỉ một vị, có đại thần lực, và trường hợp này có mười ba câu kệ ở nhóm mười ba.”
 
 Nhóm Mười Ba được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

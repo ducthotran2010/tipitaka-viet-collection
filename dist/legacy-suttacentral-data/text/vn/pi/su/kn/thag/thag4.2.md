@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-4 NHÓM BỐN
+NHÓM BỐN
 
-# 187\. Bhagu
+# 187. Bhagu
 
 “Bị tác động bởi cơn buồn ngủ, tôi đã đi ra khỏi trú xá. Trong khi đang bước lên đường kinh hành, ngay tại chỗ ấy, tôi đã bị ngã trên mặt đất.
 
@@ -15,9 +15,3 @@ Do đó, tâm của tôi đã được giải thoát; hãy nhìn xem bản chấ
 Đại đức trưởng lão Bhagu đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Bhagu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

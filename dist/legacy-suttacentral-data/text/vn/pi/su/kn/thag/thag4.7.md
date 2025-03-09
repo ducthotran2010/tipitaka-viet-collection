@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-4 NHÓM BỐN
+NHÓM BỐN
 
-# 192\. Sambhūta
+# 192. Sambhūta
 
 “Kẻ nào vội vã vào thời điểm chậm rãi, và chậm rãi ở việc cần vội vã, do sự sắp xếp không theo đúng đường lối, kẻ ngu lâm cảnh khổ đau.
 
@@ -15,9 +15,3 @@ Các điều tốt đẹp của người ấy được làm tròn đầy, tựa 
 Đại đức trưởng lão Sambhūta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sambhūta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

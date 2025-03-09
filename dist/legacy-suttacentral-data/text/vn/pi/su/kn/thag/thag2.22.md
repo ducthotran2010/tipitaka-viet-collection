@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 142\. Bhaddaji
+# 142. Bhaddaji
 
 “Vị vua ấy tên là Panāda, là người có tòa lâu đài bằng vàng, chiều rộng mười sáu lần mũi tên (đi xa), chiều cao đã là gấp một ngàn lần.
 
@@ -11,9 +11,3 @@ Có một ngàn bậc cấp, với một trăm quả cầu trang trí, được 
 Đại đức trưởng lão Bhaddaji đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Bhaddaji.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

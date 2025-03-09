@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 168\. Vajjita
+# 168. Vajjita
 
 “Trong khi luân hồi trên con đường dài xa thẳm, tôi đã lăn lóc qua nhiều cảnh giới tái sanh, trong khi không nhìn thấy các Chân Lý cao thượng, là kẻ phàm phu, bị mù lòa.
 
@@ -11,9 +11,3 @@ Tôi đây không bị xao lãng, các sự luân hồi của tôi đã bị ph�
 Đại đức trưởng lão Vajjita đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Vajjita.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

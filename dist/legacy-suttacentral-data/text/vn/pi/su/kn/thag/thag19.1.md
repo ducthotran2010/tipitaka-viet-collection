@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-1096 NHÓM NĂM MƯƠI
+NHÓM NĂM MƯƠI
 
-# 262\. Tālapuṭa
+# 262. Tālapuṭa
 
 “Khi nào tôi sẽ sống đơn độc một mình, không hai, ở những hang núi, đang nhìn thấy rõ tất cả hiện hữu là vô thường? Điều này đây là (suy nghĩ) của tôi, khi nào điều ấy sẽ trở thành hiện thực?
 
@@ -120,9 +120,3 @@ TÓM LƯỢC NHÓM NÀY
 “Ở nhóm Năm Mươi có một vị Tālapuṭa trong sạch, ở đó các câu kệ là năm mươi và còn thêm năm nữa.”
 
 Nhóm Năm Mươi được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-10 NHÓM MƯỜI
+NHÓM MƯỜI
 
-# 236\. Cūḷapanthaka
+# 236. Cūḷapanthaka
 
 “Ngu đần đã là phần số của tôi; trước đây tôi đã bị xem thường. Và người anh trai đã đuổi tôi đi: ‘Giờ đây, ngươi hãy đi về nhà.’
 
@@ -25,9 +25,3 @@ Là nơi dâng cúng của tất cả thế gian, là vị thọ nhận các v�
 Đại đức trưởng lão Cūḷapanthaka đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Cūḷapanthaka.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

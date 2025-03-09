@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-16 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 251\. Raṭṭhapāla
+# 251. Raṭṭhapāla
 
 “Hãy nhìn xem bóng dáng được vẽ màu, nơi hội tụ các vết thương, được dựng lên (bằng ba trăm khúc xương), bệnh hoạn, nhiều suy tư (sái quấy), không có sự tồn tại trường cửu.
 
@@ -55,9 +55,3 @@ Và vì mục đích nào mà tôi đã xuất gia, rời nhà sống không nh�
 Đại đức trưởng lão Raṭṭhapāla đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Raṭṭhapāla.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

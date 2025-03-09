@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 170\. Aṅgaṇikabhāradvāja
+# 170. Aṅgaṇikabhāradvāja
 
 “Trong khi tầm cầu sự trong sạch không đúng đường lối, tôi đã chăm sóc ngọn lửa (cúng dường Thần Lửa) ở trong rừng. Trong khi không biết về Đạo Lộ của sự trong sạch, tôi đã thực hành khổ hạnh vì sự bất tử.
 
@@ -13,9 +13,3 @@ Trước đây, tôi đã là thân quyến của Phạm Thiên, giờ đây tô
 Đại đức trưởng lão Aṅgaṇikabhāradvāja đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Aṅgaṇikabhāradvāja.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

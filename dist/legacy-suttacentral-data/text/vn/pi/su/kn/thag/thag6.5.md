@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 214\. Māluṅkyaputta
+# 214. Māluṅkyaputta
 
 “Đối với người có thói quen xao lãng, tham ái tăng trưởng tựa như giống dây chùm gởi, kẻ ấy trôi nổi từ đời này sang đời khác, tựa như con khỉ ở trong rừng đang muốn trái cây.
 
@@ -19,9 +19,3 @@ Sự xao lãng luôn luôn là ô nhiễm, ô nhiễm được trỗi dậy do x
 Đại đức trưởng lão Māluṅkyaputta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Māluṅkyaputta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

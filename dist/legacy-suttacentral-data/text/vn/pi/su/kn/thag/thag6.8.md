@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 217\. Migajāla
+# 217. Migajāla
 
 “(Con đường Thánh tám chi phần) đã khéo được thuyết giảng bởi đức Phật, bậc Hữu Nhãn, vị thân quyến của mặt trời, người đã vượt qua tất cả các điều ràng buộc, có sự tiêu diệt tất cả các sự xoay vần.
 
@@ -19,9 +19,3 @@ Sau khi biết nghiệp là ‘nghiệp’ và quả thành tựu là quả thà
 Đại đức trưởng lão Migajāla đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Migajāla.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

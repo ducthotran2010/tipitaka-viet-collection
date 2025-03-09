@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-1151 NHÓM SÁU MƯƠI
+NHÓM SÁU MƯƠI
 
-# 263\. Mahāmoggallāna
+# 263. Mahāmoggallāna
 
 “Là những vị ngụ ở rừng và chuyên đi khất thực, thích thú với vật được bỏ vào bình bát do sự khất thực, nội tâm khéo được định tĩnh, chúng ta hãy phá tan đạo binh của Thần Chết.
 
@@ -148,9 +148,3 @@ TÓM LƯỢC NHÓM NÀY
 “Ở nhóm Sáu Mươi, vị Moggallāna có đại thần lực là vị trưởng lão độc nhất, các câu kệ ấy là sáu mươi tám.”
 
 Nhóm Sáu Mươi được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

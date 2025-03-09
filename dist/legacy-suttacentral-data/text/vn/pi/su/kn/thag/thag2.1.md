@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 121\. Uttara
+# 121. Uttara
 
 “Không có sự hiện hữu nào là thường còn, và luôn cả các hành cũng không trường tồn. Các uẩn ấy sanh lên và diệt tắt một cách liên tục.
 
@@ -11,9 +11,3 @@ Sau khi biết được điều bất lợi này, tôi không có mục đích �
 Đại đức trưởng lão Uttara đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Uttara.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

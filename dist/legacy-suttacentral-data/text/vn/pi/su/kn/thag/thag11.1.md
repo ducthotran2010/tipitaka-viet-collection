@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-11 NHÓM MƯỜI MỘT
+NHÓM MƯỜI MỘT
 
-# 240\. Saṅkicca
+# 240. Saṅkicca
 
 “Này con yêu, điều gì là mục đích của con ở khu rừng, vào mùa mưa, như là Ujjuhāna? Verambā là đáng yêu đối với con, bởi vì sự tách ly là dành cho những người chứng thiền.
 
@@ -34,9 +34,3 @@ TÓM LƯỢC NHÓM NÀY
 “Trưởng lão Saṅkicca, chỉ một vị, có phận sự đã được làm xong, không còn lậu hoặc, và chỉ có mười một câu kệ ở nhóm mười một.”
 
 Nhóm Mười Một được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

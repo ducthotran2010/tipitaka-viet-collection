@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-10 NHÓM MƯỜI
+NHÓM MƯỜI
 
-# 235\. Mahākappina
+# 235. Mahākappina
 
 “Người nào nhìn thấy trước tương lai, về sự việc có lợi, có hại, và cả hai điều ấy, những kẻ thù hoặc bạn bè của người ấy, trong khi tìm kiếm, không nhìn ra sự sơ hở (của người ấy).
 
@@ -27,9 +27,3 @@ Chính vì thế, nên mong mỏi (có được) những người thông minh v�
 Đại đức trưởng lão Mahākappina đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Mahākappina.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

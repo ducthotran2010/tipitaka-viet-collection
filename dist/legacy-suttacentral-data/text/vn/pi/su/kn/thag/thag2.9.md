@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 129\. Gotama
+# 129. Gotama
 
 “Là những vị không bị trói buộc bởi các người nữ, các bậc hiền trí ngủ thoải mái. Thật vậy, các người nữ luôn luôn cần phải canh phòng, (lời nói) chân thật là điều khó đạt được ở nơi họ.
 
@@ -11,9 +11,3 @@ Này dục vọng, chúng tôi đã thực hành việc giết chết ngươi. G
 Đại đức trưởng lão Gotama đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Gotama.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

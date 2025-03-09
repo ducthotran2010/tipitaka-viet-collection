@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-4 NHÓM BỐN
+NHÓM BỐN
 
-# 191\. Senaka
+# 191. Senaka
 
 “Quả thật đã có điều tốt lành cho tôi tại Gayā, vào kỳ lễ hội Phaggu ở Gayā, là việc tôi đã nhìn thấy đấng Toàn Giác đang thuyết giảng Giáo Pháp tối thượng.
 
@@ -15,9 +15,3 @@ Quả vậy, đức Thế Tôn ấy đã giúp cho tôi, Senaka, kẻ bị ô nh
 Đại đức trưởng lão Senaka đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Senaka.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

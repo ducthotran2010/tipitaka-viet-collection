@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 222\. Sirimanda
+# 222. Sirimanda
 
 “Nước mưa bị văng lại ở vật đã được che đậy, không văng lại ở vật đã được mở ra. Vì thế, hãy mở ra vật đã được che đậy, như vậy, ở vật ấy nước mưa không văng lại.
 
@@ -19,9 +19,3 @@ Nên làm cho ngày không bị trống rỗng, dầu ít hoặc nhiều. Mỗi 
 Đại đức trưởng lão Sirimanda đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sirimanda.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

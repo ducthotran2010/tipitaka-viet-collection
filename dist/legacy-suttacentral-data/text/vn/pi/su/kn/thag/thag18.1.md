@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-1056 NHÓM BỐN MƯƠI
+NHÓM BỐN MƯƠI
 
-# 261\. Mahākassapa
+# 261. Mahākassapa
 
 “Không nên sống được tôn vinh bởi đồ chúng; bị bận tâm, định là điều khó đạt được. Sự giao du với nhiều hạng người là khổ sở, sau khi nhìn thấy như thế, không nên ưa thích đồ chúng.
 
@@ -90,9 +90,3 @@ TÓM LƯỢC NHÓM NÀY
 “Ở nhóm Bốn Mươi, vị tên Mahākassapa là vị trưởng lão độc nhất, và các câu kệ là bốn mươi hai.”
 
 Nhóm Bốn Mươi được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

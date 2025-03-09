@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 221\. Brahmadatta
+# 221. Brahmadatta
 
 “Đối với vị không còn sự tức giận, đã được thuần phục, có cuộc sống bình lặng, đã được giải thoát nhờ vào trí tuệ chân chánh, an tịnh như thế ấy, do đâu có sự tức giận?
 
@@ -17,9 +17,3 @@ Nếu tâm của ngươi chạy theo các dục và các hữu, ngươi hãy t�
 Đại đức trưởng lão Brahmadatta đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Brahmadatta.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

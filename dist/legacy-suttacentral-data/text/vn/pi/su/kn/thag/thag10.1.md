@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-10 NHÓM MƯỜI
+NHÓM MƯỜI
 
-# 233\. Kāḷudāyi
+# 233. Kāḷudāyi
 
 “Bạch đấng Đạo Sư, giờ đây các cây cối có màu đỏ thẫm, sẽ có sự kết trái sau khi rũ bỏ lớp lá (úa). Chúng tỏa sáng tựa như có ngọn lửa. Bạch đấng Đại Hùng, là lúc cho các sự thọ hưởng và vui thú.
 
@@ -27,9 +27,3 @@ Tôi là người con trai của đức Phật, vị Aṅgīrasa, bậc có sự
 Đại đức trưởng lão Kāḷudāyi đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Kāḷudāyi.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

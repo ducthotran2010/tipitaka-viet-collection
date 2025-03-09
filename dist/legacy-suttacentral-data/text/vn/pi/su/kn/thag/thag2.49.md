@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 169\. Sandhita
+# 169. Sandhita
 
 “Ở cội cây Assattha, mặc dầu đang phát triển, cũng có khoảng không gian màu xanh, có niệm tôi đã đạt được một suy tưởng hướng về đức Phật.
 
@@ -21,9 +21,3 @@ TÓM LƯỢC NHÓM NÀY
 “Có chín mươi tám câu kệ ở nhóm hai, bốn mươi chín vị trưởng lão là những vị thuyết giảng, là những vị rành rẽ về phương thức.”
 
 Nhóm Hai được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

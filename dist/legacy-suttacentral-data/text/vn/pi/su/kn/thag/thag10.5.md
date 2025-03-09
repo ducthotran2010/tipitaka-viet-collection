@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-10 NHÓM MƯỜI
+NHÓM MƯỜI
 
-# 237\. Kappa
+# 237. Kappa
 
 “(Thân xác) được chứa đầy các vật ghê tởm khác loại, có nguồn xuất xứ là hầm phân lớn, tựa như ao nước bị tù đọng, mụt nhọt to, vết thương lớn.
 
@@ -27,9 +27,3 @@ Những người nào tránh né thân xác này, tựa như tránh né con rắ
 Đại đức trưởng lão Kappa đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Kappa.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 219\. Sumana
+# 219. Sumana
 
 “Vào lúc tôi vừa mới được xuất gia, bảy tuổi kể từ lúc sanh, tôi đã chế ngự con rồng chúa có đại thần lực bằng thần thông.
 
@@ -19,9 +19,3 @@ Sau khi đạt đến sự an tịnh tối thượng, sau khi chứng ngộ tr�
 Đại đức trưởng lão Sumana đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão Sumana.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.
