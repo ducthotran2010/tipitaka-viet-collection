@@ -1,8 +1,8 @@
-CHUYỆNTHIÊNCUNG
+CHUYỆN THIÊN CUNG
 
 A. THIÊN CUNG NỮ GIỚI
 
-1 PHẨM CHIẾC GHẾ
+PHẨM CHIẾC GHẾ
 
 # 1.8
 
@@ -31,9 +31,3 @@ Do điều ấy, con có được màu da như thế ấy. Do điều ấy mà (
 Do điều ấy mà con có oai lực được rực sáng như vầy, và màu da của con chiếu sáng khắp các phương. Quả báo này của con là của nghiệp ấy. Đức Phật đã uống nước vì sự lợi ích (của con).”
 
 Thiên Cung Chiếc Thuyền thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

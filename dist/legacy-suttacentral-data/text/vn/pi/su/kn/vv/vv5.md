@@ -1,8 +1,8 @@
-CHUYỆNTHIÊNCUNG
+CHUYỆN THIÊN CUNG
 
 A. THIÊN CUNG NỮ GIỚI
 
-1 PHẨM CHIẾC GHẾ
+PHẨM CHIẾC GHẾ
 
 # 1.5
 
@@ -31,9 +31,3 @@ Nếu người nào tịnh tín dâng cúng chỗ ngồi đến các vị hành 
 Chính vì điều đó, những người mong mỏi lợi ích, ao ước quả báo lớn lao thì nên dâng cúng chỗ ngồi đến những vị đang mang thân mạng cuối cùng.”
 
 Thiên Cung Voi.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

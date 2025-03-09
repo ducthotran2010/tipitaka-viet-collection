@@ -1,8 +1,8 @@
-CHUYỆNTHIÊNCUNG
+CHUYỆN THIÊN CUNG
 
 A. THIÊN CUNG NỮ GIỚI
 
-1 PHẨM CHIẾC GHẾ
+PHẨM CHIẾC GHẾ
 
 # 1.9
 
@@ -27,9 +27,3 @@ Do điều ấy, tôi là vị Thiên nhân có hào quang không bị vẩn đ�
 Thưa vị tỳ khưu có đại oai lực, tôi trình bày cho ngài về việc phước thiện tôi đã làm khi là con người. Do điều ấy mà tôi có oai lực được rực sáng như vầy, và màu da của tôi chiếu sáng khắp các phương.”
 
 Thiên Cung Cây Đèn.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.
