@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM MỐI:
 
-# 2\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI MÈO
+# 2. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI MÈO
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Hai tính chất của loài mèo nên được hành trì,’ hai tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -17,9 +15,3 @@ Tâu đại vương, điều này cũng đã được đức Thế Tôn, vị Tr
 ‘_(Sự giải thoát) là không xa nơi đây, vậy sẽ làm gì với cảnh giới tột cùng của hiện hữu? Theo cách diễn tả ở thời hiện tại, thì ngươi nên tìm hiểu thân thể của mình_.’”
 
 Câu hỏi về tính chất của loài mèo là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

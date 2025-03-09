@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG CHƯỚNG NGẠI:
 
-# 2\. CÂU HỎI VỀ NGƯỜI TẠI GIA CHỨNG A-LA-HÁN
+# 2. CÂU HỎI VỀ NGƯỜI TẠI GIA CHỨNG A-LA-HÁN
 
 “**Thưa ngài Nāgasena, ngài nói rằng: ‘Người tại gia nào đạt đến phẩm vị A-la-hán, đối với vị này chỉ có hai lối đi không có lối khác: xuất gia nội trong ngày ấy, hoặc viên tịch Niết Bàn; ngày ấy là không thể vượt qua.’** Thưa ngài Nāgasena, nếu vị ấy, trong ngày hôm ấy, không có được thầy tuyên ngôn, hoặc thầy tế độ, hoặc y và bình bát, có phải vị A-la-hán ấy có thể tự mình xuất gia, hoặc có thể để cho ngày ấy trôi qua? Hoặc có vị nào khác, là A-la-hán, có thần thông, đi đến rồi cho vị ấy xuất gia? Hoặc có thể viên tịch Niết Bàn?”
 
@@ -23,9 +21,3 @@ Tâu đại vương, hoặc là giống như người nam không có sức mạn
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về người tại gia chứng A-la-hán là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

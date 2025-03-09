@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM MỐI:
 
-# 1\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI MỐI
+# 1. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI MỐI
 
 ## TÓM LƯỢC PHẨM NÀY
 
@@ -17,9 +15,3 @@ IV. PHẨM MỐI:
 ‘_Vị hành giả, sau khi làm cho tâm có mái che là sự thu thúc về giới, không bị lấm lem bởi thế gian, và hoàn toàn thoát khỏi sự sợ hãi_.’”
 
 Câu hỏi về tính chất của loài mối là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

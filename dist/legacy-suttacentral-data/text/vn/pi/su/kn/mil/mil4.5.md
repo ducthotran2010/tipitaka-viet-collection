@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 # PHẦN MỞ ĐẦU CÁC CÂU HỎI ĐỐI CHỌI:
@@ -55,9 +53,3 @@ Vậy ở đây là:
 _Do tuổi tác, danh tiếng, học hỏi, do sống với vị lãnh đạo tinh thần, (chú tâm) đúng đắn, do bàn luận, do sự phục vụ với lòng thương, và do sống ở xứ sở thích hợp_.
 
 _Tám sự việc này làm cho tánh giác được rõ ràng. Những người nào có các điều này được hiện hữu thì tánh giác của họ được đánh thức_.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

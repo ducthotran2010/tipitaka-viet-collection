@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐÃ BỊ ĐUỔI ĐI:
 
-# 3\. CÂU HỎI VỀ VIỆC BIỂU LỘ
+# 3. CÂU HỎI VỀ VIỆC BIỂU LỘ
 
 ## VẬT ĐƯỢC CHE GIẤU SAU LỚP VẢI
 
@@ -53,9 +51,3 @@ Tâu đại vương, còn có việc khác nữa, đức Như Lai đã không tr
 Câu hỏi về việc biểu lộ
 
 vật được che giấu sau lớp vải là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VI. PHẨM NHỆN:
 
-# 6\. CÂU HỎI VỀ TÍNH CHẤT CỦA CƠN MƯA
+# 6. CÂU HỎI VỀ TÍNH CHẤT CỦA CƠN MƯA
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của cơn mưa nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -21,9 +19,3 @@ Tâu đại vương, còn có điều khác nữa, cơn mưa trong khi đổ mư
 ‘_Sau khi nhìn thấy chúng sanh có thể giác ngộ dầu ở cách trăm ngàn do-tuần, bậc Đại_ _Hiền Triết_ _đi đến trong khoảnh khắc và giác ngộ người ấy._’”
 
 Câu hỏi về tính chất của cơn mưa là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

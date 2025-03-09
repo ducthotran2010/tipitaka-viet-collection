@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VII. PHẨM CHUM NƯỚC:
 
-# 5\. CÂU HỎI VỀ TÍNH CHẤT CỦA THUỐC GIẢI ĐỘC
+# 5. CÂU HỎI VỀ TÍNH CHẤT CỦA THUỐC GIẢI ĐỘC
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Hai tính chất của thuốc giải độc nên được hành trì,’ hai tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -15,9 +13,3 @@ Tâu đại vương, còn có điều khác nữa, thuốc giải độc ngăn c
 ‘_Với ước muốn nhìn thấy bản thể và ý nghĩa của các pháp tạo tác, vị hành giả nên giống như thuốc giải độc trong việc tiêu trừ chất độc phiền não_.’”
 
 Câu hỏi về tính chất của thuốc giải độc là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

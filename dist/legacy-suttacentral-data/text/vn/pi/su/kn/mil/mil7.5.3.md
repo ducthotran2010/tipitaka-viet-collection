@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM MỐI:
 
-# 3\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI CHUỘT
+# 3. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI CHUỘT
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của loài chuột nên được hành trì,’ một tính chất nên được hành trì ấy là điều nào?**”
 
@@ -13,9 +11,3 @@ IV. PHẨM MỐI:
 ‘_Sau khi lấy Giáo Pháp làm chủ đạo, trong khi sống, vị hành minh sát sống không biếng nhác, an tịnh, luôn luôn có niệm_.’”
 
 Câu hỏi về tính chất của loài chuột là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

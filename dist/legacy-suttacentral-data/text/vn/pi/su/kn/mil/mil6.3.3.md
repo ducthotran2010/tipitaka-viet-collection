@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM VESSANTARA:
 
-# 3\. CÂU HỎI VỀ THIỆN HAY BẤT THIỆN MẠNH HƠN
+# 3. CÂU HỎI VỀ THIỆN HAY BẤT THIỆN MẠNH HƠN
 
 “**Thưa ngài Nāgasena, cái nào trội hơn, mạnh hơn, thiện hay là bất thiện?**”
 
@@ -55,9 +53,3 @@ Mallikādevī, sau khi dâng phần cháo chua của đêm hôm qua đến đứ
 “Thưa ngài Nāgasena, tốt lắm! Thiếu vắng bậc có sự giác ngộ như là ngài, câu hỏi này đã không khéo được tháo gỡ. Thưa ngài Nāgasena, việc thuộc về thế gian đã được giảng giải bằng cách vượt trên thế gian.”
 
 Câu hỏi về thiện hay bất thiện mạnh hơn là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

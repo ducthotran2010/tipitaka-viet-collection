@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -19,9 +17,3 @@ CÁC CÂU HỎI CỦA MILINDA:
 “Tâu đại vương, giống như một vị vua lao vào cuộc chiến đấu cùng với đạo quân gồm có bốn binh chủng, và toàn thể đạo quân gồm các con voi, các con ngựa, các cỗ xe, và bộ binh có đức vua là vị dẫn đầu, có đức vua là nơi quy về, có đức vua là nơi hướng đến, có đức vua là nơi tiến tới, chúng di chuyển xung quanh đức vua. Tâu đại vương, tương tợ y như thế, tất cả các thiện pháp đều có định là pháp dẫn đầu, có định là nơi quy về, có định là nơi hướng đến, có định là nơi tiến tới. Tâu đại vương, định có sự dẫn đầu là tướng trạng nghĩa là như vậy. Tâu đại vương, điều này cũng đã được đức Thế Tôn nói đến: ‘_Này các tỳ khưu, hãy tu tập về định. Vị đã định, nhận biết như thật_.’”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

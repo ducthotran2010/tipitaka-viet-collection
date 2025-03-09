@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM THÂN THIẾT:
 
-# 8\. CÂU HỎI VỀ LỜI NÓI LÀ BÀ-LA-MÔN VÀ LÀ VUA
+# 8. CÂU HỎI VỀ LỜI NÓI LÀ BÀ-LA-MÔN VÀ LÀ VUA
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: ‘**Này các tỳ khưu, Ta là vị Bà-la-môn sẵn sàng đáp ứng sự cầu xin.**’ Và thêm nữa, Ngài đã nói rằng: ‘**Ta là đức vua Sela**.’ Thưa ngài Nāgasena, nếu điều đã được nói bởi đức Thế Tôn là: ‘Này các tỳ khưu, Ta là vị Bà-la-môn sẵn sàng đáp ứng sự cầu xin,’ như thế thì lời nói rằng: ‘Ta là đức vua Sela’ là sai trái. Nếu điều đã được nói bởi đức Như Lai là: ‘Ta là đức vua Sela,’ như thế thì lời nói rằng: ‘Này các tỳ khưu, Ta là vị Bà-la-môn sẵn sàng đáp ứng sự cầu xin’ cũng là sai trái. Bởi vì chỉ có thể hoặc là Sát-đế-lỵ hoặc là Bà-la-môn, nghĩa là không thể có hai giai cấp cho một lần sanh ra. Câu hỏi này cũng có cả hai khía cạnh, được dành cho ngài. Nó nên được giải quyết bởi ngài.”
 
@@ -47,9 +45,3 @@ Tâu đại vương, như vậy lý do có nhiều loại, mà với lý do ấy
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về lời nói là Bà-la-môn và là vua là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

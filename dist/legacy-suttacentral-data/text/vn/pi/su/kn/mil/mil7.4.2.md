@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐẤT:
 
-# 2\. CÂU HỎI VỀ TÍNH CHẤT CỦA NƯỚC
+# 2. CÂU HỎI VỀ TÍNH CHẤT CỦA NƯỚC
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của nước nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -21,9 +19,3 @@ Tâu đại vương, còn có điều khác nữa, nước không đem lại s�
 ‘_Này Sakka, vị chúa tể của tất cả chúng sinh, ngài đã ban cho ta đặc ân. Này Sakka, mong rằng việc đã làm bởi ta bằng tâm hoặc thân không gây hại đến bất cứ người nào, vào bất cứ lúc nào. Này Sakka cao quý, điều này là đặc ân._’”
 
 Câu hỏi về tính chất của nước là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

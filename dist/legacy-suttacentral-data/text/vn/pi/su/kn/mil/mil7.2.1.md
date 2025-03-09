@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM LỪA:
 
-# 1\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI LỪA
+# 1. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI LỪA
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của con vật có tiếng kêu ghê rợn (loài lừa) nên được hành trì,’ một tính chất nên được hành trì ấy là điều nào?**”
 
@@ -17,9 +15,3 @@ Tâu đại vương, điều này cũng đã được trưởng lão Sāriputta,
 ‘_Đối với vị đang ngồi với thế kiết già, trời mưa còn chưa làm ướt đầu gối, vậy là quá đủ cho sự an trú thoải mái của vị tỳ khưu có bản tánh cương quyết._’”
 
 Câu hỏi về tính chất của loài lừa là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

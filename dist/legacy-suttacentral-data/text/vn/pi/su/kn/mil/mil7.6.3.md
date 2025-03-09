@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM SƯ TỬ:
 
-# 3\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI SẾU CÁI
+# 3. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI SẾU CÁI
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Hai tính chất của loài sếu cái nên được hành trì,’ hai tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -18,9 +16,3 @@ Tâu đại vương, còn có điều khác nữa, loài sếu cái sau khi đi 
 > _thì nên sống ở hội chúng, bản thân được bảo vệ, có niệm_.’”
 
 Câu hỏi về tính chất của loài sếu cái là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

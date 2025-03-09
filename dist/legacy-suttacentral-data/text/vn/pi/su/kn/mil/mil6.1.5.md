@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM ĐỨC PHẬT:
 
-# 5\. CÂU HỎI VỀ VIỆC TRỞ LẠI ĐỜI SỐNG TẠI GIA TẦM THƯỜNG
+# 5. CÂU HỎI VỀ VIỆC TRỞ LẠI ĐỜI SỐNG TẠI GIA TẦM THƯỜNG
 
 “**Thưa ngài Nāgasena, Giáo Pháp này của đức Như Lai là vĩ đại, có lõi, cao quý, tối thượng, ưu tú, không thể sánh bằng, thanh thịnh, vô nhiễm, trong trắng, không chê trách được, không thích hợp để cho người vẫn còn tại gia xuất gia. Người tại gia sau khi đã hướng dẫn đến một quả vị, khi nào có sự không quay trở lại nữa, khi ấy mới nên cho người ấy xuất gia**. Vì lý do gì? Những người này vẫn còn là người xấu, sau khi xuất gia ở đây, trong Giáo Pháp trong sạch, sẽ quay lui, trở lại đời sống tại gia tầm thường. Với việc đi ngược trở lại của những người này, đám đông dân chúng này suy nghĩ như vầy: ‘Giáo Pháp này của Sa-môn Gotama quả là rỗng không, khiến những người này quay lui.’ Ở đây, điều này là lý do.”
 
@@ -63,9 +61,3 @@ Tâu đại vương, trầm hương màu đỏ chánh tông có một phần b�
 “Thưa ngài Nāgasena, tốt lắm! Bằng lý lẽ thích đáng với mỗi một trường hợp, tương xứng với mỗi một trường hợp, sự không có lỗi lầm đã được ghi nhận, Giáo Pháp của đấng Chiến Thắng với bản thể tối thượng đã được làm sáng tỏ. Thậm chí trong khi trở lại đời sống tại gia tầm thường, những người ấy cũng làm sáng tỏ chính bản thể tối thượng thuộc về Giáo Pháp của đấng Chiến Thắng.”
 
 Câu hỏi về việc trở lại đời sống tại gia tầm thường là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

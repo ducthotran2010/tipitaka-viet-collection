@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM NĂNG LỰC CỦA THẦN THÔNG:
 
-# 4\. CÂU HỎI VỀ HIỆN TƯỢNG
+# 4. CÂU HỎI VỀ HIỆN TƯỢNG
 
 ## DAO ĐỘNG DỮ DỘI CỦA TRÁI ĐẤT
 
@@ -69,9 +67,3 @@ Tâu đại vương, giống như các viên ngọc ma-ni nhiều loại đượ
 “Thưa ngài Nāgasena, là sự kỳ diệu của chư Phật! Thưa ngài Nāgasena, là sự phi thường của chư Phật! Là việc đức Thế Tôn, trong khi còn là Bồ Tát, với sự nhẫn nại như vậy, với tâm như vậy, với quyết định như vậy, với chủ tâm như vậy, so với thế gian không người sánh bằng. Thưa ngài Nāgasena, sự nỗ lực của các đức Bồ Tát đã được phô bày. Và các pháp toàn hảo của các đấng Chiến Thắng được chiếu sáng còn nhiều hơn thậm chí trong khi các ngài đang thực hành đức hạnh, cho đến bản thể tối thượng của đức Như Lai là được hiển hiện ở thế gian có cả chư Thiên. Thưa ngài Nāgasena, thật tốt đẹp thay Giáo Pháp của đấng Chiến Thắng đã được tán dương, các pháp toàn hảo của đấng Chiến Thắng đã được tỏa sáng, nút thắt ở học thuyết của các giáo chủ tà giáo đã được cắt đứt, bầu nước về học thuyết của những kẻ khác đã được đập bể, câu hỏi thâm sâu đã được làm rõ, bụi rậm đã được làm không còn bụi rậm, sự giải quyết của các vị con trai của đấng Chiến Thắng đã được tiếp thu đúng đắn. Hỡi vị cao quý và ưu tú trong số các vị có đồ chúng, xin ngài hãy chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về hiện tượng dao động dữ dội của trái đất là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -27,9 +25,3 @@ CÁC CÂU HỎI CỦA MILINDA:
 “Tâu đại vương, tương tợ y như thế người tạo nghiệp tốt đẹp hoặc không tốt đẹp với danh sắc này, do nghiệp ấy danh sắc khác tái sanh. Vì thế mà không được hoàn toàn thoát khỏi các nghiệp ác.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

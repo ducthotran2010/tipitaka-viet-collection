@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VIỆC HỎI VÀ TRẢ LỜI
@@ -33,9 +31,3 @@ Vị trưởng lão cũng đã nói như vầy: “Mong rằng đại vương ch
 Việc hỏi và trả lời
 
 các câu hỏi của Milinda được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

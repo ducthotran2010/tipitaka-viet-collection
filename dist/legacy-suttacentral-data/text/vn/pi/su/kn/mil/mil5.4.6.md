@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM VỀ TRÍ TOÀN TRI:
 
-# 6\. CÂU HỎI VỀ LỢI ÍCH CỦA TÂM TỪ
+# 6. CÂU HỎI VỀ LỢI ÍCH CỦA TÂM TỪ
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Này các tỳ khưu, với từ tâm giải thoát đã được rèn luyện, được tu tập, được thực hành thường xuyên, được tạo thành phương tiện, được tạo thành nền tảng, được thiết lập, được tích lũy, được khởi đầu tốt đẹp, mười một điều lợi ích này là điều mong đợi. Mười một điều nào? (Vị ấy) ngủ an lạc, thức dậy an lạc, không nhìn thấy mộng mị xấu xa, được loài người thương mến, được phi nhân thương mến, chư Thiên hộ trì, lửa hoặc thuốc độc hoặc dao gươm không hại được vị ấy, tâm được định nhanh chóng, sắc mặt trầm tĩnh, từ trần không mê mờ, (nếu) chưa thấu triệt pháp cao hơn thì được sanh về thế giới Phạm thiên.**’ Và thêm nữa, ngài nói rằng: ‘Bé trai Sāma, có sự an trú tâm từ, được vây quanh bởi bầy nai, trong khi đi lang thang ở khu rừng bị đức vua Piliyakkha bắn bằng mũi tên tẩm độc, đã bị bất tỉnh và ngã xuống ngay tại chỗ ấy.’
 
@@ -25,9 +23,3 @@ Tâu đại vương, hoặc là giống như cơn mưa to lớn khổng lồ đa
 “Tâu đại vương, sự phát triển tâm từ có sự vận chuyển mọi đức tính tốt đẹp đến những người tốt và luôn cả những người xấu. Sự phát triển tâm từ có lợi ích lớn lao nên được phân phát đến tất cả những chúng sanh đã gắn liền với sự nhận thức.”
 
 Câu hỏi về lợi ích của tâm từ là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

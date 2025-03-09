@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -67,9 +65,3 @@ Trí nhớ sanh lên do kinh nghiệm nghĩa là thế nào? Vị nhớ lại c�
 Tâu đại vương, trí nhớ sanh lên với mười sáu hình thức này.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM THÂN THIẾT:
 
-# 4\. CÂU HỎI VỀ VỊ LÀM SANH KHỞI
+# 4. CÂU HỎI VỀ VỊ LÀM SANH KHỞI
 
 ## ĐẠO LỘ CHƯA ĐƯỢC SANH KHỞI
 
@@ -35,9 +33,3 @@ Tâu đại vương, hoặc là giống như một người nam nào đó dọn 
 Câu hỏi về vị làm sanh khởi
 
 đạo lộ chưa được sanh khởi là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

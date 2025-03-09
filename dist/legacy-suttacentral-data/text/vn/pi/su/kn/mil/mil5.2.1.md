@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG BỊ CHIA RẼ:
 
-# 1\. CÂU HỎI VỀ CÁC ĐIỀU NHỎ NHẶT VÀ TIỂU TIẾT
+# 1. CÂU HỎI VỀ CÁC ĐIỀU NHỎ NHẶT VÀ TIỂU TIẾT
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Này các tỳ khưu, Ta thuyết giảng Giáo Pháp sau khi đã hiểu biết tận tường, không phải không do Thắng Trí.’ Và còn nữa, ở sự quy định về Luật Ngài đã nói như vầy: ‘Này Ānanda, sau khi Ta tịch diệt, Hội Chúng trong khi mong muốn hãy hủy bỏ các điều học nhỏ nhặt và tiểu tiết**.’ Thưa ngài Nāgasena, về việc đức Thế Tôn bảo hủy bỏ các điều học nhỏ nhặt và tiểu tiết sau khi Ngài đã tịch diệt, phải chăng các điều học nhỏ nhặt và tiểu tiết đã được quy định sai, hay là đã được quy định khi không có sự việc (xảy ra), sau khi đã không nhận biết? Thưa ngài Nāgasena, nếu điều đã được nói bởi đức Thế Tôn là: ‘**Này các tỳ khưu, Ta thuyết giảng Giáo Pháp sau khi đã hiểu biết tận tường, không phải không do Thắng Trí**,’ như thế thì lời nói rằng: ‘**Này Ānanda, sau khi Ta tịch diệt, Hội Chúng trong khi mong muốn hãy hủy bỏ các điều học nhỏ nhặt và tiểu tiết**’ là sai trái. Nếu ở sự quy định về Luật, đức Như Lai đã nói như vầy: ‘**Này Ānanda, sau khi Ta tịch diệt, Hội Chúng trong khi mong muốn hãy hủy bỏ các điều học nhỏ nhặt và tiểu tiết,**’ như thế thì lời nói: ‘**Này các tỳ khưu, Ta thuyết giảng Giáo Pháp sau khi đã hiểu biết tận tường, không phải không do Thắng Trí**’ cũng là sai trái. Câu hỏi này cũng có cả hai khía cạnh, tinh vi, tế nhị, vô cùng khôn khéo, vô cùng sâu xa, khó phân giải. Nó được dành cho ngài. Ở đây, xin ngài hãy thể hiện sự triển khai về năng lực trí tuệ của ngài.”
 
@@ -23,9 +21,3 @@ Tâu đại vương, nhằm sự giải thoát hoàn toàn khổ đau, những n
 “Thưa ngài Nāgasena, điều bí ẩn của đấng Chiến Thắng bị bỏ quên bấy lâu, vào lúc này hôm nay đã được mở ra, đã được làm rõ ràng ở thế gian.”
 
 Câu hỏi về các điều nhỏ nhặt và tiểu tiết là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

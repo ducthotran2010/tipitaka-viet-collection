@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM ĐỨC PHẬT:
 
-# 2\. CÂU HỎI VỀ VIỆC DÂNG CÚNG TẤM VẢI CỦA BÀ GOTAMĪ
+# 2. CÂU HỎI VỀ VIỆC DÂNG CÚNG TẤM VẢI CỦA BÀ GOTAMĪ
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến khi dì mẫu Mahāpajāpati Gotamī đang dâng cúng tấm vải choàng tắm mưa: ‘**Này Gotamī, hãy dâng cúng Hội Chúng. Khi Hội Chúng được bà dâng cúng, chính Ta sẽ được tôn vinh, và luôn cả Hội Chúng nữa.**’ Thưa ngài Nāgasena, việc đức Như Lai trong khi bản thân được người dì mẫu của mình dâng cúng tấm vải choàng tắm mưa đã được bà đích thân nhuộm, đích thân chải, đích thân đập giũ, đích thân cắt, đích thân dệt, lại bảo dâng đến Hội Chúng, phải chăng đức Như Lai không là người quan trọng, không là bậc được kính trọng, không là bậc đáng được cúng dường so với Hội Chúng quý báu? Thưa ngài Nāgasena, nếu đức Như Lai là vượt hẳn Hội Chúng quý báu, hoặc là trội hơn, hay nổi bật, (nghĩ rằng): ‘Khi Ta được dâng cúng thì sẽ có quả báu lớn,’ đức Như Lai không bảo dâng cúng đến Hội Chúng tấm vải choàng tắm mưa đã được người dì mẫu đích thân nhuộm, đích thân chải, đích thân đập giũ. Thưa ngài Nāgasena, (hay) bởi vì đức Như Lai không thu lợi, không gom vào cho bản thân, vì thế đức Như Lai đã bảo người dì mẫu dâng cúng tấm vải choàng tắm mưa đến Hội Chúng.”
 
@@ -39,9 +37,3 @@ Và đức Thế Tôn, vị Trời vượt trội các vị Trời, đã nói r�
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về việc dâng cúng tấm vải của bà Gotamī là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

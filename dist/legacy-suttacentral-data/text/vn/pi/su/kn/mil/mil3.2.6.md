@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -79,9 +77,3 @@ Vị trưởng lão đã nói rằng: “Nếu không đi tái sanh thì có th�
 “Tâu đại vương, tương tợ y như thế cho dầu danh sắc cận tử là khác, danh sắc trong sự đi tái sanh là khác, tuy nhiên danh sắc ấy đã phát khởi chính từ đó. Vì thế không được hoàn toàn thoát khỏi các nghiệp ác.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

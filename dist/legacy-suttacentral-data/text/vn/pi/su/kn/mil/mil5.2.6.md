@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG BỊ CHIA RẼ:
 
-# 6\. CÂU HỎI VỀ VIỆC CÓ NHIỀU TỘI
+# 6. CÂU HỎI VỀ VIỆC CÓ NHIỀU TỘI
 
 ## Ở HÀNH ĐỘNG ÁC CỦA NGƯỜI KHÔNG BIẾT
 
@@ -17,9 +15,3 @@ II. PHẨM KHÔNG BỊ CHIA RẼ:
 Câu hỏi về việc có nhiều tội
 
 ở hành động ác của người không biết là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

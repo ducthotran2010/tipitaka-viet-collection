@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM NĂNG LỰC CỦA THẦN THÔNG:
 
-# 3\. CÂU HỎI VỀ SỰ XUẤT GIA CỦA DEVADATTA
+# 3. CÂU HỎI VỀ SỰ XUẤT GIA CỦA DEVADATTA
 
 “**Thưa ngài Nāgasena, do vị nào mà Devadatta đã được xuất gia?**”
 
@@ -79,9 +77,3 @@ Tâu đại vương, giống như người thầy thuốc phẫu thuật thiện
 “Thưa ngài Nāgasena, đức Như Lai đã đưa Devadatta, kẻ có sự bị cuốn trôi theo dòng nước, vào Đạo Lộ; đã ban cho Devadatta, kẻ đã bị rơi vào vực thẳm, chỗ đứng; đã đưa Devadatta, kẻ bước đi ở chỗ gập ghềnh, đến nơi bằng phẳng. Thưa ngài Nāgasena, không thể nhìn nhận những nhân tố này và những lý do này bởi người nào khác ngoại trừ bậc có sự giác ngộ như là ngài vậy.”
 
 Câu hỏi về sự xuất gia của Devadatta là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

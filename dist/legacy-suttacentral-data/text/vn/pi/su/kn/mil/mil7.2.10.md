@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM LỪA:
 
-# 10\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI KHỈ
+# 10. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI KHỈ
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Hai tính chất của loài khỉ nên được hành trì,’ hai tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -19,9 +17,3 @@ Tâu đại vương, còn có điều khác nữa, loài khỉ đi đứng ngồ
 Câu hỏi về tính chất của loài khỉ là thứ mười.
 
 Phẩm Lừa là phẩm thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG BỊ CHIA RẼ:
 
-# 8\. CÂU HỎI VỀ VIỆC HỘI CHÚNG KHÔNG BỊ CHIA RẼ
+# 8. CÂU HỎI VỀ VIỆC HỘI CHÚNG KHÔNG BỊ CHIA RẼ
 
 “**Thưa ngài Nāgasena, ngài nói rằng: ‘Đức Như Lai có hội chúng không bị chia rẽ.’ Và còn có nói rằng: ‘Năm trăm tỳ khưu đã bị chia rẽ cùng một lúc bởi Devadatta.’** Thưa ngài Nāgasena, nếu đức Như Lai có hội chúng không bị chia rẽ, như thế thì lời nói rằng: ‘Năm trăm tỳ khưu đã bị chia rẽ cùng một lúc bởi Devadatta’ là sai trái. Nếu năm trăm tỳ khưu đã bị chia rẽ cùng một lúc bởi Devadatta, như thế thì lời nói rằng: ‘Đức Như Lai có hội chúng không bị chia rẽ’ là sai trái. Câu hỏi này cũng có cả hai khía cạnh, được dành cho ngài, là thâm sâu, khó tháo gỡ, bị thắt lại còn hơn nút thắt. Ở đây, nhóm người này là bị ngăn cản, bị bưng bít, bị che đậy, bị bao trùm. Xin ngài hãy phô bày năng lực trí tuệ của ngài về các lời nói của những người khác.”
 
@@ -19,9 +17,3 @@ Câu hỏi về việc hội chúng không bị chia rẽ là thứ tám.
 Phẩm không bị chia rẽ là phẩm thứ nhì.
 
 (Ở phẩm này có tám câu hỏi)
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

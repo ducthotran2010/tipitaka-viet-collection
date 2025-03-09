@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG BỊ CHIA RẼ:
 
-# 7\. CÂU HỎI VỀ VIỆC QUẢN TRỊ HỘI CHÚNG TỲ KHƯU
+# 7. CÂU HỎI VỀ VIỆC QUẢN TRỊ HỘI CHÚNG TỲ KHƯU
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **—Này Ānanda, Như Lai không khởi ý như vầy: ‘Ta sẽ quản trị hội chúng tỳ khưu’** hoặc là: ‘**Hội chúng tỳ khưu là thuộc sự chỉ đạo của Ta.’** Và thêm nữa, trong khi làm sáng tỏ đức hạnh về bản thể của đức Thế Tôn Metteyya, Ngài đã nói như vầy: **‘Vị ấy sẽ quản trị hội chúng tỳ khưu nhiều ngàn năm, cũng giống như Ta hiện nay quản trị hội chúng tỳ khưu nhiều trăm năm.’** Thưa ngài Nāgasena, nếu điều đã được nói bởi đức Thế Tôn là:—**Này Ānanda, Như Lai không khởi ý như vầy: ‘Ta sẽ quản trị hội chúng tỳ khưu**’ hoặc là: ‘**Hội chúng tỳ khưu là thuộc sự chỉ đạo của Ta,**’ như thế thì trong khi làm sáng tỏ đức hạnh về bản thể của đức Thế Tôn Metteyya, Ngài nói rằng: ‘**Vị ấy sẽ quản trị hội chúng tỳ khưu nhiều ngàn năm, cũng giống như Ta hiện nay quản trị hội chúng tỳ khưu nhiều trăm năm,**’ lời nói ấy là sai trái.
 
@@ -17,9 +15,3 @@ Tâu đại vương, hoặc là giống như đám mây to lớn khổng lồ tr
 “Thưa ngài Nāgasena, tốt lắm! Câu hỏi đã khéo được tháo gỡ bằng nhiều cách thức với nhiều lý lẽ, điều thâm sâu đã được làm rõ, nút thắt đã được mở ra, bụi rậm đã được làm không còn bụi rậm, bóng tối đã được làm thành ánh sáng, lời tuyên thuyết của ngoại đạo đã bị đổ vỡ, (Pháp) nhãn đã được sanh khởi cho những người con trai của đấng Chiến Thắng.”
 
 Câu hỏi về việc quản trị hội chúng tỳ khưu là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM BIỂN CẢ:
 
-# 5\. CÂU HỎI VỀ TÍNH CHẤT CỦA CHIẾC THUYỀN
+# 5. CÂU HỎI VỀ TÍNH CHẤT CỦA CHIẾC THUYỀN
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Ba tính chất của chiếc thuyền nên được hành trì,’ ba tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -17,9 +15,3 @@ Tâu đại vương, còn có điều khác nữa, chiếc thuyền di chuyển 
 ‘_Này các tỳ khưu, trong lúc suy tư, các người nên suy tư về: ‘Đây là khổ,’ nên suy tư về: ‘Đây là Nguyên Nhân của Khổ,’ nên suy tư về: ‘Đây là sự Diệt Khổ,’ nên suy tư về: ‘Đây là sự Thực Hành theo Con Đường đưa đến sự Diệt Khổ_.’”
 
 Câu hỏi về tính chất của chiếc thuyền là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

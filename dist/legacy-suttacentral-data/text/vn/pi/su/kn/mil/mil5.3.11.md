@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐÃ BỊ ĐUỔI ĐI:
 
-# 11\. CÂU HỎI VỀ SỰ KHÔNG HÃM HẠI VÀ SỰ TRẤN ÁP
+# 11. CÂU HỎI VỀ SỰ KHÔNG HÃM HẠI VÀ SỰ TRẤN ÁP
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Trong khi không hãm hại người khác ở trên đời, ngươi sẽ trở thành người được yêu mến, được thân cận.**’ Và thêm nữa, Ngài đã nói rằng: ‘**Hãy trấn áp kẻ xứng đáng với sự trấn áp, hãy nâng đỡ kẻ xứng đáng với sự nâng đỡ.**’ Thưa ngài Nāgasena, trấn áp nghĩa là chặt tay, chặt chân, trừng phạt, giam cầm, hành hạ, giết chết, làm tổn thương sự tiếp nối (mạng sống). Lời nói này đối với đức Thế Tôn là không được đúng đắn. Và đức Thế Tôn không thể nào nói lời nói này.
 
@@ -43,9 +41,3 @@ Tâu đại vương, còn về việc đức Như Lai đã nói rằng: ‘Hãy 
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về sự không hãm hại và sự trấn áp là thứ mười một.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

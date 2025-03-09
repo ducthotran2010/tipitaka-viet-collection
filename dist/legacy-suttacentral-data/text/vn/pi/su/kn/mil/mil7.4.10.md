@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐẤT:
 
-# 10\. CÂU HỎI VỀ TÍNH CHẤT CỦA VỊ CHUYỂN LUÂN
+# 10. CÂU HỎI VỀ TÍNH CHẤT CỦA VỊ CHUYỂN LUÂN
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Bốn tính chất của vị Chuyển Luân nên được hành trì,’ bốn tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -25,9 +23,3 @@ Tâu đại vương, còn có điều khác nữa, vị Chuyển Luân có sự 
 Câu hỏi về tính chất của vị Chuyển Luân là thứ mười.
 
 Phẩm đất là phẩm thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

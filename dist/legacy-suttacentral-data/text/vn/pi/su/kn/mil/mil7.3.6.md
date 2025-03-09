@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM BIỂN CẢ:
 
-# 6\. CÂU HỎI VỀ TÍNH CHẤT CỦA CÁI NEO THUYỀN
+# 6. CÂU HỎI VỀ TÍNH CHẤT CỦA CÁI NEO THUYỀN
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Hai tính chất của cái neo thuyền nên được hành trì,’ hai tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -15,9 +13,3 @@ Tâu đại vương, còn có điều khác nữa cái neo thuyền không nổi
 ‘_Giống như cái neo không nổi lên ở biển, mà chìm xuống, y như thế ấy các ngươi chớ nổi lên ở lợi lộc và tôn vinh, mà hãy chìm xuống_.’”
 
 Câu hỏi về tính chất của cái neo thuyền là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -19,9 +17,3 @@ CÁC CÂU HỎI CỦA MILINDA:
 “Tâu đại vương, người chưa lìa tham ái thọ dụng vật thực có sự nhận biết về mùi vị, có sự nhận biết về tham ái ở mùi vị, còn người đã lìa tham ái thọ dụng vật thực có sự nhận biết về mùi vị nhưng sự nhận biết về tham ái ở mùi vị là không có.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

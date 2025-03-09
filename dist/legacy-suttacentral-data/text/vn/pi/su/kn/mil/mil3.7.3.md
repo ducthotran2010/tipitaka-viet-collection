@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -83,9 +81,3 @@ Vị trưởng lão đã nói rằng: “Tâu đại vương, làm cách nào đ
 “Tâu đại vương, đại vương quả là quá sáng trí khi ngài chuẩn bị việc ấy nhằm mục đích ngăn chặn các sự thèm ăn không hiện hữu ở vị lai!”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

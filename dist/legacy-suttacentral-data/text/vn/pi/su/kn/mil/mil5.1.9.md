@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM NĂNG LỰC CỦA THẦN THÔNG:
 
-# 9\. CÂU HỎI VỀ TÍNH CHẤT
+# 9. CÂU HỎI VỀ TÍNH CHẤT
 
 ## KHÔNG VIỆC GÌ CẦN PHẢI LÀM THÊM NỮA
 
@@ -23,9 +21,3 @@ Tâu đại vương, hơn nữa với ý muốn tận hưởng sự an tịnh, a
 Câu hỏi về tính chất không việc gì cần phải làm thêm nữa
 
 là thứ chín.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

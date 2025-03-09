@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM THÂN THIẾT:
 
-# 7\. CÂU HỎI VỀ GHATĪKĀRA
+# 7. CÂU HỎI VỀ GHATĪKĀRA
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: ‘**Căn nhà của người thợ gốm Ghaṭīkāra, có mái che là bầu trời, đã tồn tại suốt cả ba tháng, và đã không bị nước mưa.**’ Và thêm nữa, Ngài đã nói rằng: ‘**Cốc liêu của đức Như Lai Kassapa bị mưa dột**.’ Thưa ngài Nāgasena, tại sao cốc liêu của đức Như Lai Kassapa, bậc có thiện căn đầy đủ như thế, lại bị mưa dột? Oai lực ấy của đức Như Lai là điều đáng được ao ước. Thưa ngài Nāgasena, nếu căn nhà của người thợ gốm Ghaṭīkāra, có mái che là bầu trời, đã không có mưa dột, như thế thì lời nói rằng: ‘Cốc liêu của đức Như Lai Kassapa bị mưa dột’ là sai trái. Nếu cốc liêu của đức Như Lai Kassapa bị mưa dột, như thế thì lời nói rằng: ‘Căn nhà của người thợ gốm Ghaṭīkāra, có mái che là bầu trời, đã không có mưa dột’ cũng là sai trái. Câu hỏi này cũng có cả hai khía cạnh, được dành cho ngài. Nó nên được giải quyết bởi ngài.”
 
@@ -19,9 +17,3 @@ Tâu đại vương, nếu (Chúa Trời) Sakka hoặc đấng Brahmā, hoặc t
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về Ghaṭīkāra là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

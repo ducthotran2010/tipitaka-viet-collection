@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM VESSANTARA:
 
-# 1\. CÂU HỎI VỀ VIỆC BỐ THÍ CON CỦA VESSANTARA
+# 1. CÂU HỎI VỀ VIỆC BỐ THÍ CON CỦA VESSANTARA
 
 “**Thưa ngài Nāgasena, có phải hết thảy tất cả các đức Bồ Tát đều bố thí con và vợ, hay là chỉ riêng đức vua Vessantara đã bố thí con và vợ?**”
 
@@ -115,9 +113,3 @@ Tâu đại vương, hoàng tử Jālī đã được vua cha Vessantara chỉ d
 “Thưa ngài Nāgasena, câu hỏi đã khéo được tháo gỡ, mạng lưới tà kiến đã khéo được phá vỡ, các học thuyết khác đã khéo được nghiền nát, kiến thức của bản thân đã khéo được giải thích, vấn đề phụ thuộc đã khéo được làm rõ, ý nghĩa đã khéo được phân tích. Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về việc bố thí con của Vessanta là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -25,9 +23,3 @@ Vị trưởng lão đã nói rằng: “**Tâu đại vương, có phải hành
 Phẩm Xác Định Các Pháp Vô Sắc là thứ bảy.
 
 (Trong phẩm này có mười sáu câu hỏi)
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

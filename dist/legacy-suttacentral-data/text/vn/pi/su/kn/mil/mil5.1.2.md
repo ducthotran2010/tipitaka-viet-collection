@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM NĂNG LỰC CỦA THẦN THÔNG:
 
-# 2\. CÂU HỎI VỀ BẢN THỂ TOÀN TRI CỦA ĐỨC THẾ TÔN
+# 2. CÂU HỎI VỀ BẢN THỂ TOÀN TRI CỦA ĐỨC THẾ TÔN
 
 “**Thưa ngài Nāgasena, có phải đức Phật là đấng Toàn Tri**?”
 
@@ -67,9 +65,3 @@ Tâu đại vương, hơn nữa giống như cây cối thì có thể kết tr�
 “Thưa ngài Nāgasena, lý do là vững chãi. Đức Phật là đấng Toàn Tri. Chúng tôi chấp nhận đức Phật là đấng Toàn Tri.”
 
 Câu hỏi về bản thể Toàn Tri của đức Thế Tôn là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

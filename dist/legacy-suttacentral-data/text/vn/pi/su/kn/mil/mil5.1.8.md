@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM NĂNG LỰC CỦA THẦN THÔNG:
 
-# 8\. CÂU HỎI VỀ VIỆC CẮT ĐỨT PHÁP BẤT THIỆN
+# 8. CÂU HỎI VỀ VIỆC CẮT ĐỨT PHÁP BẤT THIỆN
 
 “**Thưa ngài Nāgasena, đức Thế Tôn đã đạt đến bản thể Toàn Tri sau khi thiêu đốt tất cả pháp bất thiện, hay là đã đạt đến bản thể Toàn Tri khi pháp bất thiện còn dư sót**.”
 
@@ -47,9 +45,3 @@ Tâu đại vương, như thế không hẳn tất cả các thọ sanh ra do qu
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về sự cắt đứt pháp bất thiện là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

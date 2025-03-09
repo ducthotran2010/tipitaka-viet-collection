@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -23,9 +21,3 @@ CÁC CÂU HỎI CỦA MILINDA:
 “Tâu đại vương, tương tợ y như thế đức Thế Tôn là vị biết tất cả, thấy tất cả; ngài không quy định điều học cho các đệ tử khi không phải là thời điểm. Khi thời điểm đã đến, ngài mới quy định điều học cho các đệ tử, cho đến trọn đời không nên vượt qua.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

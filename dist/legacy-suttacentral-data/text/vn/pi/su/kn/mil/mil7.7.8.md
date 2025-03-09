@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VI. PHẨM NHỆN:
 
-# 8\. CÂU HỎI VỀ TÍNH CHẤT CỦA NGƯỜI THỢ SĂN
+# 8. CÂU HỎI VỀ TÍNH CHẤT CỦA NGƯỜI THỢ SĂN
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Bốn tính chất của người thợ săn nên được hành trì,’ bốn tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -19,9 +17,3 @@ Tâu đại vương, còn có điều khác nữa, người thợ săn sau khi n
 ‘_Sau khi đạt được các đối tượng (của đề mục thiền), vị tỳ khưu có bản tánh cương quyết nên sanh khởi sự vui mừng hơn nữa rằng: ‘Ta sẽ chứng đắc hơn nữa_.’”
 
 Câu hỏi về tính chất của người thợ săn là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

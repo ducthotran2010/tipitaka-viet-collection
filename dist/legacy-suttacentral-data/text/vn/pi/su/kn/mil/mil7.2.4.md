@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM LỪA:
 
-# 4\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI BEO CÁI
+# 4. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI BEO CÁI
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của loài beo cái nên được hành trì,’ một tính chất nên được hành trì ấy là điều nào?**”
 
@@ -13,9 +11,3 @@ I. PHẨM LỪA:
 ‘_Tợ như con bò mộng đã cắt đứt các sự trói buộc, tợ như con voi đã bứt lìa sợi dây rừng thối tha, Ta sẽ không đi đến việc nằm ở bào thai lần nữa. Này vị Trời, vậy nếu ngài mong muốn, thì ngài hãy đổ mưa_.’”
 
 Câu hỏi về tính chất của loài beo cái là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

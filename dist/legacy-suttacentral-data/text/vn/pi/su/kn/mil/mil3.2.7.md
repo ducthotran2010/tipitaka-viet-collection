@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -19,9 +17,3 @@ CÁC CÂU HỎI CỦA MILINDA:
 “Tâu đại vương, tương tợ y như thế điều gì cho đại vương với việc hỏi điều này? Không phải tôi đã nói trước đây là: ‘Tâu đại vương, nếu tôi còn chấp thủ tôi sẽ tái sanh. Nếu tôi không còn chấp thủ thì tôi sẽ không đi tái sanh’?”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

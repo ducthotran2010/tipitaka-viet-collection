@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM THÂN THIẾT:
 
-# 9\. CÂU HỎI GIẢNG VỀ VẬT THỰC
+# 9. CÂU HỎI GIẢNG VỀ VẬT THỰC
 
 ## DO VIỆC NGÂM NGA CÁC BÀI KỆ
 
@@ -61,9 +59,3 @@ Tâu đại vương, thậm chí ở Verañjā trong lúc đức Như Lai đang 
 “Thưa ngài Nāgasena, thật là điều lợi ích đối với chư Thiên ấy, là các vị đã thường xuyên, liên tục thể hiện sự nỗ lực trong việc chăm sóc thân thể của đức Như Lai. Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi giảng về vật thực do việc ngâm nga các bài kệ là thứ chín.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

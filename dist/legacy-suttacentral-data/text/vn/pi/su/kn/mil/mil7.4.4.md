@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐẤT:
 
-# 4\. CÂU HỎI VỀ TÍNH CHẤT CỦA GIÓ
+# 4. CÂU HỎI VỀ TÍNH CHẤT CỦA GIÓ
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của gió nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -21,9 +19,3 @@ Tâu đại vương, còn có điều khác nữa, gió là không chỗ ngụ, 
 ‘_Sợ hãi sanh ra từ sự thân thiết, bụi bặm sanh ra từ nhà ở, không nhà ở không thân thiết, quả thật điều ấy là quan điểm của bậc_ _hiền triết_.’”
 
 Câu hỏi về tính chất của gió là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

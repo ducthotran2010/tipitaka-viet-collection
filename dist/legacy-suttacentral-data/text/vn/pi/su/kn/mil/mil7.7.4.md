@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VI. PHẨM NHỆN:
 
-# 4\. CÂU HỎI VỀ TÍNH CHẤT CỦA KHU RỪNG
+# 4. CÂU HỎI VỀ TÍNH CHẤT CỦA KHU RỪNG
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của khu rừng nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -21,9 +19,3 @@ Tâu đại vương, còn có điều khác nữa, khu rừng là thân cận v�
 ‘_Nên sống với các bậc thánh thiện, đã tách ly, có bản tánh cương quyết, có thiền chứng, với các bậc sáng trí thường xuyên ra sức tinh tấn_.’”
 
 Câu hỏi về tính chất của khu rừng là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

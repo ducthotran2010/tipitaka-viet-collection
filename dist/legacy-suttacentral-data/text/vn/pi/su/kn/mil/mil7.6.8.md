@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM SƯ TỬ:
 
-# 8\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI ĐỈA
+# 8. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI ĐỈA
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của loài đỉa nên được hành trì,’ một tính chất nên được hành trì ấy là điều nào?**”
 
@@ -13,9 +11,3 @@ V. PHẨM SƯ TỬ:
 ‘_Nên thiết lập ở đối tượng bằng tâm thanh tịnh, nên uống vị chất trọn vẹn của sự giải thoát bằng tâm ấy_.’”
 
 Câu hỏi về tính chất của loài đỉa là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

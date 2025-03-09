@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM SƯ TỬ:
 
-# 2\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI NGỖNG ĐỎ
+# 2. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI NGỖNG ĐỎ
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Ba tính chất của loài ngỗng đỏ nên được hành trì,’ ba tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -19,9 +17,3 @@ Tâu đại vương, điều này cũng đã được đức Thế Tôn, vị Tr
 ‘_Người nào không giết hại, không bảo giết hại, không thống trị, không bảo thống trị, do sự không hãm hại đối với tất cả chúng sanh, người ấy không có oán thù với bất cứ ai_.’”
 
 Câu hỏi về tính chất của loài ngỗng đỏ là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

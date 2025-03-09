@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐẤT:
 
-# 8\. CÂU HỎI VỀ TÍNH CHẤT CỦA MẶT TRỜI
+# 8. CÂU HỎI VỀ TÍNH CHẤT CỦA MẶT TRỜI
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Bảy tính chất của mặt trời nên được hành trì,’ bảy tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -27,9 +25,3 @@ Tâu đại vương, còn có điều khác nữa, mặt trời giúp cho nhìn 
 _Tương tợ như thế, vị tỳ khưu có sự ghi nhớ về Giáo Pháp, giống như mặt trời đang mọc lên, giúp cho người bị vô minh che lấp nhìn thấy con đường có nhiều lối_.’”
 
 Câu hỏi về tính chất của mặt trời là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

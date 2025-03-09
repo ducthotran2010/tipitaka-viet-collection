@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM VỀ TRÍ TOÀN TRI:
 
-# 10\. CÂU HỎI VỀ BẢN THỂ TOÀN TRI CỦA ĐỨC NHƯ LAI
+# 10. CÂU HỎI VỀ BẢN THỂ TOÀN TRI CỦA ĐỨC NHƯ LAI
 
 “Thưa ngài Nāgasena, ngài nói rằng: ‘**Đức Như Lai là đấng Toàn Tri.**’ Và thêm nữa, ngài nói rằng: ‘**Khi hội chúng tỳ khưu đứng đầu là Sāriputta và Moggallāna bị đức Như Lai giải tán, các vị dòng Sakya ở tại Cātumā và Phạm Thiên Sahampati đã nhắc đến ví dụ về hạt giống và ví dụ về con bê nhỏ khiến cho đức Thế Tôn tin tưởng, tha thứ, và đã tỏ vẻ hài lòng**.’
 
@@ -25,9 +23,3 @@ Câu hỏi về bản thể toàn tri của đức Như Lai là thứ mười.
 Phẩm về Trí Toàn Tri là thứ tư.
 
 (Trong phẩm này có mười câu hỏi)
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

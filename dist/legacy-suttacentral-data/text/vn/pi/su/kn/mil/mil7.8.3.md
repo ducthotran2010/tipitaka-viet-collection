@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VII. PHẨM CHUM NƯỚC:
 
-# 3\. CÂU HỎI VỀ TÍNH CHẤT CỦA CÁI LỌNG CHE
+# 3. CÂU HỎI VỀ TÍNH CHẤT CỦA CÁI LỌNG CHE
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Ba tính chất của cái lọng che nên được hành trì,’ ba tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -19,9 +17,3 @@ Tâu đại vương, còn có điều khác nữa, cái lọng che ngăn cản g
 _Y như thế ấy, người con trai của đức Phật, được trong sạch, cầm chiếc lọng che là giới, cản lại cơn mưa phiền não và ngọn lửa gồm ba loại có sự đốt nóng_.’”
 
 Câu hỏi về tính chất của cái lọng che là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

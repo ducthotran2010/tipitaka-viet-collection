@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG BỊ CHIA RẼ:
 
-# 3\. CÂU HỎI VỀ VIỆC SỢ HÃI HAY KHÔNG SỢ HÃI SỰ CHẾT
+# 3. CÂU HỎI VỀ VIỆC SỢ HÃI HAY KHÔNG SỢ HÃI SỰ CHẾT
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Tất cả run sợ hình phạt, tất cả sợ hãi sự chết.’** Và thêm nữa Ngài đã nói rằng: ‘**Vị A-la-hán đã vượt qua mọi sự sợ hãi**.’Thưa ngài Nāgasena, phải chăng vị A-la-hán không run sợ đối với mọi sự sợ hãi về hình phạt? Hay là các chúng sanh địa ngục bị đốt cháy, bị đun sôi, bị đốt nóng, bị đun nóng ở địa ngục, trong khi đang chết từ đại địa ngục có màng lưới lửa cháy rực ấy, mới sợ hãi sự chết? Thưa ngài Nāgasena, nếu điều đã được nói bởi đức Thế Tôn là: ‘**Tất cả run sợ hình phạt, tất cả sợ hãi sự chết**,’ như thế thì lời nói rằng ‘**Vị A-la-hán đã vượt qua mọi sự sợ hãi**’ là sai trái. Nếu điều đã được nói bởi đức Thế Tôn là: ‘**Vị A-la-hán đã vượt qua mọi sự sợ hãi,**’ như thế thì lời nói rằng: ‘**Tất cả run sợ hình phạt, tất cả sợ hãi sự chết**’ cũng là sai trái. Câu hỏi này cũng có cả hai khía cạnh, được dành cho ngài. Nó nên được giải quyết bởi ngài.”
 
@@ -61,9 +59,3 @@ Tâu đại vương, ở đây có bệnh mỡ đóng cục sanh khởi ở thâ
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về việc sợ hãi hay không sợ hãi sự chết là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

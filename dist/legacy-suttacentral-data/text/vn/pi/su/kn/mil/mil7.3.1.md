@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM BIỂN CẢ:
 
-# 1\. CÂU HỎI VỀ TÍNH CHẤT CỦA DÂY BẦU
+# 1. CÂU HỎI VỀ TÍNH CHẤT CỦA DÂY BẦU
 
 ## PHẦN TÓM LƯỢC
 
@@ -19,9 +17,3 @@ II. PHẨM BIỂN CẢ:
 _Y như thế ấy, người con trai của đức Phật, có ước muốn về quả vị A-la-hán, thì nên đeo bám ở đối tượng (đề mục thiền), rồi tiến triển ở quả vị Vô Học_.’”
 
 Câu hỏi về tính chất của dây bầu là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

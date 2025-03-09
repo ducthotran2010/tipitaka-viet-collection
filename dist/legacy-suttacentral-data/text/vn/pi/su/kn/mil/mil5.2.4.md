@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG BỊ CHIA RẼ:
 
-# 4\. CÂU HỎI VỀ SỰ THOÁT KHỎI CÁI BẪY CỦA THẦN CHẾT
+# 4. CÂU HỎI VỀ SỰ THOÁT KHỎI CÁI BẪY CỦA THẦN CHẾT
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến:
 
@@ -89,9 +87,3 @@ Tâu đại vương, hơn nữa phải chăng đại vương đã được nghe 
 “Thưa ngài Nāgasena, tốt lắm! Câu hỏi đã khéo được giải quyết, bụi rậm đã được làm không còn bụi rậm, bóng tối đã được làm thành ánh sáng, mạng lưới tà kiến đã bị tháo rời, ngài đã tiến đến vị thế cao quý và ưu tú trong số các vị có đồ chúng.”
 
 Câu hỏi về sự thoát khỏi cái bẫy của Thần Chết là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

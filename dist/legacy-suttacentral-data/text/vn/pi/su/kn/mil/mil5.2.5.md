@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG BỊ CHIA RẼ:
 
-# 5\. CÂU HỎI VỀ SỰ CHƯỚNG NGẠI
+# 5. CÂU HỎI VỀ SỰ CHƯỚNG NGẠI
 
 ## TRONG VIỆC THỌ NHẬN CỦA ĐỨC THẾ TÔN
 
@@ -45,9 +43,3 @@ Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng the
 Câu hỏi về sự chướng ngại
 
 trong việc thọ nhận của đức Thế Tôn là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

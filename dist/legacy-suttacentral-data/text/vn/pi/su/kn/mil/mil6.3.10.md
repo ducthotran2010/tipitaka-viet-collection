@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM VESSANTARA:
 
-# 10\. CÂU HỎI VỀ HÌNH THỂ VÀ VỊ TRÍ NIẾT BÀN
+# 10. CÂU HỎI VỀ HÌNH THỂ VÀ VỊ TRÍ NIẾT BÀN
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Niết Bàn, Niết Bàn,’ vậy thì có thể bằng ví dụ, hoặc bằng lý lẽ, hoặc bằng nguyên nhân, hoặc bằng suy luận để chỉ ra hình thể, hay vị trí, hay tuổi thọ, hay kích thước của Niết Bàn ấy không?”**
 
@@ -131,9 +129,3 @@ Tâu đại vương, còn có điều khác nữa, đỉnh núi được thoát 
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về hình thể và vị trí của Niết Bàn là thứ mười.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

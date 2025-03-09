@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM THÂN THIẾT:
 
-# 6\. CÂU HỎI VỀ CHADDANTA VÀ JOTIPĀLA
+# 6. CÂU HỎI VỀ CHADDANTA VÀ JOTIPĀLA
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến khi là voi chúa Chaddanta:‘**Trong khi siết chặt (nghĩ rằng): Ta có thể hủy diệt gã này,’ con voi đã nhìn thấy tấm y ca-sa, biểu tượng của các vị ẩn sĩ. Con thú bị hành hạ đau khổ đã có ý tưởng sanh khởi rằng: Biểu tượng của các vị A-la-hán là cao quý, là hình bóng không thể bị hủy diệt.**’
 
@@ -23,9 +21,3 @@ Tâu đại vương, giống như khối lửa lớn đã được đốt lên p
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về Chaddanta và Jotipāla là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

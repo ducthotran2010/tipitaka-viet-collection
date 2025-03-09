@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐẤT:
 
-# 1\. CÂU HỎI VỀ TÍNH CHẤT CỦA ĐẤT
+# 1. CÂU HỎI VỀ TÍNH CHẤT CỦA ĐẤT
 
 ## TÓM LƯỢC PHẨM NÀY
 
@@ -27,9 +25,3 @@ Tâu đại vương, còn có điều khác nữa, đất được thoát ra kh�
 _Không có sự ghét bỏ ở người ấy, thì sự luyến ái ở người này không được biết đến, những tâm ấy tương tợ như đất, các pháp Sa-môn của tôi là tương tợ như thế_.’”
 
 Câu hỏi về tính chất của đất là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

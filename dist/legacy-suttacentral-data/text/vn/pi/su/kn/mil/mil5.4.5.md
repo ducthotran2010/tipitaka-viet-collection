@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM VỀ TRÍ TOÀN TRI:
 
-# 5\. CÂU HỎI VỀ VIỆC TỰ KẾT LIỄU BẢN THÂN
+# 5. CÂU HỎI VỀ VIỆC TỰ KẾT LIỄU BẢN THÂN
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Này các tỳ khưu, không nên tự kết liễu bản thân; vị nào tự kết liễu thì nên được hành xử theo pháp.**’ Và thêm nữa, ngài nói rằng: ‘**Ở bất cứ nơi nào, trong khi thuyết giảng Giáo Pháp cho các đệ tử, đức Thế Tôn thuyết giảng Giáo Pháp bằng nhiều phương tiện nhằm cắt đứt hoàn toàn đối với sanh, đối với già, đối với bệnh, đối với chết. Bởi vì bất cứ vị nào vượt qua sanh-già-bệnh-chết, Ngài ca ngợi vị ấy với lời ca ngợi cao cả nhất.**’ Thưa ngài Nāgasena, nếu điều đã được nói bởi đức Thế Tôn là: ‘Này các tỳ khưu, không nên tự kết liễu bản thân; vị nào tự kết liễu thì nên được hành xử theo pháp,’ như thế thì lời nói rằng: ‘Ngài thuyết giảng Giáo Pháp nhằm cắt đứt hoàn toàn đối với sanh, đối với già, đối với bệnh, đối với chết’ là sai trái. Nếu Ngài thuyết giảng Giáo Pháp nhằm cắt đứt hoàn toàn đối với sanh, đối với già, đối với bệnh, đối với chết, như thế thì lời nói rằng: ‘Này các tỳ khưu, không nên tự kết liễu bản thân; vị nào tự kết liễu thì nên được hành xử theo pháp’ cũng là sai trái. Câu hỏi này cũng có cả hai khía cạnh, được dành cho ngài. Nó nên được giải quyết bởi ngài.”
 
@@ -25,9 +23,3 @@ Tâu đại vương, khổ đau thì bị xoay chuyển, an lạc (Niết Bàn) 
 “Thưa ngài Nāgasena, tốt lắm! Câu hỏi đã khéo được tháo gỡ. Lý do đã được giảng giải rõ ràng. Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về việc tự kết liễu bản thân là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

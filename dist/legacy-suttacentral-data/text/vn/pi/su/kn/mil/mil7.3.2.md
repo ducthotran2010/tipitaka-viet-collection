@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM BIỂN CẢ:
 
-# 2\. CÂU HỎI VỀ TÍNH CHẤT CỦA CÂY SEN
+# 2. CÂU HỎI VỀ TÍNH CHẤT CỦA CÂY SEN
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Ba tính chất của cây sen nên được hành trì,’ ba tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -17,9 +15,3 @@ Tâu đại vương, còn có điều khác nữa, cây sen bị run rẩy, lay 
 ‘_Người có sự nhìn thấy nỗi sợ hãi ở các tội lỗi nhỏ nhoi thọ trì và học tập ở các điều học_.’”
 
 Câu hỏi về tính chất của cây sen là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

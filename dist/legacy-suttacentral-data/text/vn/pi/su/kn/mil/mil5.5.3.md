@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM THÂN THIẾT:
 
-# 3\. CÂU HỎI VỀ SỰ ÍT BỆNH CỦA ĐỨC THẾ TÔN
+# 3. CÂU HỎI VỀ SỰ ÍT BỆNH CỦA ĐỨC THẾ TÔN
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: ‘**Này các tỳ khưu, Ta là vị Bà-la-môn sẵn sàng đáp ứng sự cầu xin, luôn có bàn tay đưa ra (bố thí), mang thân mạng cuối cùng, là vị y sĩ, vị phẫu thuật vô thượng.**’ Và thêm nữa, đức Thế Tôn đã nói rằng: ‘**Này các tỳ khưu, vị đứng đầu trong số các tỳ khưu đệ tử ít có bệnh tật của Ta, tức là Bakkula**.’ Và bệnh tật được nhìn thấy đã nhiều lần sanh khởi ở cơ thể của đức Thế Tôn.
 
@@ -25,9 +23,3 @@ Tâu đại vương, trong khi căn bệnh của đức Thế Tôn đang sanh l�
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về sự ít bệnh của đức Thế Tôn là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

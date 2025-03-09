@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VII. PHẨM CHUM NƯỚC:
 
-# 4\. CÂU HỎI VỀ TÍNH CHẤT CỦA THỬA RUỘNG
+# 4. CÂU HỎI VỀ TÍNH CHẤT CỦA THỬA RUỘNG
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Ba tính chất của thửa ruộng nên được hành trì,’ ba tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -17,9 +15,3 @@ Tâu đại vương, còn có điều khác nữa, thửa ruộng có đầy đ�
 ‘_Nên giống như thửa ruộng có sự ban cho lớn lao về khả năng sản xuất, vị nào ban cho quả báu lớn lao, vị ấy gọi là thửa ruộng cao quý_.’”
 
 Câu hỏi về tính chất của thửa ruộng là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

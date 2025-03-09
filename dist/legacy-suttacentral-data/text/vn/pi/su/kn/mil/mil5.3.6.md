@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐÃ BỊ ĐUỔI ĐI:
 
-# 6\. CÂU HỎI VỀ QUẢ BÁU LỚN CỦA MÓN THÍ THỰC
+# 6. CÂU HỎI VỀ QUẢ BÁU LỚN CỦA MÓN THÍ THỰC
 
 “Thưa ngài Nāgasena, điều này cũng đã được các vị trưởng lão thực hiện cuộc trùng tụng Giáo Pháp nói đến: **‘Tôi đã được nghe rằng:—Sau khi thọ dụng bữa ăn của người thợ rèn Cunda, bậc Sáng Trí đã mắc phải cơn bệnh khốc liệt, kề cận cái chết.**’
 
@@ -37,9 +35,3 @@ Tâu đại vương, hoặc là giống như bao tử đang no đầy một các
 “Thưa ngài Nāgasena, thật là kỳ diệu! Thưa ngài Nāgasena, thật là phi thường! Việc nào dầu là sự bố thí tột đỉnh không thể sánh bằng ở ruộng phước đức Phật cũng không sánh được với hai phần thí thực này. Thưa ngài Nāgasena, thật là kỳ diệu! Thưa ngài Nāgasena, thật là phi thường! Chín sự chứng đạt và an trú theo tuần tự vĩ đại đến chừng nào, thì do năng lực của sự chứng đạt và an trú theo tuần tự mà sự bố thí ở chính nơi ấy là có được quả báu lớn hơn và phước báu lớn hơn. Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về quả báu lớn của món thí thực là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

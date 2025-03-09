@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VI. PHẨM NHỆN:
 
-# 10\. CÂU HỎI VỀ TÍNH CHẤT CỦA NGƯỜI THỢ MỘC
+# 10. CÂU HỎI VỀ TÍNH CHẤT CỦA NGƯỜI THỢ MỘC
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Hai tính chất của người thợ mộc nên được hành trì,’ hai tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -19,9 +17,3 @@ _Sau khi tống đi các ước muốn ác xấu, các thói quen và hành xứ
 Câu hỏi về tính chất của người thợ mộc là thứ mười.
 
 Phẩm nhện là phẩm thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

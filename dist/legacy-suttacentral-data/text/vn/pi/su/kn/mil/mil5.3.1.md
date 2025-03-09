@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐÃ BỊ ĐUỔI ĐI:
 
-# 1\. CÂU HỎI VỀ GIÁO PHÁP TỐI THƯỢNG
+# 1. CÂU HỎI VỀ GIÁO PHÁP TỐI THƯỢNG
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Này Vāseṭṭha, chính Giáo Pháp là tối thượng ở đời này ngay trong thời hiện tại và thời vị lai**.’ Và thêm nữa, ‘**người cư sĩ tại gia là bậc Nhập Lưu, có các đọa xứ đã được đóng lại, đã đạt chánh kiến, đã hiểu Giáo Pháp, vẫn đảnh lễ, vẫn đứng dậy đối với vị tỳ khưu hoặc sa-di phàm nhân**.’ Thưa ngài Nāgasena, nếu điều đã được nói bởi đức Như Lai là: ‘**Này Vāseṭṭha, chính Giáo Pháp là tối thượng ở đời này ngay trong thời hiện tại và thời vị lai,**’ như thế thì lời nói rằng: ‘Người cư sĩ tại gia là bậc Nhập Lưu, có các đọa xứ đã được đóng lại, đã đạt chánh kiến, đã hiểu Giáo Pháp, vẫn đảnh lễ, vẫn đứng dậy đối với vị tỳ khưu hoặc sa-di phàm nhân’ là sai trái. Nếu người cư sĩ tại gia là bậc Nhập Lưu, có các đọa xứ đã được đóng lại, đã đạt chánh kiến, đã hiểu Giáo Pháp, vẫn đảnh lễ, vẫn đứng dậy đối với vị tỳ khưu hoặc sa-di phàm nhân, như thế thì lời nói rằng: ‘**Này Vāseṭṭha, chính Giáo Pháp là tối thượng ở đời này ngay trong thời hiện tại và thời vị lai**’ cũng là sai trái. Câu hỏi này cũng có cả hai khía cạnh, được dành cho ngài. Nó nên được giải quyết bởi ngài.”
 
@@ -37,9 +35,3 @@ Tâu đại vương, giống như vị hoàng tử thu thập kiến thức và 
 “Thưa ngài Nāgasena, câu hỏi liên quan đến trí tuệ đã khéo được tháo gỡ bởi ngài là người có năng lực và vô cùng sáng suốt. Không có người nào khác có khả năng để tháo gỡ câu hỏi này như vậy, ngoại trừ bậc có sự giác ngộ như là ngài.”
 
 Câu hỏi về Giáo Pháp tối thượng là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VII. PHẨM CHUM NƯỚC:
 
-# 7\. CÂU HỎI VỀ TÍNH CHẤT CỦA NGƯỜI CUNG THỦ
+# 7. CÂU HỎI VỀ TÍNH CHẤT CỦA NGƯỜI CUNG THỦ
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Bốn tính chất của người cung thủ nên được hành trì,’ bốn tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -29,9 +27,3 @@ Phẩm chum nước là phẩm thứ bảy.
 “Chum nước, và sắt đen, cái lọng che, thửa ruộng, và thuốc giải độc, với vật thực, và người cung thủ, đã được các bậc hiểu biết nói đến.”
 
 CÂU HỎI GIẢNG VỀ CÁC VÍ DỤ ĐƯỢC CHẤM DỨT.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

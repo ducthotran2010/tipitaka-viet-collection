@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐẤT:
 
-# 3\. CÂU HỎI VỀ TÍNH CHẤT CỦA LỬA
+# 3. CÂU HỎI VỀ TÍNH CHẤT CỦA LỬA
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của lửa nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -21,9 +19,3 @@ Tâu đại vương, còn có điều khác nữa, lửa tiêu diệt bóng tố
 ‘_Này Rāhula, con hãy phát triển sự tu tập tương tợ lửa. Này Rāhula, bởi vì đối với người đang phát triển sự tu tập tương tợ lửa thì các pháp bất thiện chưa sanh khởi (sẽ) không sanh khởi, và các bất thiện pháp đã sanh khởi sẽ không chiếm cứ tâm và tồn tại_.’”
 
 Câu hỏi về tính chất của lửa là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

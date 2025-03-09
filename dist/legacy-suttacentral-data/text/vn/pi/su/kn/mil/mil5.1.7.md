@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM NĂNG LỰC CỦA THẦN THÔNG:
 
-# 7\. CÂU HỎI VỀ SỰ BIẾN MẤT CỦA CHÁNH PHÁP
+# 7. CÂU HỎI VỀ SỰ BIẾN MẤT CỦA CHÁNH PHÁP
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Này Ānanda, giờ đây Chánh Pháp sẽ tồn tại chỉ còn năm trăm năm.’** Và thêm nữa, vào thời điểm viên tịch Niết Bàn, được hỏi bởi du sĩ ngoại đạo Subhadda, đức Thế Tôn đã nói rằng: **‘Này Subhadda, nếu các tỳ khưu này sống chân chánh, thế gian sẽ không thiếu vắng các vị A-la-hán.’ Đây là lời nói không thiếu sót, đây là lời nói đầy đủ, đây là lời nói không thay đổi. Thưa ngài Nāgasena, nếu đức Thế Tôn đã nói rằng: ‘Này Ānanda, giờ đây Chánh Pháp sẽ tồn tại chỉ còn năm trăm năm,’ như thế thì lời nói rằng: ‘Thế gian sẽ không thiếu vắng các vị A-la-hán’ là sai trái. Nếu đức Thế Tôn đã nói rằng: ‘Thế gian sẽ không thiếu vắng các vị A-la-hán,’ như thế thì lời nói rằng: ‘Này Ānanda, giờ đây Chánh Pháp sẽ tồn tại chỉ còn năm trăm năm’ cũng là sai trái**. Câu hỏi này cũng có cả hai khía cạnh, bị rối rắm còn hơn bụi rậm, mạnh mẽ hơn người lực sĩ, bị thắt lại còn hơn nút thắt, nó được dành cho ngài. Ở đây, xin ngài hãy phô bày sự triển khai về năng lực trí tuệ của ngài như là con kình ngư di chuyển ở giữa biển khơi.”
 
@@ -45,9 +43,3 @@ Tâu đại vương, hơn nữa ở đây họ có thể đánh bóng tuần t�
 “Thưa ngài Nāgasena, câu hỏi thâm sâu đã khéo được giảng giải, đã được làm rõ, nút thắt đã được mở ra, lời tuyên thuyết của ngoại đạo đã bị hư hoại, đã bị đổ vỡ, đã được làm cho không còn hào quang, ngài đã tiến đến vị thế cao quý nhất trong số các vị có đồ chúng.”
 
 Câu hỏi về sự biến mất của Chánh Pháp là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

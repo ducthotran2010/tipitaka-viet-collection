@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐẤT:
 
-# 7\. CÂU HỎI VỀ TÍNH CHẤT CỦA MẶT TRĂNG
+# 7. CÂU HỎI VỀ TÍNH CHẤT CỦA MẶT TRĂNG
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của mặt trăng nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -21,9 +19,3 @@ Tâu đại vương, còn có điều khác nữa, mặt trăng mọc lên, (là
 ‘_Này các tỳ khưu, giống như mặt trăng các người hãy đi đến các gia đình, hãy vô cùng dè dặt về thân, hãy dè dặt về tâm, luôn luôn là người mới ở các gia đình, không được thô tháo_.’”
 
 Câu hỏi về tính chất của mặt trăng là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

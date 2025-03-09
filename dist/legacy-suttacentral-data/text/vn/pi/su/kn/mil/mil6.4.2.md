@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM SUY LUẬN:
 
-# 2\. CÂU HỎI VỀ PHÁP TỪ KHƯỚC
+# 2. CÂU HỎI VỀ PHÁP TỪ KHƯỚC
 
 “_Đức vua nhìn các vị tỳ khưu sống ở rừng đã được gắn bó với các hạnh từ khước, rồi nhìn lại những người tại gia đã trú ở quả vị Bất Lai._
 
@@ -151,9 +149,3 @@ Tâu đại vương, chẳng phải vị trưởng lão Sāriputta là con ngư�
 Câu hỏi về pháp từ khước là thứ nhì.
 
 Phẩm Suy Luận được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VII. PHẨM CHUM NƯỚC:
 
-# 6\. CÂU HỎI VỀ TÍNH CHẤT CỦA VẬT THỰC
+# 6. CÂU HỎI VỀ TÍNH CHẤT CỦA VẬT THỰC
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Ba tính chất của vật thực nên được hành trì,’ ba tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -17,9 +15,3 @@ Tâu đại vương, còn có điều khác nữa, vật thực là được mon
 ‘_Nhờ vào sự thu thúc, nhờ vào sự kềm chế, nhờ vào giới, nhờ vào sự thực hành, vị hành giả sẽ là được mong mỏi đối với tất cả thế gian_.’”
 
 Câu hỏi về tính chất của vật thực là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

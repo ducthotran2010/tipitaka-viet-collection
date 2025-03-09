@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐẤT:
 
-# 6\. CÂU HỎI VỀ TÍNH CHẤT CỦA HƯ KHÔNG
+# 6. CÂU HỎI VỀ TÍNH CHẤT CỦA HƯ KHÔNG
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của hư không nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -21,9 +19,3 @@ Tâu đại vương, còn có điều khác nữa, hư không là không dính m
 ‘_Này Rāhula, cũng giống như hư không không trụ lại ở bất cứ chỗ nào. Này Rahula, tương tợ y như thế con hãy phát triển sự tu tập tương tợ hư không. Này Rahula, bởi vì đối với người đang phát triển sự tu tập tương tợ hư không, các xúc làm hài lòng, làm thích ý đã được sanh đi sanh lại sẽ không chiếm cứ tâm và tồn tại_.’”
 
 Câu hỏi về tính chất của hư không là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

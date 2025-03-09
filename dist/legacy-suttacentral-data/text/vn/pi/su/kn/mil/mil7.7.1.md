@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VI. PHẨM NHỆN:
 
-# 1\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI NHỆN
+# 1. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI NHỆN
 
 ## TÓM LƯỢC PHẨM NÀY
 
@@ -19,9 +17,3 @@ VI. PHẨM NHỆN:
 ‘_Nên kiểm soát tâm ở tại sáu cánh cửa có sự thiết lập niệm cao quý tối thượng, nếu các phiền não bị vướng vào ở nơi ấy, chúng nên bị tiêu diệt bởi vị hành minh sát_.’”
 
 Câu hỏi về tính chất của loài nhện là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

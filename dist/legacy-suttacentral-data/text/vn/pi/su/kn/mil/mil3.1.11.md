@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -19,9 +17,3 @@ Tâu đại vương, giống như sau khi nhìn thấy tâm của những ngư�
 _Vượt qua cơn lũ nhờ vào tín, vượt qua biển cả nhờ vào sự không xao lãng, vượt lên khổ đau nhờ vào sự tinh tấn, được hoàn toàn trong sạch nhờ vào tuệ_.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

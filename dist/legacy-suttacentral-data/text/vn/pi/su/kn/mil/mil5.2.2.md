@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG BỊ CHIA RẼ:
 
-# 2\. CÂU HỎI VỀ CÂU TRẢ LỜI NÊN ĐƯỢC ĐÌNH CHỈ
+# 2. CÂU HỎI VỀ CÂU TRẢ LỜI NÊN ĐƯỢC ĐÌNH CHỈ
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Này Ānanda, không có bàn tay nắm lại của vị thầy ở các giáo lý của đức Như Lai.’ Và thêm nữa khi được trưởng lão Māluṅkyaputta hỏi câu hỏi, Ngài đã không trả lời. Thưa ngài Nāgasena, câu hỏi này có hai đầu mối và sẽ được nương vào một đầu mối: hoặc là do sự không biết hoặc là do việc che giấu.** Thưa ngài Nāgasena, nếu điều đã được nói bởi đức Thế Tôn là: ‘**Này Ānanda, không có bàn tay nắm lại của vị thầy ở các giáo lý của đức Như Lai**,’ như thế thì do không biết mà đã không trả lời cho trưởng lão Māluṅkyaputta. Nếu trong khi biết mà đã không trả lời, như thế thì có bàn tay nắm lại của vị thầy ở các giáo lý của đức Như Lai. Câu hỏi này cũng có cả hai khía cạnh, được dành cho ngài. Nó nên được giải quyết bởi ngài.”
 
@@ -23,9 +21,3 @@ Tâu đại vương, đức Thế Tôn đã không trả lời câu hỏi nên �
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về việc trả lời nên được đình chỉ là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

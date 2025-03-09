@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM THÂN THIẾT:
 
-# 1\. CÂU HỎI VỀ SỰ THÂN THIẾT
+# 1. CÂU HỎI VỀ SỰ THÂN THIẾT
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến:
 
@@ -31,9 +29,3 @@ Còn có điều khác nữa, trong khi trú xá được hiện hữu thì các
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về sự thân thiết là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG CHƯỚNG NGẠI:
 
-# 3\. CÂU HỎI VỀ SỰ THẤT NIỆM CỦA VỊ A-LA-HÁN
+# 3. CÂU HỎI VỀ SỰ THẤT NIỆM CỦA VỊ A-LA-HÁN
 
 “**Thưa ngài Nāgasena, có sự thất niệm đối với vị A-la-hán?**”
 
@@ -37,9 +35,3 @@ Tâu đại vương, đối với vị A-la-hán tên họ của những ngườ
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về sự thất niệm của vị A-la-hán là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

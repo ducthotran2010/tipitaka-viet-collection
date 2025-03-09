@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG CHƯỚNG NGẠI:
 
-# 1\. CÂU HỎI VỀ PHÁP KHÔNG CHƯỚNG NGẠI
+# 1. CÂU HỎI VỀ PHÁP KHÔNG CHƯỚNG NGẠI
 
 “**Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: ‘Này các tỳ khưu, các ngươi hãy sống có sự vui thích ở pháp không chướng ngại, có sự thích thú ở pháp không chướng ngại.’ Pháp không chướng ngại ấy là pháp nào?”**
 
@@ -35,9 +33,3 @@ Tâu đại vương, nếu tất cả đều được thanh tịnh ở dòng dõ
 “Thưa ngài Nāgasena, câu hỏi đã được giải quyết khéo léo. Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về pháp không chướng ngại là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

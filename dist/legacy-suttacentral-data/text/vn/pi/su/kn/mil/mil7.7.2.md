@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VI. PHẨM NHỆN:
 
-# 2\. CÂU HỎI VỀ TÍNH CHẤT CỦA ĐỨA BÉ ĐEO BẦU VÚ
+# 2. CÂU HỎI VỀ TÍNH CHẤT CỦA ĐỨA BÉ ĐEO BẦU VÚ
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của đứa bé đeo bầu vú nên được hành trì,’ một tính chất nên được hành trì ấy là điều nào?**”
 
@@ -13,9 +11,3 @@ VI. PHẨM NHỆN:
 ‘_Này Ānanda, các ngươi hãy nỗ lực cho mục đích của mình, hãy gắn bó vào mục đích của mình, hãy sống không xao lãng, có nhiệt tâm, có bản tánh cương quyết về mục đích của mình_.’”
 
 Câu hỏi về tính chất của đứa bé đeo bầu vú là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM MỐI:
 
-# 9\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI HEO
+# 9. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI HEO
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Hai tính chất của loài heo nên được hành trì,’ hai tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -15,9 +13,3 @@ Tâu đại vương, còn có điều khác nữa, loài heo sau khi đi đến 
 ‘_Sau khi nhìn và xem xét bản thể ở thân, vị hành minh sát, (có tâm) ở bên trong đối tượng, nằm xuống mỗi một mình, không người thứ hai_.’”
 
 Câu hỏi về tính chất của loài heo là thứ chín.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM VESSANTARA:
 
-# 8\. CÂU HỎI VỀ SỰ LÃNH HỘI GIÁO PHÁP
+# 8. CÂU HỎI VỀ SỰ LÃNH HỘI GIÁO PHÁP
 
 “**Thưa ngài Nāgasena, đối với những vị thực hành đúng đắn, thì có sự lãnh hội Giáo Pháp cho toàn bộ tất cả, hay là chỉ có đối với vị nào đó?”**
 
@@ -63,9 +61,3 @@ Tâu đại vương, hoặc là giống như con sâu gạo bệnh hoạn, ốm 
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về sự lãnh hội Giáo Pháp là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

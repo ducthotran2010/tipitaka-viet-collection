@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -25,9 +23,3 @@ Vị trưởng lão đã nói rằng: “Tâu đại vương, làm cách nào đ
 “Tâu đại vương, tôi đã xuất gia khi còn là đứa bé trai. Tôi không biết là ‘tôi xuất gia với mục đích này.’ Tuy nhiên, tôi đã khởi ý như vầy: ‘Các vị Sa-môn Thích tử này là các bậc trí. Các vị sẽ cho ta học tập.’ Tôi đây đã được học tập với họ, tôi biết và nhận thức rằng: ‘Sự xuất gia là với mục đích này.’”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

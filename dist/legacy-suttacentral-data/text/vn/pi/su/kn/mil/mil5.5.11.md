@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM THÂN THIẾT:
 
-# 11\. CÂU HỎI VỀ TRẠNG THÁI KHÔNG CÓ THẦY CỦA VỊ THẦY
+# 11. CÂU HỎI VỀ TRẠNG THÁI KHÔNG CÓ THẦY CỦA VỊ THẦY
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến:
 
@@ -45,9 +43,3 @@ Câu hỏi về trạng thái không có thầy của vị thầy là thứ mư�
 Phẩm Thân Thiết là thứ năm.
 
 (Trong phẩm này có mười một câu hỏi)
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

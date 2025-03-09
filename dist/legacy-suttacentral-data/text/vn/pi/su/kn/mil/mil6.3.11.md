@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM VESSANTARA:
 
-# 11\. CÂU HỎI VỀ SỰ CHỨNG NGỘ NIẾT BÀN
+# 11. CÂU HỎI VỀ SỰ CHỨNG NGỘ NIẾT BÀN
 
 “**Thưa ngài Nāgasena, ngài nói rằng: ‘Niết Bàn không là quá khứ, không là hiện tại, không là vị lai, không phải là được sanh lên, không phải là không được sanh lên, không phải là sẽ được làm cho sanh lên.’ Thưa ngài Nāgasena, ở đây người nào đó thực hành đúng đắn và chứng ngộ Niết Bàn, thì người ấy chứng ngộ cái (Niết Bàn) đã được sanh lên, hay là làm cho (Niết Bàn) sanh lên rồi chứng ngộ?**”
 
@@ -37,9 +35,3 @@ Tâu đại vương, giống như người đàn ông bị lạc lối, bị rơ
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về sự chứng ngộ Niết Bàn là thứ mười một.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

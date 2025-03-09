@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM VESSANTARA:
 
-# 12\. CÂU HỎI VỀ NƠI CHỨA ĐỰNG NIẾT BÀN
+# 12. CÂU HỎI VỀ NƠI CHỨA ĐỰNG NIẾT BÀN
 
 “**Thưa ngài Nāgasena, có phải có vị trí ấy ở hướng đông, hay ở hướng nam, hay ở hướng tây, hay ở hướng bắc, hay ở hướng trên, hay ở hướng dưới, hay ở hướng ngang, là nơi Niết Bàn được chứa đựng?**”
 
@@ -35,9 +33,3 @@ Câu hỏi về nơi chứa đựng Niết Bàn là thứ mười hai.
 Phẩm Vessantara là phẩm thứ ba.
 
 (Ở phẩm này có mười hai câu hỏi)
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

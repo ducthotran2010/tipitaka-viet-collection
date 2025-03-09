@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VII. PHẨM CHUM NƯỚC:
 
-# 1\. CÂU HỎI VỀ TÍNH CHẤT CỦA CHUM NƯỚC
+# 1. CÂU HỎI VỀ TÍNH CHẤT CỦA CHUM NƯỚC
 
 ## TÓM LƯỢC PHẨM NÀY
 
@@ -17,9 +15,3 @@ VII. PHẨM CHUM NƯỚC:
 ‘_Cái gì thiếu kém cái ấy làm thành tiếng vang, cái gì được đầy cái ấy thật yên tịnh. Kẻ ngu tương tợ cái chum rỗng, bậc sáng trí tợ như hồ nước đầy tràn_.’”
 
 Câu hỏi về tính chất của chum nước là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -67,9 +65,3 @@ CÁC CÂU HỎI CỦA MILINDA:
 “Tâu đại vương, năm mũi tên là như thế nào thì ngũ quyền gồm có tín quyền, tấn quyền, niệm quyền, định quyền, tuệ quyền nên được xem xét như vậy. Người chiến sĩ tham gia chiến trận là như thế nào thì hành giả nên được xem xét như vậy. Đội quân địch là như thế nào thì các phiền não nên được xem xét như vậy. Đội quân địch bị phá tan bởi năm mũi tên như thế nào thì các phiền não bị phá tan bởi năm quyền là như vậy, và các phiền não đã bị phá tan thì không xuất hiện lại nữa. Tâu đại vương, tương tợ y như thế tuệ sau khi làm xong phận sự của nó thì diệt mất ngay tại chỗ ấy, và điều đã được xử lý bởi tuệ ấy tức là ‘vô thường’ hoặc là ‘khổ não’ hoặc là ‘vô ngã’ thì không diệt mất.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

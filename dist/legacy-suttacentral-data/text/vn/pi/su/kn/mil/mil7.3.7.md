@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM BIỂN CẢ:
 
-# 7\. CÂU HỎI VỀ TÍNH CHẤT CỦA CỘT BUỒM
+# 7. CÂU HỎI VỀ TÍNH CHẤT CỦA CỘT BUỒM
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của cột buồm nên được hành trì,’ một tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -13,9 +11,3 @@ II. PHẨM BIỂN CẢ:
 ‘_Này các tỳ khưu, vị tỳ khưu nên sống, có niệm, có sự nhận biết rõ; đây là lời dạy của chúng ta cho các ngươi_.’”
 
 Câu hỏi về tính chất của cột buồm là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

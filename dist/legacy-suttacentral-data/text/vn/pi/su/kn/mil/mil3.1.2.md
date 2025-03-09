@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -21,9 +19,3 @@ Vào lúc bấy giờ, đức vua Milinda đã được chưng diện với mọ
 “Tâu đại vương, tương tợ y như thế, việc tính đếm các năm tu là bảy, tôi (đây) không phải là bảy. Tuy nhiên, nương vào tôi (đây) mà có được con số bảy. Tâu đại vương, đại vương hãy hiểu như ví dụ về cái bóng.”
 
 “Thưa ngài Nāgasena, thật là kỳ diệu! Thưa ngài Nāgasena, thật là phi thường! Các sự ứng đối câu hỏi rất tuyệt vời đã được trình bày.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

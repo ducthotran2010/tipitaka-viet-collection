@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -27,9 +25,3 @@ CÁC CÂU HỎI CỦA MILINDA:
 “Tâu đại vương, giống như vị tướng quân báu của đức chuyển luân vương biết được điều lợi ích và không lợi ích cho đức vua rằng: ‘Đối với đức vua, các điều này có lợi ích, các điều này không có lợi ích, các điều này hữu dụng, các điều này không hữu dụng,’ nhờ đó bỏ đi các điều không có lợi ích, nắm lấy các điều có lợi ích, bỏ đi các điều không hữu dụng, nắm lấy các điều hữu dụng. Tâu đại vương, tương tợ y như thế, niệm trong khi được sanh lên thì xem xét các hành vi của các pháp có lợi ích và không có lợi ích rằng: ‘Các pháp này có lợi ích, các pháp này không có lợi ích. Các pháp này hữu dụng, các pháp này không hữu dụng. Nhờ đó, hành giả bỏ đi các pháp không có lợi ích, nắm lấy các pháp có lợi ích, bỏ đi các pháp không hữu dụng, nắm lấy các pháp hữu dụng. Tâu đại vương, niệm có sự nắm lấy là tướng trạng nghĩa là như vậy. Tâu đại vương, điều này cũng đã được đức Thế Tôn nói đến: ‘_Này các tỳ khưu, ta nói rằng niệm quả là có lợi ích về mọi mặt_.’”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

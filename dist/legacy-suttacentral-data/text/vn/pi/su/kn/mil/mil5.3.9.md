@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐÃ BỊ ĐUỔI ĐI:
 
-# 9\. CÂU HỎI VỀ VỊ SA-MÔN CAO QUÝ HẠNG NHẤT
+# 9. CÂU HỎI VỀ VỊ SA-MÔN CAO QUÝ HẠNG NHẤT
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Do sự cạn kiệt của các lậu hoặc mà trở thành vị Sa-môn.**’ Và thêm nữa, Ngài đã nói rằng:
 
@@ -21,9 +19,3 @@ Tâu đại vương, hoặc là giống như trong số tất cả các loại h
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về vị Sa-môn cao quý hạng nhất là thứ chín.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

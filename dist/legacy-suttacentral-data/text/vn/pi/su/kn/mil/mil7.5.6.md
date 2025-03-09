@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM MỐI:
 
-# 6\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI CHÓ RỪNG GIÀ
+# 6. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI CHÓ RỪNG GIÀ
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Hai tính chất của loài chó rừng già nên được hành trì,’ hai tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -21,9 +19,3 @@ Tâu đại vương, còn có điều khác nữa, loài chó rừng già sau kh
 ‘_Nên hoan hỷ với vật dầu tồi tàn, không nên mong mỏi nhiều vị nếm khác. Đối với vị bị thèm khát ở các vị nếm, thì tâm không thích thú trong việc tham thiền. Vị tự biết đủ với bất cứ vật này hay vật khác làm đầy đủ đời sống Sa-môn_.’”
 
 Câu hỏi về tính chất của loài chó rừng già là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

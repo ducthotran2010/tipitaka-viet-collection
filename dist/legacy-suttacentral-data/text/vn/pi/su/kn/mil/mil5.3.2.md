@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐÃ BỊ ĐUỔI ĐI:
 
-# 2\. CÂU HỎI VỀ SỰ BAN PHÁT ĐIỀU LỢI ÍCH-
+# 2. CÂU HỎI VỀ SỰ BAN PHÁT ĐIỀU LỢI ÍCH-
 
 ## ĐẾN TẤT CẢ CHÚNG SANH
 
@@ -47,9 +45,3 @@ Tâu đại vương, đối với các tỳ khưu số lượng sáu mươi vị
 Câu hỏi về sự ban phát điều lợi ích
 
 đến tất cả chúng sanh là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

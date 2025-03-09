@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM NĂNG LỰC CỦA THẦN THÔNG:
 
-# 1\. CÂU HỎI VỀ VIỆC KHÔNG THỌ NHẬN CÚNG DƯỜNG
+# 1. CÂU HỎI VỀ VIỆC KHÔNG THỌ NHẬN CÚNG DƯỜNG
 
 Khi ấy, đức vua Milinda, với sự đã được cho phép, đã cúi xuống ở hai bàn chân của vị thầy, rồi đã chắp tay lên ở đầu, và nói điều này: “**Thưa ngài Nāgasena, các giáo chủ tà giáo này nói như vầy: ‘Nếu đức Phật ưng thuận sự cúng dường thì đức Phật chưa đạt Niết Bàn, còn bị gắn bó với đời, còn ở trong đời, còn chung chạ với đời. Vì thế hành động hướng thượng được làm đến Ngài là vô ích, không có quả báu. Nếu đã đạt Niết Bàn thì Ngài không còn gắn bó với đời, đã tách rời khỏi tất cả các hữu, sự cúng dường đến Ngài không phát sanh nữa. Người đã đạt Niết Bàn không ưng thuận điều gì. Hành động hướng thượng được làm đến người không ưng thuận là vô ích, không có quả báu.’** Câu hỏi này có cả hai khía cạnh. Lãnh vực này không dành cho những kẻ có tâm trí chưa đạt, lãnh vực này chỉ dành cho những bậc vĩ đại. Xin ngài hãy phá vỡ mạng lưới tà kiến này. Xin ngài hãy xác định về điều chắc thật. Câu hỏi này được dành cho ngài. Xin ngài hãy ban cho sự nhận thức đến những người con của đấng Chiến Thắng trong ngày vị lai để phản bác lại các học thuyết khác.”
 
@@ -109,9 +107,3 @@ Tâu đại vương, vào thời bấy giờ những người đã rơi vào tro
 “Thưa ngài Nāgasena, câu hỏi thâm sâu đã khéo được giảng giải, đã được làm rõ, điều bí mật đã được phơi bày, nút thắt đã được mở ra, bụi rậm đã được làm không còn bụi rậm, lời tuyên thuyết của ngoại đạo đã bị hư hoại, quan điểm xấu đã bị đổ vỡ, các giáo chủ tà giáo đã không còn hào quang phát sanh, ngài đã tiến đến vị thế cao quý và ưu tú trong số các vị có đồ chúng.”
 
 Câu hỏi về việc không thọ nhận cúng dường là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

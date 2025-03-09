@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM ĐỨC PHẬT:
 
-# 1\. CÂU HỎI VỀ VIỆC SANH LÊN CỦA HAI VỊ PHẬT
+# 1. CÂU HỎI VỀ VIỆC SANH LÊN CỦA HAI VỊ PHẬT
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: ‘**Này các tỳ khưu, điều này là không hợp lý và không có cơ sở, là việc hai bậc A-la-hán, Chánh Đẳng Giác có thể sanh lên trong một thế giới không trước không sau, sự kiện này không được biết đến!**’ Thưa ngài Nāgasena, tất cả các đức Như Lai, trong khi thuyết giảng đều thuyết giảng ba mươi bảy pháp góp phần trong việc giác ngộ, trong khi giảng giải đều giảng giải bốn Chân Lý cao thượng, trong khi huấn luyện đều huấn luyện về ba sự học tập, trong khi chỉ dạy đều chỉ dạy sự thực hành về không xao lãng. Thưa ngài Nāgasena, nếu tất cả các đức Như Lai đều có sự thuyết giảng thống nhất, sự giảng giải thống nhất, sự huấn luyện thống nhất, sự chỉ dạy thống nhất, vì lý do gì hai đức Như Lai không sanh lên trong cùng một thời điểm? Thế gian này được phát sáng với việc sanh lên của vị Phật cho dầu chỉ một vị, nếu có thêm vị Phật thứ nhì, với hai luồng ánh sáng thế gian này có thể được phát sáng nhiều hơn thế nữa. Và hai đức Như Lai, trong khi giáo giới có thể giáo giới một cách thoải mái, \[trong khi chỉ dạy, có thể chỉ dạy một cách thoải mái\]. Về việc này, xin ngài hãy nói cho trẫm lý do, theo đó trẫm có thể dứt khỏi sự nghi ngờ.”
 
@@ -45,9 +43,3 @@ Tâu đại vương, vật khác cũng là vĩ đại ở thế gian, vật ấy
 “Thưa ngài Nāgasena, câu hỏi đã khéo được giảng giải bằng các ví dụ, với các lý kẽ. Ngay cả người không khôn ngoan sau khi lắng nghe điều này cũng có thể trở nên hoan hỷ, người có đại trí tuệ như là trẫm thì đâu có điều gì. Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về việc sanh lên của hai vị Phật là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

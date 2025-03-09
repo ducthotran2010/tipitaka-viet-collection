@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM BIỂN CẢ:
 
-# 8\. CÂU HỎI VỀ TÍNH CHẤT CỦA NGƯỜI THUYỀN TRƯỞNG
+# 8. CÂU HỎI VỀ TÍNH CHẤT CỦA NGƯỜI THUYỀN TRƯỞNG
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Ba tính chất của người thuyền trưởng nên được hành trì,’ ba tính chất nên được hành trì ấy là điều nào?**”
 
@@ -19,9 +17,3 @@ Tâu đại vương, còn có điều khác nữa người thuyền trưởng đ
 ‘_Này các tỳ khưu, các ngươi chớ suy tư về các điều suy tư ác và bất thiện, như là sự suy tư về ái dục, sự suy tư về oán hận, sự suy tư về hãm hại_.’”
 
 Câu hỏi về tính chất của người thuyền trưởng là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

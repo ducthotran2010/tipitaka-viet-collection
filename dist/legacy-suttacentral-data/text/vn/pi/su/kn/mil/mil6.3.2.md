@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM VESSANTARA:
 
-# 2\. CÂU HỎI VỀ VIỆC HÀNH KHỔ HẠNH
+# 2. CÂU HỎI VỀ VIỆC HÀNH KHỔ HẠNH
 
 “**Thưa ngài Nāgasena, toàn bộ tất cả các đức Bồ Tát đều thực hiện việc hành khổ hạnh, hay là việc hành khổ hạnh đã được chỉ riêng Bồ Tát Gotama thực hiện?**”
 
@@ -103,9 +101,3 @@ Tâu đại vương, hơn nữa thân thể của đức Bồ Tát đã bị ki�
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy. Trong khi làm chín muồi trí tuệ, đức Bồ Tát đã thực hiện việc hành khổ hạnh.”
 
 Câu hỏi về việc hành khổ hạnh là thứ hai.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

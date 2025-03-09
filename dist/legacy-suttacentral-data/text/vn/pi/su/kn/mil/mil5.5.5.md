@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM THÂN THIẾT:
 
-# 5\. CÂU HỎI VỀ LOMASAKASSAPA
+# 5. CÂU HỎI VỀ LOMASAKASSAPA
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: ‘**Vào thời quá khứ, trong khi có bản thể nhân loại, Ta đã là người có bản tánh không hãm hại chúng sanh.**’ Và thêm nữa, Ngài đã nói rằng: ‘**Trong khi là vị ẩn sĩ tên Lomasakassapa đã giết chết hàng trăm mạng sống và đã hiến cúng đại lễ tế thần** _Vājapeyya_.’
 
@@ -31,9 +29,3 @@ Tâu đại vương, việc xấu xa đã được làm bởi kẻ có tâm bị
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về Lomasakassapa là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐÃ BỊ ĐUỔI ĐI:
 
-# 12\. CÂU HỎI VỀ VIỆC ĐÃ GIẢI TÁN CÁC VỊ TỲ KHƯU
+# 12. CÂU HỎI VỀ VIỆC ĐÃ GIẢI TÁN CÁC VỊ TỲ KHƯU
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Ta không có nổi giận, không có khắt khe.**’ Và thêm nữa, đức Như Lai đã giải tán hai vị trưởng lão Sāriputta và Moggallāna cùng với đồ chúng (của hai vị). Thưa ngài Nāgasena, có phải đức Như Lai đã giải tán đồ chúng khi bị nổi giận, hay là đã giải tán khi được vui vẻ? Xin ngài nhận biết cho việc ấy là thuộc về trường hợp này. Thưa ngài Nāgasena, nếu đã giải tán đồ chúng khi bị nổi giận, như thế thì đối với đức Thế Tôn sự nổi giận còn chưa được dứt trừ. Nếu đã giải tán đồ chúng khi được vui vẻ, như thế thì (đồ chúng) đã bị giải tán khi không có cớ sự, trong khi không hay biết. Câu hỏi này cũng có cả hai khía cạnh, được dành cho ngài. Nó nên được giải quyết bởi ngài.”
 
@@ -29,9 +27,3 @@ Câu hỏi về việc đã giải tán các vị tỳ khưu là thứ mười h
 Phẩm Đã Bị Giải Tán là thứ ba.
 
 (Trong phẩm này có mười hai câu hỏi)
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

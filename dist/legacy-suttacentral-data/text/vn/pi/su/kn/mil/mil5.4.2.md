@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM VỀ TRÍ TOÀN TRI:
 
-# 2\. CÂU HỎI VỀ PHÁP VÀ LUẬT ĐƯỢC CHE GIẤU
+# 2. CÂU HỎI VỀ PHÁP VÀ LUẬT ĐƯỢC CHE GIẤU
 
 ## HAY KHÔNG ĐƯỢC CHE GIẤU
 
@@ -31,9 +29,3 @@ Tâu đại vương, giống như loại hàng hóa cao quý và ưu tú ở tr�
 Câu hỏi về Pháp và Luật
 
 được che giấu hay không được che giấu là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

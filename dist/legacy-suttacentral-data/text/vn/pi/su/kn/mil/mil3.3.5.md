@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -75,9 +73,3 @@ CÁC CÂU HỎI CỦA MILINDA:
 “Tâu đại vương, tương tợ y như thế không có các pháp hữu vi nào đó chưa từng hiện hữu mà được sanh ra cả, chính các pháp hữu vi từng hiện hữu mà được sanh ra.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM SUY LUẬN:
 
-# 1\. CÂU HỎI (GIẢNG BẰNG SỰ) SUY LUẬN
+# 1. CÂU HỎI (GIẢNG BẰNG SỰ) SUY LUẬN
 
 Khi ấy, đức vua Milinda đã đi đến gặp đại đức Nāgasena, sau khi đến đã đảnh lễ đại đức Nāgasena rồi ngồi xuống một bên. Khi đã ngồi xuống một bên, đức vua Milinda có sự mong muốn được biết, mong muốn được nghe, mong muốn ghi nhớ, mong muốn nhìn thấy ánh sáng của trí tuệ, mong muốn phá vỡ sự không biết, mong muốn làm sanh khởi ánh sáng của trí tuệ, mong muốn tiêu diệt bóng tối của vô minh, sau khi thiết lập sự can đảm vượt bậc, sự cố gắng, sự ghi nhớ, và sự nhận biết rõ rệt, rồi đã nói với đại đức Nāgasena điều này:
 
@@ -252,9 +250,3 @@ Tâu đại vương, tương tợ y như thế đức Thế Tôn ấy, có đứ
 “Thưa ngài Nāgasena, thật là việc khó khăn để chỉ cho thấy năng lực của đức Phật bằng sự suy luận bằng lý lẽ có hình thức như vầy đối với những người khác. Thưa ngài Nāgasena, trẫm đã được thỏa mãn với việc giải thích câu hỏi một cách vô cùng đa dạng của ngài.”
 
 Câu hỏi (giảng bằng sự) suy luận là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM NĂNG LỰC CỦA THẦN THÔNG:
 
-# 10\. CÂU HỎI VỀ SỰ NHẬN THỨC
+# 10. CÂU HỎI VỀ SỰ NHẬN THỨC
 
 ## ĐỐI VỚI NĂNG LỰC CỦA THẦN THÔNG
 
@@ -27,9 +25,3 @@ Câu hỏi về sự nhận thức
 Phẩm Năng Lực của Thần Thông là phẩm thứ nhất.
 
 (Ở phẩm này có mười câu hỏi)
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

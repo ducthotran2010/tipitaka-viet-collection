@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM BIỂN CẢ:
 
-# 10\. CÂU HỎI VỀ TÍNH CHẤT CỦA BIỂN CẢ
+# 10. CÂU HỎI VỀ TÍNH CHẤT CỦA BIỂN CẢ
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của biển cả nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -25,9 +23,3 @@ Tâu đại vương, còn có điều khác nữa biển cả không bị tràn 
 Câu hỏi về tính chất của biển cả là thứ mười.
 
 Phẩm Biển Cả là phẩm thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

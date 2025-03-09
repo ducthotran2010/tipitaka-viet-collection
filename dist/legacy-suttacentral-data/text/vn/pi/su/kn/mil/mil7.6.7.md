@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM SƯ TỬ:
 
-# 7\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI DƠI
+# 7. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI DƠI
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Hai tính chất của loài dơi nên được hành trì,’ hai tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -22,9 +20,3 @@ Tâu đại vương, còn có điều khác nữa, loài dơi trong khi sống �
 > _và còn mong mỏi về sự thành tựu của mục đích_.”
 
 Câu hỏi về tính chất của loài dơi là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

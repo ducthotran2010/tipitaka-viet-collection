@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐÃ BỊ ĐUỔI ĐI:
 
-# 8\. CÂU HỎI VỀ VIỆC BỊ THƯƠNG BỞI MIỂNG ĐÁ
+# 8. CÂU HỎI VỀ VIỆC BỊ THƯƠNG BỞI MIỂNG ĐÁ
 
 ## Ở BÀN CHÂN
 
@@ -33,9 +31,3 @@ Tâu đại vương, hoặc là giống như chiếc lá úa bị cuốn lên b�
 Câu hỏi về việc bị thương bởi miếng đá
 
 ở bàn chân là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

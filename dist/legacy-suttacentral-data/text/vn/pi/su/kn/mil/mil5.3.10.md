@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐÃ BỊ ĐUỔI ĐI:
 
-# 10\. CÂU HỎI VỀ VIỆC NÓI LỜI CA NGỢI
+# 10. CÂU HỎI VỀ VIỆC NÓI LỜI CA NGỢI
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Này các tỳ khưu, nếu những người khác nói lời ca ngợi về Ta, nói lời ca ngợi về Giáo Pháp hoặc về Hội Chúng, trong trường hợp ấy các ngươi không nên thể hiện nỗi vui mừng, niềm hoan hỷ, hay tâm trạng phấn khởi của tâm.**’
 
@@ -27,9 +25,3 @@ Trái lại, trong khi lời ca ngợi đúng theo sự thật của Bà-la-môn
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về việc nói lời ca ngợi là thứ mười.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

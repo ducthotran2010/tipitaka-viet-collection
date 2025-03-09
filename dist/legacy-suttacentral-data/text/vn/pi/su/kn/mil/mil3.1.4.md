@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -55,9 +53,3 @@ Vị trưởng lão đã nói rằng: “Ngươi suy nghĩ xem ‘ở đây ai l
 “Cái ấy không phải là sự sống. Hơi thở vào hơi thở ra, những cái này gọi là thân hành.”
 
 Vị trưởng lão đã thuyết giảng về Vi Diệu Pháp, rồi Anantakāya đã tuyên bố mình trở thành người cận sự nam.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

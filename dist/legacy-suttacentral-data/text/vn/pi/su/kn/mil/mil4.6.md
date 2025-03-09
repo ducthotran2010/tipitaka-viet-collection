@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 # PHẦN MỞ ĐẦU CÁC CÂU HỎI ĐỐI CHỌI:
@@ -56,9 +54,3 @@ Tâu đại vương, mười đức tính cư sĩ này là dành cho người c�
 Tất cả mười đức tính ấy được tìm thấy ở đại vương. Điều ấy được gắn bó, được đạt đến, là thích đáng, là phù hợp đối với đại vương là việc sau khi nhìn thấy sự suy đồi ở Giáo Pháp của đấng Chiến Thắng thì đại vương mong muốn sự phát triển. Tôi cho phép đại vương. Đại vương hãy hỏi tôi một cách thoải mái.”
 
 Dứt Lời Giảng về Phần Mở Đầu các Câu Hỏi Đối Chọi.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐẤT:
 
-# 5\. CÂU HỎI VỀ TÍNH CHẤT CỦA NÚI
+# 5. CÂU HỎI VỀ TÍNH CHẤT CỦA NÚI
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của núi nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -33,9 +31,3 @@ Tâu đại vương, còn có điều khác nữa, núi không bị nhô lên kh
 ‘_Thế gian hứng chí vì lợi lộc, nản lòng vì không lợi lộc. Những vị đứng yên một chỗ dầu có lợi lộc hay không có lợi lộc, những vị như thế ấy là những vị Sa-môn của tôi._’”
 
 Câu hỏi về tính chất của núi là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

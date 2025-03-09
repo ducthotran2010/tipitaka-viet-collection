@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -19,9 +17,3 @@ CÁC CÂU HỎI CỦA MILINDA:
 “Tâu đại vương, tương tợ y như thế đối với các pháp được gom chung thành một bản thể này, không thể nào lần lượt tách rời và chỉ ra sự khác biệt của chúng: ‘cái này là xúc, cái này là thọ, cái này là tưởng, cái này là tư, cái này là thức, cái này là tầm, cái này là tứ,’ mặc dầu chúng hiện diện với đặc điểm riêng của từng pháp một.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VI. PHẨM NHỆN:
 
-# 7\. CÂU HỎI VỀ TÍNH CHẤT CỦA NGỌC MA-NI
+# 7. CÂU HỎI VỀ TÍNH CHẤT CỦA NGỌC MA-NI
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của ngọc ma-ni nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -17,9 +15,3 @@ Tâu đại vương, còn có điều khác nữa, ngọc ma-ni được xếp c
 ‘_Là những người trong sạch, trong khi sống chung với những người trong sạch, hãy tỏ ra có sự kính trọng lẫn nhau. Từ đó, có sự hợp nhất, chín chắn, các ngươi sẽ thực hiện việc chấm dứt khổ đau._’”
 
 Câu hỏi về tính chất của ngọc ma-ni là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

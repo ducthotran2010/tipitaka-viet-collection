@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM VỀ TRÍ TOÀN TRI:
 
-# 1\. CÂU HỎI VỀ QUẢ THÀNH TỰU CỦA NGHIỆP
+# 1. CÂU HỎI VỀ QUẢ THÀNH TỰU CỦA NGHIỆP
 
 ## CÓ NĂNG LỰC LỚN HƠN THẦN THÔNG
 
@@ -23,9 +21,3 @@ Tâu đại vương, hoặc là giống như đám lửa rừng khi đã phát k
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về thần thông và quả thành tựu của nghiệp là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

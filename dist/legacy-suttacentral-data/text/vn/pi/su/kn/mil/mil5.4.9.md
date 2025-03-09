@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM VỀ TRÍ TOÀN TRI:
 
-# 9\. CÂU HỎI VỀ SỰ KHÔNG SỢ HÃI CỦA BẬC LẬU TẬN
+# 9. CÂU HỎI VỀ SỰ KHÔNG SỢ HÃI CỦA BẬC LẬU TẬN
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Các vị A-la-hán có sự sợ hãi và run rẩy đã được xa lìa.’** Và thêm nữa ở thành Rājagaha năm trăm bậc Lậu Tận, sau khi nhìn thấy con voi Dhanapālaka đang lao đến gần đức Thế Tôn, đã rời bỏ đấng Chiến Thắng cao quý và đã tản mác khắp các phương ngoại trừ một vị là trưởng lão Ānanda. Thưa ngài Nāgasena, phải chăng các vị A-la-hán ấy đã tản mác vì sợ hãi? Hay là đã tản mác với ước muốn được chứng kiến thần thông không thể đo lường, vĩ đại, không thể sánh bằng của đức Như Lai?
 
@@ -33,9 +31,3 @@ Tâu đại vương, do nhân nào các vị A-la-hán có thể bị sợ hãi 
 “Thưa ngài Nāgasena, câu hỏi đã khéo được phân giải. Điều ấy là như vậy, không có sự sợ hãi hoặc sự run rẩy đối với các vị A-la-hán. Các vị A-la-hán ấy, sau khi nhìn thấy sự lợi ích, đã tản mác khắp các phương”
 
 Câu hỏi về sự không sợ hãi của bậc Lậu Tận là thứ chín.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

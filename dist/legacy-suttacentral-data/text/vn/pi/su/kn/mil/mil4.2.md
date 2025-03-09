@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 # PHẦN MỞ ĐẦU CÁC CÂU HỎI ĐỐI CHỌI:
@@ -15,9 +13,3 @@ Sau đó, đức vua đã đi vào khu rừng rậm tách biệt cùng với v�
 *   chỗ qua lại nên được xa lánh,
 *   bến nước nên được xa lánh,
 *   tám nơi này nên được xa lánh.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

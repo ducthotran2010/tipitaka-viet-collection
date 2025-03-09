@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG CHƯỚNG NGẠI:
 
-# 7\. CÂU HỎI VỀ THÂY CHẾT CỦA DẠ-XOA
+# 7. CÂU HỎI VỀ THÂY CHẾT CỦA DẠ-XOA
 
 “**Thưa ngài Nāgasena, có phải ở thế gian có hạng gọi là Dạ-xoa?**”
 
@@ -21,9 +19,3 @@ II. PHẨM KHÔNG CHƯỚNG NGẠI:
 “Thưa ngài Nāgasena, còn có người nào khác có thể trả lời khi được hỏi câu hỏi này, ngoại trừ bậc có sự giác ngộ như là ngài vậy?”
 
 Câu hỏi về thây chết của Dạ-xoa là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

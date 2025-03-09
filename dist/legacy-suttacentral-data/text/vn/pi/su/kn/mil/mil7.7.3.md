@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VI. PHẨM NHỆN:
 
-# 3\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI RÙA
+# 3. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI RÙA
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của loài rùa có đốm nên được hành trì,’ một tính chất nên được hành trì ấy là điều nào?**”
 
@@ -13,9 +11,3 @@ VI. PHẨM NHỆN:
 ‘_Vị tỳ khưu thích thú trong việc không xao lãng, hoặc có sự nhìn thấy nỗi sợ hãi ở việc xao lãng, không thể bị hư hỏng, và ở kề cận chính Niết Bàn._’”
 
 Câu hỏi về tính chất của loài rùa là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

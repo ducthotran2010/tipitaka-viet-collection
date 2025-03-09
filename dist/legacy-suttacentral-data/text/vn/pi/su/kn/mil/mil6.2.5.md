@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG CHƯỚNG NGẠI:
 
-# 5\. CÂU HỎI VỀ VẬT KHÔNG SANH RA DO NGHIỆP
+# 5. CÂU HỎI VỀ VẬT KHÔNG SANH RA DO NGHIỆP
 
 “**Thưa ngài Nāgasena, các vật sanh ra do nghiệp được thấy ở thế gian, sanh ra do nhân được thấy, sanh ra do mùa tiết được thấy. Ở thế gian vật gì không sanh ra do nghiệp, không sanh ra do nhân, không sanh ra do mùa tiết, xin ngài hãy nói về vật ấy cho trẫm.**”
 
@@ -73,9 +71,3 @@ Giống như khi có ngọn của thân cây hoặc của dây leo, vì lý do �
 “Thưa ngài Nāgasena, tốt lắm! Ví dụ đã khéo được phô bày. Lý lẽ đã khéo được giải thích. ‘Có Niết Bàn,’ trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về vật không sanh ra do nghiệp là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM VESSANTARA:
 
-# 7\. CÂU HỎI VỀ ĐIỀU KỲ DIỆU Ở BẢO THÁP
+# 7. CÂU HỎI VỀ ĐIỀU KỲ DIỆU Ở BẢO THÁP
 
 “**Thưa ngài Nāgasena, có điều kỳ diệu ở bảo tháp của tất cả các vị đã viên tịch Niết Bàn, hay là của chỉ một số vị?”**
 
@@ -25,9 +23,3 @@ Tâu đại vương, nếu không có sự chú nguyện của ba hạng ấy, t
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về điều kỳ diệu ở bảo tháp là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

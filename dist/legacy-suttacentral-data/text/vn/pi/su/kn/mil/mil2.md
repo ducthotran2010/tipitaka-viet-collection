@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 # SỰ LIÊN HỆ TRONG QUÁ KHỨ
@@ -245,9 +243,3 @@ Vào lúc bấy giờ, đại đức Nāgasena là ở nơi hội chúng tỳ kh
 _Sự thất bại chắc chắn sẽ xảy ra cho ta ngày hôm nay, khi tâm không được tập trung như vầy, và chính phần thắng sẽ là của Nāgasena_.’”
 
 Dứt Phần Ngoại Thuyết.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

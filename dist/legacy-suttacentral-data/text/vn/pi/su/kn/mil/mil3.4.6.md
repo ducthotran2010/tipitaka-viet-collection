@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -67,9 +65,3 @@ Vị trưởng lão đã nói rằng: “Tâu đại vương, đại vương ngh
 “Tâu đại vương, tương tợ y như thế do tác động của nghiệp khiến chúng sanh ở địa ngục trong khi bị nung nấu ở địa ngục thậm chí trong nhiều ngàn năm, vẫn không bị tiêu hoại; họ sanh ra ngay tại nơi ấy, lớn lên ngay tại nơi ấy, chết đi ngay tại nơi ấy. Tâu đại vương, điều này cũng đã được đức Thế Tôn nói đến: ‘_Cho đến khi nào nghiệp ác ấy còn chưa được diệt tận thì chúng sanh địa ngục ấy vẫn không chết_.’”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

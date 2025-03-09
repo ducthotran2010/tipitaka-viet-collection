@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 # CÂU HỎI GIẢNG VỀ CÁC VÍ DỤ:
@@ -221,9 +219,3 @@ Một tính chất của người lái thuyền nên được hành trì.
 Hai tính chất của loài ong nên được hành trì.”
 
 Các Tiêu Đề được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

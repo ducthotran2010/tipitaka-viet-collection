@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM ĐỨC PHẬT:
 
-# 8\. CÂU HỎI VỀ GIỚI HẠNH TỒI
+# 8. CÂU HỎI VỀ GIỚI HẠNH TỒI
 
 “**Thưa ngài Nāgasena, cái gì là sự phân biệt giữa người tại gia phá giới và của Sa-môn phá giới? Cái gì là sự khác biệt? Có phải cả hai hạng này đều có cảnh giới tái sanh giống nhau? Có phải cả hai đều có quả thành tựu giống nhau? Hay là có cái gì đó khác nhau?**”
 
@@ -27,9 +25,3 @@ Tâu đại vương, điều này cũng đã được đức Thế Tôn, vị Tr
 “Thưa ngài Nāgasena, thật là kỳ diệu! Thưa ngài Nāgasena, thật là phi thường! Chúng tôi đã hỏi câu hỏi có chừng ấy, thì ngài, trong khi giải thích nó bằng những ví dụ, bằng những lý lẽ, đã khiến cho vị ngọt của Bất Tử được lắng nghe. Thưa ngài, giống như người đầu bếp hoặc học trò của người đầu bếp, sau khi nhận được chừng ấy thịt thì đã sửa soạn với nhiều vật liệu các loại khác nhau, rồi làm ra món ăn cho đức vua. Thưa ngài Nāgasena, tương tợ y như thế chúng tôi đã hỏi câu hỏi có chừng ấy, thì ngài đã khi giải thích nó bằng những ví dụ, bằng những lý lẽ, và đã khiến cho vị ngọt của Bất Tử được lắng nghe.”
 
 Câu hỏi về giới hạnh tồi là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM MỐI:
 
-# 8\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI BÒ
+# 8. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI BÒ
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Bốn tính chất của loài bò nên được hành trì,’ bốn tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -23,9 +21,3 @@ Tâu đại vương, điều này cũng đã được trưởng lão cũng đã 
 _Sau khi nhìn thấy, tôi có thể thiết lập sự mong muốn sắc bén và lòng yêu mến ở vị ấy. Tôi có thể đặt vị ấy ở vị thế thầy dạy học một cách nghiêm chỉnh lần này lần khác_.’”
 
 Câu hỏi về tính chất của loài bò là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM ĐỨC PHẬT:
 
-# 6\. CÂU HỎI VỀ SỰ NHẬN BIẾT CẢM THỌ CỦA VỊ A-LA-HÁN
+# 6. CÂU HỎI VỀ SỰ NHẬN BIẾT CẢM THỌ CỦA VỊ A-LA-HÁN
 
 “Thưa ngài Nāgasena, ngài nói rằng: ‘**Vị A-la-hán nhận biết một cảm thọ, thuộc thân không thuộc tâm.**’ Thưa ngài Nāgasena, việc mà tâm của vị A-la-hán vận hành nương vào thân, vậy có phải vị A-la-hán không phải là chúa tể, không phải là người chủ, không có quyền hành ở nơi ấy?”
 
@@ -41,9 +39,3 @@ I. PHẨM ĐỨC PHẬT:
 “Thưa ngài Nāgasena, thật là kỳ diệu! Thưa ngài Nāgasena, thật là phi thường! Ngọn đèn Giáo Pháp có hình thức như vầy vào mọi lúc là chưa từng được thấy trước đây bởi trẫm.”
 
 Câu hỏi về sự nhận biết cảm thọ của vị A-la-hán là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

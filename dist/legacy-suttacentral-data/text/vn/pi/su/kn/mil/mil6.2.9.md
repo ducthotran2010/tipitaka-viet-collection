@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG CHƯỚNG NGẠI:
 
-# 9\. CÂU HỎI VỀ SỰ CHIẾU SÁNG CỦA MẶT TRỜI
+# 9. CÂU HỎI VỀ SỰ CHIẾU SÁNG CỦA MẶT TRỜI
 
 “**Thưa ngài Nāgasena, mặt trời này luôn luôn chiếu sáng thô tháo, hay là vào lúc nào đó thì chiếu sáng yếu ớt?**”
 
@@ -17,9 +15,3 @@ II. PHẨM KHÔNG CHƯỚNG NGẠI:
 “Thưa ngài Nāgasena, thật là kỳ diệu! Thưa ngài Nāgasena, thật là phi thường! Đối với vật có năng lượng thậm chí cho đến mặt trời mà bệnh còn sanh khởi, vậy thì có điều gì đối với những chúng sanh khác? Thưa ngài, cách phân loại này không có ở người khác, ngoại trừ bậc có sự giác ngộ như là ngài vậy.”
 
 Câu hỏi về sự chiếu sáng của mặt trời là thứ chín.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

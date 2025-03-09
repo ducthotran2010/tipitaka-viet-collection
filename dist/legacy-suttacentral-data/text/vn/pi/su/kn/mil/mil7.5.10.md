@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM MỐI:
 
-# 10\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI VOI
+# 10. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI VOI
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của loài voi nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -27,9 +25,3 @@ _Người có liêm sỉ, đã phòng hộ tất cả, được gọi là: Vị 
 Câu hỏi về tính chất của loài voi là thứ mười.
 
 Phẩm mối là phẩm thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

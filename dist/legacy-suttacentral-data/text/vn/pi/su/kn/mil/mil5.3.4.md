@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐÃ BỊ ĐUỔI ĐI:
 
-# 4\. CÂU HỎI VỀ BẢN THỂ CỦA LỜI NÓI GAY GẮT
+# 4. CÂU HỎI VỀ BẢN THỂ CỦA LỜI NÓI GAY GẮT
 
 “Thưa ngài Nāgasena, điều này cũng đã được trưởng lão Sāriputta, vị Tướng Quân Chánh Pháp, nói đến:**‘Này các đại đức, đức Như Lai có cách hành xử về lời nói hoàn toàn trong sạch. Đức Như Lai không có lối cư xử xấu xa về lời nói khiến đức Như Lai phải gìn giữ rằng:—Chớ để người khác biết việc này của Ta.’** Và thêm nữa, trong khi quy định tội _pārājika_ về việc phạm lỗi của trưởng lão Sudinna Kalandaputta, đức Như Lai đã xưng hô bằng từ kẻ rồ dại với những lời nói gay gắt. Và vì thế, vị trưởng lão ấy bị run sợ, có sự ăn hận, đã không thể thấu triệt Thánh Đạo. Thưa ngài Nāgasena, nếu đức Như Lai có cách hành xử về lời nói hoàn toàn trong sạch, đức Như Lai không có lối cư xử xấu xa về lời nói, như thế thì lời nói rằng: ‘Trong việc phạm lỗi của trưởng lão Sudinna Kalandaputta, đức Thế Tôn đã xưng hô bằng từ kẻ rồ dại’ là sai trái. Nếu trong việc phạm lỗi của trưởng lão Sudinna Kalandaputta, đức Thế Tôn đã xưng hô bằng từ kẻ rồ dại, như thế thì lời nói rằng: ‘Đức Như Lai có cách hành xử về lời nói hoàn toàn trong sạch, đức Như Lai không có lối cư xử xấu xa về lời nói’ cũng là sai trái. Câu hỏi này cũng có cả hai khía cạnh, được dành cho ngài. Nó nên được giải quyết bởi ngài.”
 
@@ -37,9 +35,3 @@ Tâu đại vương, giống như đống gòn, dầu lớn, rơi xuống ở c�
 “Thưa ngài Nāgasena, tốt lắm! Câu hỏi đã khéo được giải quyết bằng nhiều lý lẽ. Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về bản thể của lời nói gay gắt của đức Như Lai là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

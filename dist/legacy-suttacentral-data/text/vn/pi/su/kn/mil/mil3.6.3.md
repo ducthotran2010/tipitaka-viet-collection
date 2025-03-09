@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -35,9 +33,3 @@ Vị trưởng lão đã nói rằng: “Tâu đại vương, có loại hoa sen
 “Tâu đại vương, tương tợ y như thế đức Thế Tôn hội đủ ba mươi hai tướng của bậc đại nhân và được phân biệt với tám mươi tướng phụ, có sắc vàng, có làn da như là vàng, có hào quang một sải tay.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

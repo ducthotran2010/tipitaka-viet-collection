@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM BIỂN CẢ:
 
-# 4\. CÂU HỎI VỀ TÍNH CHẤT CỦA CÂY _SĀLĀ_ XINH ĐẸP
+# 4. CÂU HỎI VỀ TÍNH CHẤT CỦA CÂY _SĀLĀ_ XINH ĐẸP
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của cây** _sālā_ **xinh đẹp nên được hành trì,’ một tính chất nên được hành trì ấy là điều nào?**”
 
@@ -17,9 +15,3 @@ Giống như vào lúc thời điểm đã đến, với sự trưởng thành c
 _Bạch đấng Đại Hùng, tương tợ y như thế, con tiến triển một cách tự nhiên ở ngôi nhà trống vắng, tợ như cây sālā xinh đẹp tăng trưởng ở khoảng không_.’”
 
 Câu hỏi về tính chất của cây _sālā_**xinh đẹp là thứ tư.**
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

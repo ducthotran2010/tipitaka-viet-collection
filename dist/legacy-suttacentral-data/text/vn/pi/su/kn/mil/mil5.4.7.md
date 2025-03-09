@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM VỀ TRÍ TOÀN TRI:
 
-# 7\. CÂU HỎI VỀ SỰ BẰNG NHAU CỦA THIỆN VÀ BẤT THIỆN
+# 7. CÂU HỎI VỀ SỰ BẰNG NHAU CỦA THIỆN VÀ BẤT THIỆN
 
 “**Thưa ngài Nāgasena, quả thành tựu của người làm việc thiện cũng như của người làm việc bất thiện là tương đương nhau? Hay là có sự khác biệt nào đó**?”
 
@@ -79,9 +77,3 @@ Tâu đại vương, hơn nữa Devadatta trong kiếp sống này sau khi công
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về sự bằng nhau của thiện và bất thiện là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

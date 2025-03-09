@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM VỀ TRÍ TOÀN TRI:
 
-# 4\. CÂU HỎI VỀ QUY LUẬT TỰ NHIÊN ĐỐI VỚI ĐỨC BỒ TÁT
+# 4. CÂU HỎI VỀ QUY LUẬT TỰ NHIÊN ĐỐI VỚI ĐỨC BỒ TÁT
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến ở bài giảng Pháp về quy luật tự nhiên: **‘Ngay trong thời quá khứ, mẹ cha của các đức Bồ Tát là được xác định, cội cây Bồ Đề là được xác định, các vị Thinh Văn hàng đầu là được xác định, người con trai là được xác định, vị thị giả là được xác định.**’ Và thêm nữa, ngài nói rằng: ‘**Khi ngự ở tập thể Chư Thiên Tusitā, đức Bồ Tát quán xét tám điều quán xét chánh yếu: Quán xét về thởi điểm, quán xét về châu lục, quán xét về xứ sở, quán xét về gia tộc, quán xét về người mẹ, quán xét về tuổi thọ, quán xét về tháng (thời gian trụ thai), quán xét về việc xuất ly.**’ Thưa ngài Nāgasena, khi trí chưa được chín muồi thì không có sự giác ngộ. Khi trí đã chín muồi thì không thể chờ đợi dầu chỉ trong nháy mắt. Trí đã chín muồi sẽ không bị vượt qua. Tại sao đức Bồ Tát quán xét thời điểm rằng: ‘Ta tái sanh vào thời điểm nào?’ Khi trí chưa được chín muồi thì không có sự giác ngộ. Khi trí đã chín muồi thì không thể chờ đợi dầu chỉ trong nháy mắt. Tại sao đức Bồ Tát quán xét gia tộc rằng: ‘Ta tái sanh vào gia tộc nào?’ Thưa ngài Nāgasena, nếu mẹ cha của các đức Bồ Tát là được xác định ngay trong thời quá khứ, như thế thì lời nói rằng: ‘Quán xét về gia tộc’ là sai trái. Nếu (đức Bồ Tát) quán xét về gia tộc, như thế thì lời nói rằng: ‘Mẹ cha của các đức Bồ Tát là được xác định ngay trong thời quá khứ’ cũng là sai trái. Câu hỏi này cũng có cả hai khía cạnh, được dành cho ngài. Nó nên được giải quyết bởi ngài.”
 
@@ -15,9 +13,3 @@ Tâu đại vương, sự việc chưa xảy đến nên được xem xét trư�
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về quy luật tự nhiên đối với đức Bồ Tát là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

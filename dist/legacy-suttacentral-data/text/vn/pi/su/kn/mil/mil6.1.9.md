@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM ĐỨC PHẬT:
 
-# 9\. CÂU HỎI VỀ VIỆC CÓ SINH MẠNG VÀ SỰ SỐNG CỦA NƯỚC
+# 9. CÂU HỎI VỀ VIỆC CÓ SINH MẠNG VÀ SỰ SỐNG CỦA NƯỚC
 
 “**Thưa ngài Nāgasena, nước này trong khi được đun nóng ở ngọn lửa thì kêu tí ta tí tách và phát ra âm thanh nhiều loại. Thưa ngài Nāgasena, vậy có phải nước sinh tồn? Có phải nước trong khi đùa giỡn thì phát ra âm thanh? Hay là trong khi bị vật khác quấy nhiễu thì phát ra âm thanh?**”
 
@@ -83,9 +81,3 @@ Câu hỏi về việc có sinh mạng và sự sống của nước là thứ c
 Phẩm Đức Phật được đầy đủ là phẩm thứ nhất.
 
 (Ở phẩm này có chín câu hỏi)
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

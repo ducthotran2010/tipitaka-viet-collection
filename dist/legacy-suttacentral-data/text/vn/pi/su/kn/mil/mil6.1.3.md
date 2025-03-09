@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM ĐỨC PHẬT:
 
-# 3\. CÂU HỎI VỀ VIỆC THỰC HÀNH ĐÚNG ĐẮN
+# 3. CÂU HỎI VỀ VIỆC THỰC HÀNH ĐÚNG ĐẮN
 
 ## CỦA HÀNG TẠI GIA VÀ XUẤT GIA
 
@@ -27,9 +25,3 @@ Tâu đại vương, đối với vị xuất gia điều gì cần phải làm,
 Câu hỏi về việc thực hành đúng đắn
 
 của hàng tại gia và xuất gia là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

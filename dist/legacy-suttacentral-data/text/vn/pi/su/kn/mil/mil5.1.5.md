@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM NĂNG LỰC CỦA THẦN THÔNG:
 
-# 5\. CÂU HỎI VỀ SỰ BỐ THÍ MẮT CỦA ĐỨC VUA SIVI
+# 5. CÂU HỎI VỀ SỰ BỐ THÍ MẮT CỦA ĐỨC VUA SIVI
 
 “**Thưa ngài Nāgasena, ngài đã nói như vầy: ‘Các con mắt đã được đức vua Sivi bố thí đến kẻ cầu xin, khi đức vua đã bị mù thì các thiên nhãn đã được tạo ra lại.’ Lời nói này cũng có sự sái quấy, có sự bắt bẻ, có khuyết điểm. Điều đã được nói ở trong Kinh là: ‘Khi nhân đã bị lấy đi, khi không có nhân, khi không có nền tảng, thì không có sự tạo ra thiên nhãn**.’ Thưa ngài Nāgasena, nếu các con mắt đã được đức vua Sivi bố thí đến kẻ cầu xin, như thế thì lời nói rằng: ‘Các thiên nhãn đã được tạo ra lại’ là sai trái. Nếu các thiên nhãn đã được tạo ra, như thế thì lời nói rằng: ‘Các con mắt đã được đức vua Sivi bố thí đến kẻ cầu xin’ cũng là sai trái. Câu hỏi này cũng có cả hai khía cạnh, bị thắt lại còn hơn nút thắt, bị xoắn lại còn hơn vật xoắn, bị rối rắm còn hơn bụi rậm, nó được dành cho ngài. Ở đây, xin ngài hãy khởi lên ước muốn về việc giải quyết vì sự bắt bẻ của các học thuyết khác.”
 
@@ -55,9 +53,3 @@ Tâu đại vương, những người đứng vững ở sự chân thật cũng
 “Thưa ngài Nāgasena, tốt lắm! Câu hỏi đã khéo được tháo gỡ, sự bắt bẻ đã khéo được giải thích, các học thuyết khác đã khéo được nghiền nát. Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về sự bố thí mắt của đức vua Sivi là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

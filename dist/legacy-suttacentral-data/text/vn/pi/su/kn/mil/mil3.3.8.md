@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -27,9 +25,3 @@ CÁC CÂU HỎI CỦA MILINDA:
 “Tâu đại vương, giống như hai chập chõa được vỗ vào nhau. Trong hai chập chõa ấy, một chập chõa được xem như là mắt, chập chõa thứ hai được xem như là cảnh sắc. Sự va chạm nhau của chúng được xem như là xúc.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -51,9 +49,3 @@ Vị trưởng lão đã nói rằng: “Tâu đại vương, tôi sẽ nói v�
 Vị trưởng lão đã giúp cho đức vua Milinda hiểu được bằng sự thuyết giảng liên quan đến Vi Diệu Pháp: “Tâu đại vương, trong trường hợp này, tùy thuận vào mắt và các cảnh sắc mà nhãn thức sanh lên, như vậy các pháp này sanh lên do duyên. Xúc, thọ, tưởng, tư, nhất hành, mạng quyền, tác ý là đồng sanh với nó. Bởi vì ở đây sự hiểu biết có thể đạt được là không đúng. Tùy thuận vào tai và các cảnh thin … (như trên) … Tùy thuận vào ý và các cảnh pháp mà ý thức sanh lên. Xúc, thọ, tưởng, tư, nhất hành, mạng quyền, tác ý là đồng sanh với nó, như vậy các pháp này sanh lên do duyên. Bởi vì ở đây sự hiểu biết có thể đạt được là không đúng.”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -109,9 +107,3 @@ Khi ấy, đức vua Milinda đã nói với đại đức Nāgasena điều nà
 _Giống y như việc ráp chung lại các bộ phận thì có tiếng gọi là ‘cỗ xe,’ tương tợ như vậy khi các uẩn hiện diện thì có sự công nhận là ‘con người’._”
 
 “Thưa ngài Nāgasena, thật là kỳ diệu! Thưa ngài Nāgasena, thật là phi thường! Các sự ứng đối câu hỏi rất tuyệt vời đã được trình bày. Nếu đức Phật còn tại tiền thì Ngài cũng tán thưởng bằng tiếng ‘Lành thay!’ Này Nāgasena, thật tốt đẹp thay, thật tốt đẹp thay! Các sự ứng đối câu hỏi rất tuyệt vời đã được trình bày.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

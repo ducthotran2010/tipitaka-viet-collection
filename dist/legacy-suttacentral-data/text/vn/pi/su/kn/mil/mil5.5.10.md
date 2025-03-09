@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM THÂN THIẾT:
 
-# 10\. CÂU HỎI VỀ TRẠNG THÁI KHÔNG NỖ LỰC
+# 10. CÂU HỎI VỀ TRẠNG THÁI KHÔNG NỖ LỰC
 
 ## TRONG VIỆC THUYẾT GIẢNG GIÁO PHÁP
 
@@ -33,9 +31,3 @@ Tâu đại vương, giống như vị vua nào đó, hoặc quan đại thần 
 Câu hỏi về trạng thái không nỗ lực
 
 trong việc thuyết giảng Giáo Pháp của đức Thế Tôn là thứ mười.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

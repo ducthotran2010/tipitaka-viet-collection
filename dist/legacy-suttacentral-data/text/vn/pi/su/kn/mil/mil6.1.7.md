@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM ĐỨC PHẬT:
 
-# 7\. CÂU HỎI VỀ CHƯỚNG NGẠI CỦA SỰ CHỨNG NGỘ
+# 7. CÂU HỎI VỀ CHƯỚNG NGẠI CỦA SỰ CHỨNG NGỘ
 
 “**Thưa ngài Nāgasena, ở đây có người tại gia nào đó phạm tội cực nặng, người ấy vào lúc khác xuất gia, người ấy tự mình cũng không biết rằng: ‘Khi là người tại gia, ta đã phạm tội cực nặng;’ cũng không có ai nói cho người ấy rằng: ‘Khi là người tại gia, ngươi đã phạm tội cực nặng.’ Và người ấy thực hành để chứng đạt Niết Bàn, phải chăng đối với người ấy có thể có sự chứng ngộ Giáo Pháp?**”
 
@@ -63,9 +61,3 @@ I. PHẨM ĐỨC PHẬT:
 “Thưa ngài Nāgasena, không thể bác bỏ lý do đã được đấng Chiến Thắng giảng giải. Điều này đúng là ý nghĩa của việc ấy. Trẫm chấp nhận như thế.”
 
 Câu hỏi về chướng ngại của sự chứng ngộ là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

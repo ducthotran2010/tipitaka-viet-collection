@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM SƯ TỬ:
 
-# 1\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI SƯ TỬ
+# 1. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI SƯ TỬ
 
 ## TÓM LƯỢC PHẨM NÀY
 
@@ -29,9 +27,3 @@ Tâu đại vương, còn có điều khác nữa, loài sư tử không lo âu 
 ‘_Này các tỳ khưu, vị Kassapa này tự biết đủ với đồ ăn khất thực loại này loại khác, là vị nói lời ca ngợi về sự tự biết đủ với đồ ăn khất thực loại này loại khác, không vì nguyên nhân đồ ăn khất thực mà phạm vào việc tầm cầu sai trái, không thích hợp, không lo âu do đã không nhận được thức ăn, và khi đã nhận được thức ăn thì thọ dụng không bị vướng mắc, không bị mê mẩn, không bị phạm tội, có sự nhìn thấy điều bất lợi, có tuệ về sự thoát ly_.’”
 
 Câu hỏi về tính chất của loài sư tử là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

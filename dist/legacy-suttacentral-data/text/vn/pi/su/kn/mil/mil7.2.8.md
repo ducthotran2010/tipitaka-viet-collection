@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM LỪA:
 
-# 8\. CÂU HỎI VỀ TÍNH CHẤT CỦA CÂY CUNG
+# 8. CÂU HỎI VỀ TÍNH CHẤT CỦA CÂY CUNG
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của cây cung nên được hành trì,’ một tính chất nên được hành trì ấy là điều nào?**”
 
@@ -15,9 +13,3 @@ Tâu đại vương, điều này cũng đã được đức Thế Tôn, vị Tr
 ‘_Vị sáng trí nên uốn cong tợ như cây cung, tợ như cây tre đang nghiêng theo, không nên hành xử điều nghịch lại, vị ấy có thể trú ở chỗ ngụ của đức vua_.’”
 
 Câu hỏi về tính chất của cây cung là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

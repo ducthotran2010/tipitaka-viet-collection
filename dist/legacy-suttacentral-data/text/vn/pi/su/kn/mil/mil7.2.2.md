@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM LỪA:
 
-# 2\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI GÀ TRỐNG
+# 2. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI GÀ TRỐNG
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Năm tính chất của loài gà trống nên được hành trì,’ năm tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -31,9 +29,3 @@ Tâu đại vương, điều này cũng đã được trưởng lão Sāriputta,
 _Y như thế ấy, người con trai của đức Phật, dẫu là không bị xao lãng, không nên xem thường lời dạy của đấng Chiến Thắng về sự tác ý cao quý tối thượng_.’”
 
 Câu hỏi về tính chất của loài gà trống là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

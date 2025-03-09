@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM NĂNG LỰC CỦA THẦN THÔNG:
 
-# 6\. CÂU HỎI VỀ SỰ NHẬP VÀO BÀO THAI
+# 6. CÂU HỎI VỀ SỰ NHẬP VÀO BÀO THAI
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Này các tỳ khưu, sự nhập vào bào thai được hội tụ bởi ba yếu tố. Ở đây, người mẹ và người cha kết hợp với nhau, người mẹ có kinh nguyệt, và chúng sanh đi đầu thai đã sẵn sàng. Này các tỳ khưu, sự nhập vào bào thai được hội tụ bởi ba yếu tố này.’** Đây là lời nói không thiếu sót, đây là lời nói đầy đủ, đây là lời nói không thay đổi, đây là lời nói xứng đáng, đã được nói (bởi đức Thế Tôn) sau khi ngồi xuống ở giữa chư Thiên và nhân loại. Và việc nhập vào bào thai này được hội tụ bởi hai yếu tố đã được nhìn thấy: ‘Vào thời kỳ kinh nguyệt của nữ đạo sĩ Pārikā, lỗ rún của nàng đã bị chạm vào bởi ngón tay cái bên phải của đạo sĩ Dukūla, do việc chạm vào lỗ rún ấy của vị ấy mà đứa bé trai Sāma được sanh ra. Vào thời kỳ kinh nguyệt của cô gái Bà-la-môn, lỗ rún của nàng cũng đã bị chạm vào bởi ngón tay cái bên phải của vị ẩn sĩ Mātaṅga, do việc chạm vào lỗ rún ấy của vị ấy mà thanh niên Bà-la-môn Maṇḍavya được sanh ra.’
 
@@ -79,9 +77,3 @@ Tâu đại vương, cậu bé trai Sāma được Thiên chủ Sakka thỉnh c�
 “Thưa ngài Nāgasena, sự nhập vào bào thai đã đã khéo được giải thích. Lý do đã được giảng giải rõ ràng. Ánh sáng đã được tạo ra ở nơi tăm tối. Cục rối đã được tháo gỡ. Học thuyết của những kẻ khác không còn chói sáng. Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về sự nhập vào bào thai là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

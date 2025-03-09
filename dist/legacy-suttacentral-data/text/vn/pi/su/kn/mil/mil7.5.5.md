@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM MỐI:
 
-# 5\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI CHỒN
+# 5. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI CHỒN
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của loài chồn nên được hành trì,’ một tính chất nên được hành trì ấy là điều nào?**”
 
@@ -13,9 +11,3 @@ IV. PHẨM MỐI:
 ‘_Do đó, sự tu tập về từ ái nên được thực hiện cho mình và cho luôn cả những người khác, nên tỏa khắp bằng tâm từ ái; điều này là lời dạy của chư Phật_.’”
 
 Câu hỏi về tính chất của loài chồn là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

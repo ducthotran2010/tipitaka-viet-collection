@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 VI. PHẨM NHỆN:
 
-# 5\. CÂU HỎI VỀ TÍNH CHẤT CỦA CÂY CỐI
+# 5. CÂU HỎI VỀ TÍNH CHẤT CỦA CÂY CỐI
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Ba tính chất của cây cối nên được hành trì,’ ba tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -17,9 +15,3 @@ Tâu đại vương, còn có điều khác nữa, cây cối không làm sự p
 ‘_Trong trường hợp kẻ phá hoại Devadatta, kẻ cướp có xâu chuỗi bằng ngón tay, con voi Dhanapāla, và luôn cả (người con trai) Rāhula, bậc Hiền Trí là bình đẳng trong mọi trường hợp_.’”
 
 Câu hỏi về tính chất của cây cối là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM KHÔNG CHƯỚNG NGẠI:
 
-# 6\. CÂU HỎI VỀ VẬT SANH RA DO NGHIỆP
+# 6. CÂU HỎI VỀ VẬT SANH RA DO NGHIỆP
 
 ## VÀ KHÔNG SANH RA DO NGHIỆP
 
@@ -17,9 +15,3 @@ II. PHẨM KHÔNG CHƯỚNG NGẠI:
 Câu hỏi về vật sanh ra do nghiệp
 
 và không sanh ra do nghiệp là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

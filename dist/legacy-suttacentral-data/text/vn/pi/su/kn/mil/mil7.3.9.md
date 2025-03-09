@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM BIỂN CẢ:
 
-# 9\. CÂU HỎI VỀ TÍNH CHẤT CỦA NGƯỜI LÀM CÔNG
+# 9. CÂU HỎI VỀ TÍNH CHẤT CỦA NGƯỜI LÀM CÔNG
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của người làm công nên được hành trì,’ một tính chất nên được hành trì ấy là điều nào?**”
 
@@ -15,9 +13,3 @@ Tâu đại vương, tương tợ y như thế vị hành giả thiết tha tu t
 ‘_Ngươi hãy quán sát về thân này, hãy biết toàn diện (về nó) lần này lần khác. Sau khi nhìn thấy bản thể thật ở thân, ngươi sẽ thực hiện việc chấm dứt khổ đau_.’”
 
 Câu hỏi về tính chất của người làm công là thứ chín.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

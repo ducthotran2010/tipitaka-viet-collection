@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 II. PHẨM BIỂN CẢ:
 
-# 3\. CÂU HỎI VỀ TÍNH CHẤT CỦA HẠT GIỐNG
+# 3. CÂU HỎI VỀ TÍNH CHẤT CỦA HẠT GIỐNG
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Hai tính chất của hạt giống nên được hành trì,’ hai tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -17,9 +15,3 @@ Tâu đại vương, còn có điều khác nữa, hạt giống đã được t
 _Y như thế ấy, tâm của vị hành giả đã được làm cho thanh tịnh ở căn nhà trống vắng thì phát triển vô cùng nhanh chóng ở thửa ruộng là sự thiết lập niệm._’”
 
 Câu hỏi về tính chất của hạt giống là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

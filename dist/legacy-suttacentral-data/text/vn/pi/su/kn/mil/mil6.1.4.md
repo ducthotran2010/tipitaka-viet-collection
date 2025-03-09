@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM ĐỨC PHẬT:
 
-# 4\. CÂU HỎI VỀ SỰ SAI TRÁI TRONG ĐƯỜNG LỐI THỰC HÀNH
+# 4. CÂU HỎI VỀ SỰ SAI TRÁI TRONG ĐƯỜNG LỐI THỰC HÀNH
 
 “Thưa ngài Nāgasena, khi đức Bồ Tát thực hiện hành động khó thực hành (khổ hạnh), không nơi nào khác đã có sự nỗ lực, sự cố gắng, sự chiến đấu với phiền não, sự làm tiêu tan đạo binh của Thần Chết, sự kiêng vật thực, các hành động khó thực hành như thế này. Ở sự gắng sức có hình thức như thế, đức Bồ Tát đã không đạt được bất cứ sự khoái lạc nào, đã bỏ rơi chính tâm ý ấy, và đã nói như vầy: ‘Tuy nhiên, với việc khổ hạnh dữ dội này Ta không chứng đắc các pháp thượng nhân, là pháp đặc biệt thuộc về trí tuệ và sự thấy biết xứng đáng bậc Thánh. Có thể có chăng đạo lộ nào khác đưa đến giác ngộ?’ Sau khi nhàm chán với việc ấy, bằng một đạo lộ khác Ngài đã đạt đến bản thể Toàn Tri, rồi cũng vẫn chỉ dạy, khuyến khích các đệ tử về đường lối thực hành ấy rằng:
 
@@ -27,9 +25,3 @@ Tâu đại vương, hoặc là giống như người nam quấn vào tấm vả
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về sự sai trái trong đường lối thực hành là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

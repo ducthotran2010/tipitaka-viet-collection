@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM MỐI:
 
-# 7\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI NAI
+# 7. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI NAI
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Ba tính chất của loài nai nên được hành trì,’ ba tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -21,9 +19,3 @@ Tâu đại vương, điều này cũng đã được trưởng lão Sāriputta,
 ‘_Vào bất cứ lúc nào và ở bất cứ nơi đâu, mong rằng kẻ có ước muốn xấu xa, biếng nhác, có sự tinh tấn kém cỏi, ít học hỏi, có hành vi sai trái, chớ đến gần tôi_.’”
 
 Câu hỏi về tính chất của loài nai là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

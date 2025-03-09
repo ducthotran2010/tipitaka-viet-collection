@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM VESSANTARA:
 
-# 9\. CÂU HỎI VỀ TÍNH CHẤT KHÔNG BỊ XEN LẪN KHỔ
+# 9. CÂU HỎI VỀ TÍNH CHẤT KHÔNG BỊ XEN LẪN KHỔ
 
 ## CỦA NIẾT BÀN
 
@@ -51,9 +49,3 @@ Tâu đại vương, hãy lắng nghe thêm lý do khác nữa: ‘Niết Bàn l
 Câu hỏi về tính chất không bị xen lẫn khổ
 
 của Niết Bàn là thứ chín.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

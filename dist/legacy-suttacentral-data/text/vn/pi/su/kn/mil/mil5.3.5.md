@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM ĐÃ BỊ ĐUỔI ĐI:
 
-# 5\. CÂU HỎI VỀ BẢN THỂ SUY TƯ CỦA CÂY CỐI
+# 5. CÂU HỎI VỀ BẢN THỂ SUY TƯ CỦA CÂY CỐI
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Như Lai nói đến:
 
@@ -23,9 +21,3 @@ Tâu đại vương, hoặc là giống như trong khi khuấy sữa đông thì
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về bản thể suy tư của cây cối là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

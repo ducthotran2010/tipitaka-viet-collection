@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 IV. PHẨM VỀ TRÍ TOÀN TRI:
 
-# 3\. CÂU HỎI VỀ TÍNH CHẤT NẶNG NHẸ CỦA LỜI NÓI DỐI
+# 3. CÂU HỎI VỀ TÍNH CHẤT NẶNG NHẸ CỦA LỜI NÓI DỐI
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: **‘Khi cố tình nói dối thì phạm tội** _pārājika_.’ Và thêm nữa, Ngài đã nói rằng: ‘**Khi cố tình nói dối thì phạm tội nhẹ với việc sám hối trong sự hiện diện của một vị.**’ Thưa ngài Nāgasena, vậy thì ở đây có điều gì khác nhau? Lý do gì mà do một lời nói dối thì bị đứt đoạn và do một lời nói dối lại có được sự sửa chữa? Thưa ngài Nāgasena, nếu đức Thế Tôn đã nói rằng: ‘Khi cố tình nói dối thì phạm tội _pārājika_,’ như thế thì lời nói rằng: ‘Khi cố tình nói dối thì phạm tội nhẹ với việc sám hối trong sự hiện diện của một vị’ là sai trái. Nếu đức Như Lai đã nói rằng: ‘Khi cố tình nói dối thì phạm tội nhẹ với việc sám hối trong sự hiện diện của một vị,’ như thế thì lời nói rằng: ‘Khi cố tình nói dối thì phạm tội _pārājika_’ cũng là sai trái. Câu hỏi này cũng có cả hai khía cạnh, được dành cho ngài. Nó nên được giải quyết bởi ngài.”
 
@@ -25,9 +23,3 @@ IV. PHẨM VỀ TRÍ TOÀN TRI:
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về tính chất nặng nhẹ của lời nói dối là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

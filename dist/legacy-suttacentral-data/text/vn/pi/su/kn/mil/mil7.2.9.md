@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM LỪA:
 
-# 9\. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI QUẠ
+# 9. CÂU HỎI VỀ TÍNH CHẤT CỦA LOÀI QUẠ
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Hai tính chất của loài quạ nên được hành trì,’ hai tính chất nên được hành trì ấy là các điều nào?**”
 
@@ -15,9 +13,3 @@ Tâu đại vương, còn có điều khác nữa, loài quạ sau khi nhìn th�
 ‘_Vào lúc ta có sự thực hành khổ hạnh, nếu họ đem lại cho ta phần đã đạt được theo khả năng, thì ta phân chia cho tất cả, sau đó mới thọ dụng phần ăn._’”
 
 Câu hỏi về tính chất của loài quạ là thứ chín.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

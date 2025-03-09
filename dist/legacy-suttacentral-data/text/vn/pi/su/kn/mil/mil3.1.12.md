@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -19,9 +17,3 @@ CÁC CÂU HỎI CỦA MILINDA:
 “Tâu đại vương, giống như đội binh lớn có thể đánh tan đội binh nhỏ, vì thế có người báo cho đức vua, đức vua cho đội binh khác tiếp ứng, tiếp viện đội binh nhỏ, với đội binh tiếp viện ấy đội binh nhỏ có thể đánh tan đội binh lớn. Tâu đại vương, tương tợ y như thế, tấn có sự nâng đỡ là tướng trạng. Được nâng đỡ bởi tấn, tất cả các thiện pháp không bị suy giảm. Tâu đại vương, điều này cũng đã được đức Thế Tôn nói đến: ‘_Này các tỳ khưu, có sự tinh tấn vị Thánh đệ tử từ bỏ pháp bất thiện, tu tập pháp thiện, từ bỏ pháp bị chê trách, tu tập pháp không bị chê trách, gìn giữ bản thân trong sạch_.’”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

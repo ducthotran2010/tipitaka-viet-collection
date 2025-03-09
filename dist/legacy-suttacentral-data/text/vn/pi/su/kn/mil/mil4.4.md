@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 # PHẦN MỞ ĐẦU CÁC CÂU HỎI ĐỐI CHỌI:
@@ -13,9 +11,3 @@ Vị trưởng lão đã nói rằng: “Những người ấy có sự sai trá
 Vậy ở đây là:
 
 _Hạng bị ái luyến, sân hận, si mê, ngã mạn, tham lam, lười biếng là tương tợ, có suy nghĩ một chiều, và ngu dốt. Các hạng người này làm hư hỏng vấn đề_.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

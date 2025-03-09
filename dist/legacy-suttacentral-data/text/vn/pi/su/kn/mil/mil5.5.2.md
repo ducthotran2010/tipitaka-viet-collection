@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 V. PHẨM THÂN THIẾT:
 
-# 2\. CÂU HỎI VỀ VIỆC HẠN CHẾ BAO TỬ
+# 2. CÂU HỎI VỀ VIỆC HẠN CHẾ BAO TỬ
 
 “Thưa ngài Nāgasena, điều này cũng đã được đức Thế Tôn nói đến: ‘**Không nên xao lãng trong việc đứng (khất thực), nên hạn chế ở bao tử.**’
 
@@ -27,9 +25,3 @@ Tâu đại vương, giống như đối với người bị bệnh cần đư�
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về việc hạn chế bao tử là thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

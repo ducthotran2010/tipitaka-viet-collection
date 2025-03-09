@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM VESSANTARA:
 
-# 4\. CÂU HỎI VỀ VIỆC HỒI HƯỚNG
+# 4. CÂU HỎI VỀ VIỆC HỒI HƯỚNG
 
 ## ĐẾN QUYẾN THUỘC ĐÃ QUÁ VÃNG
 
@@ -93,9 +91,3 @@ Tâu đại vương, trái lại người đang làm việc bất thiện thì v
 “Thưa ngài Nāgasena, tốt lắm! Trẫm chấp nhận điều này đúng theo như vậy.”
 
 Câu hỏi về việc hồi hướng đến quyến thuộc đã quá vãng là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

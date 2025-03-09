@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 CÁC CÂU HỎI CỦA MILINDA:
@@ -41,9 +39,3 @@ _Giống như kẻ đánh xe bò từ bỏ con đường lớn bằng phẳng đ
 _Như vậy, sau khi xa lìa Chánh Pháp, xu hướng theo phi pháp, kẻ ngu bị rơi vào miệng thần chết, sầu muộn như kẻ bị gãy trục xe vậy_.’”
 
 “Thưa ngài Nāgasena, ngài thật khôn khéo.”
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

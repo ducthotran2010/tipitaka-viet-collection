@@ -1,5 +1,3 @@
- 
-
 MILINDA VẤN ĐẠO
 
 # ĐOẠN KẾT:
@@ -27,9 +25,3 @@ Câu hỏi của đức vua Milinda và câu trả lời của vị Nāgasena, b
 _Do việc làm phước thiện này, mong rằng từ chốn này tôi đi đến cõi Trởi Đẩu Xuất, và ở ngày vị lai tôi có thể gặp (đức Phật) Metteyya, và có thể lắng nghe Giáo Pháp tối thượng_.”
 
 ‘MILINDA VẤN ĐẠO’ ĐƯỢC CHẤM DỨT.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

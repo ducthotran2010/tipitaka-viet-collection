@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 I. PHẨM LỪA:
 
-# 7\. CÂU HỎI VỀ TÍNH CHẤT CỦA CÂY TRE
+# 7. CÂU HỎI VỀ TÍNH CHẤT CỦA CÂY TRE
 
 “**Thưa ngài Nāgasena, điều mà ngài nói là: ‘Một tính chất của cây tre nên được hành trì,’ một tính chất nên được hành trì ấy là điều nào?**”
 
@@ -13,9 +11,3 @@ I. PHẨM LỪA:
 ‘_Sau khi luôn luôn tuân theo Giáo Pháp của đức Phật gồm chín thể loại, sau khi duy trì các điều cho phép và không bị chê bai, tôi đã vượt lên trên chốn đọa đày.’_”
 
 Câu hỏi về tính chất của cây tre là thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

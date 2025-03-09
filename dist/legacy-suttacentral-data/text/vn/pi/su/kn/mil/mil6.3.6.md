@@ -1,10 +1,8 @@
- 
-
 MILINDA VẤN ĐẠO
 
 III. PHẨM VESSANTARA:
 
-# 6\. CÂU HỎI VỀ VIỆC CHẾT KHÔNG ĐÚNG THỜI
+# 6. CÂU HỎI VỀ VIỆC CHẾT KHÔNG ĐÚNG THỜI
 
 “**Thưa ngài Nāgasena, các chúng sanh chết đi, tất cả bọn họ đều chết đúng thời, hay là cũng có chết không đúng thời?”**
 
@@ -167,9 +165,3 @@ Tâu đại vương, có phải ngài đã được nghe trước đây là khi 
 Thưa ngài Nāgasena, cho dầu chỉ cần với một ví dụ thôi, thậm chí người có tâm lơ đễnh cũng có thể đi đến kết luận là ‘có sự chết không đúng thời,’ vậy thì còn có điều gì nữa với người có tâm tư? Thưa ngài, chỉ với ví dụ đầu tiên thì trẫm đã hiểu được là: ‘Có sự chết không đúng thời.’ Tuy nhiên, là người có ước muốn được nghe sự giải quyết theo tuần tự nên trẫm đã không chấp nhận.”
 
 Câu hỏi về việc chết không đúng thời là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: [http://tamtangpaliviet.net/](http://tamtangpaliviet.net/).
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.
