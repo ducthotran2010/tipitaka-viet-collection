@@ -1,8 +1,6 @@
- 
-
 Trường Bộ Kinh
 
-# 1\. Kinh Phạm võng
+# 1. Kinh Phạm võng
 
 ## [Tụng phẩm thứ nhất](#toc)
 
@@ -12,21 +10,21 @@ Rồi Thế Tôn đến nghỉ một đêm tại Ambalatthikà, nhà nghỉ mát
 
 Và khi đêm vừa mới tàn, một số lớn chư Tăng, sau khi thức dậy, đã ngồi họp tại một gian nhà hình tròn và câu chuyện sau đây được bàn đến giữa chư Tăng.
 
-\- Này các Hiền giả, thật kỳ diệu thay! Này các Hiền giả, thật hy hữu thay! Thế Tôn, đấng Toàn Tri, Toàn Kiến, đấng A-la-hán, bậc Chánh Ðẳng Giác, đã thấu hiểu sự xu hướng sai khác của chúng sanh. Suppiya, kẻ du sĩ ngoại đạo này dùng vô số phương tiện hủy báng Phật, hủy báng Pháp, hủy báng Tăng. Còn đệ tử du sĩ ngoại đạo Suppiya, thanh niên Brahmadatta lại dùng vô số phương tiện, tán thán Phật, tán thán Pháp, tán thán Tăng. Như vậy cả hai thầy trò đã nói những lời hoàn toàn tương phản trong khi đi sau lưng Thế Tôn và chúng Tỷ-kheo.
+- Này các Hiền giả, thật kỳ diệu thay! Này các Hiền giả, thật hy hữu thay! Thế Tôn, đấng Toàn Tri, Toàn Kiến, đấng A-la-hán, bậc Chánh Ðẳng Giác, đã thấu hiểu sự xu hướng sai khác của chúng sanh. Suppiya, kẻ du sĩ ngoại đạo này dùng vô số phương tiện hủy báng Phật, hủy báng Pháp, hủy báng Tăng. Còn đệ tử du sĩ ngoại đạo Suppiya, thanh niên Brahmadatta lại dùng vô số phương tiện, tán thán Phật, tán thán Pháp, tán thán Tăng. Như vậy cả hai thầy trò đã nói những lời hoàn toàn tương phản trong khi đi sau lưng Thế Tôn và chúng Tỷ-kheo.
 
 Lúc bấy giờ Thế Tôn được biết câu chuyện đang bàn giữa chư Tăng, liền đến tại gian nhà hình tròn và ngồi xuống trên chỗ đã soạn sẵn. Sau khi ngồi xuống, Thế Tôn nói với các vị Tỷ-Kheo:
 
-\- Này các Tỷ-kheo, câu chuyện gì được bàn đến trong khi các ngươi ngồi họp tại chỗ này? Vấn đề gì đã được bỏ dở chưa nói xong?
+- Này các Tỷ-kheo, câu chuyện gì được bàn đến trong khi các ngươi ngồi họp tại chỗ này? Vấn đề gì đã được bỏ dở chưa nói xong?
 
 Nghe nói như vậy, các Tỷ-kheo bạch Thế Tôn
 
 —Bạch Thế Tôn! Tại đây, khi đêm vừa mới tàn, chúng con sau khi dậy, ngồi họp tại nơi gian nhà hình tròn và giữa chúng con, câu chuyện sau đây được bàn đến: “Này các Hiền giả, thật kỳ diệu thay! Này các Hiền giả, thật hy hữu thay! Thế Tôn, đấng Toàn Tri, Toàn Kiến, đấng A-la-hán, bậc Chánh Ðẳng Giác, đã thấu hiểu sự xu hướng sai khác của chúng sanh. Suppiya, kẻ du sĩ ngoại đạo này dùng vô số phương tiện hủy báng Phật, hủy báng Pháp, hủy báng Tăng. Còn đệ tử du sĩ ngoại đạo Suppiya, thanh niên Brahmadatta lại dùng vô số phương tiện, tán thán Phật, tán thán Pháp, tán thán Tăng. Như vậy cả hai thầy trò đã nói những lời hoàn toàn tương phản trong khi đi sau lưng Thế Tôn và chúng Tỷ-kheo”. Bạch Thế Tôn, đó là câu chuyện đang bàn đến nửa chừng của chúng con khi Thế Tôn đến!
 
-\- Này các Tỷ-kheo, nếu có người hủy báng Ta, hủy báng Pháp hay hủy báng Tăng, các ngươi chớ có vì vậy sanh lòng công phẫn, tức tối, tâm sanh phiền muộn. Này các Tỷ-kheo, nếu có người hủy báng Ta, hủy báng Pháp hay hủy báng Tăng, và nếu các ngươi sanh lòng công phẫn, tức tối, tâm sanh phiền muộn, thời như vậy sẽ có hại cho các ngươi. Nếu có người hủy báng Ta, hủy báng Pháp hay hủy báng Tăng, và nếu các ngươi công phẫn và phiền muộn, thời các ngươi có thể biết được lời nói của những kẻ ấy là đúng hay sai lạc chăng?
+- Này các Tỷ-kheo, nếu có người hủy báng Ta, hủy báng Pháp hay hủy báng Tăng, các ngươi chớ có vì vậy sanh lòng công phẫn, tức tối, tâm sanh phiền muộn. Này các Tỷ-kheo, nếu có người hủy báng Ta, hủy báng Pháp hay hủy báng Tăng, và nếu các ngươi sanh lòng công phẫn, tức tối, tâm sanh phiền muộn, thời như vậy sẽ có hại cho các ngươi. Nếu có người hủy báng Ta, hủy báng Pháp hay hủy báng Tăng, và nếu các ngươi công phẫn và phiền muộn, thời các ngươi có thể biết được lời nói của những kẻ ấy là đúng hay sai lạc chăng?
 
-\- Bạch Thế Tôn, không thể được!
+- Bạch Thế Tôn, không thể được!
 
-\- Này các Tỷ-kheo, khi có người hủy báng Ta, hủy báng Pháp hay hủy báng Tăng, các ngươi phải nói rõ những điểm không đúng sự thật là không đúng sự thật: “Như thế này, điểm này không đúng sự thật; như thế này, điểm này không chính xác; việc này không có giữa chúng tôi; việc này không xảy ra giữa chúng tôi”.
+- Này các Tỷ-kheo, khi có người hủy báng Ta, hủy báng Pháp hay hủy báng Tăng, các ngươi phải nói rõ những điểm không đúng sự thật là không đúng sự thật: “Như thế này, điểm này không đúng sự thật; như thế này, điểm này không chính xác; việc này không có giữa chúng tôi; việc này không xảy ra giữa chúng tôi”.
 
 Này các Tỷ-kheo, nếu có người tán thán Ta, tán thán Pháp, hay tán thán Tăng, thời các ngươi không nên hoan hỷ, vui mừng, tâm không nên thích thú. Này các Tỷ-kheo, nếu có người tán thán ta, tán thán Pháp hay tán thán Tăng, mà nếu các ngươi hoan hỷ, vui mừng và thích thú thời sẽ có hại cho các ngươi. Này các Tỷ-kheo, nếu có người tán thán Ta, tán thán Pháp hay tán thán Tăng, thời các ngươi hãy công nhận những gì đúng sự thật là đúng sự thật: “Như thế này, điểm này đúng sự thật, như thế này, điểm này chính xác, việc này có giữa chúng tôi, việc này đã xảy ra giữa chúng tôi”.
 
@@ -78,11 +76,11 @@ Trong khi một số Sa-môn, Bà-la-môn, dầu đã dùng các món ăn do tí
 
 Trong khi một số Sa-môn, Bà-la-môn, dầu đã dùng các món ăn do tín thí cúng dường, vẫn còn nuôi sống mình bằng những tà mạng như xem tướng các hòn ngọc, tướng que gậy, tướng áo quần, tướng gươm kiếm, tướng mũi tên, tướng cây cung, tướng võ khí, tướng đàn bà, tướng đàn ông, tướng thiếu niên, tướng thiếu nữ, tướng đầy tớ nam, tường đầy tớ nữ, tướng voi, tướng ngựa, tướng trâu, tướng bò đực, tướng bò cái, tướng dê, tướng cừu, tướng gia cầm, tướng chim cun cút, tướng con cắc kè, tướng vật tai dài, tướng ma, tướng thú vật. Còn Sa-môn Gotama thì từ bỏ những tà mạng kể trên.
 
-\- Này các Tỷ-kheo, như vậy kẻ phàm phu tán thán Như Lai.
+- Này các Tỷ-kheo, như vậy kẻ phàm phu tán thán Như Lai.
 
 Trong khi một số Sa-môn, Bà-la-môn, dầu đã dùng các món ăn do tín thí cúng dường, vẫn còn tự nuôi sống bằng những tà mạng như đoán trước: Vua sẽ tiến quân, vua sẽ lui quân; vua bản xứ sẽ tấn công, vua ngoại bang sẽ triệt thối; vua ngoại bang sẽ tấn công, vua bản xứ sẽ triệt thối; vua bản xứ sẽ thắng trận, vua ngoại bang sẽ bại trận; vua ngoại bang sẽ thắng trận, vua bản xứ sẽ bại trận. Như vậy sẽ có sự thắng trận cho phe bên này, sẽ có sự thất bại cho phe bên kia. Còn Sa-môn Gotama thì từ bỏ những tà mạng kể trên.
 
-\- Này các Tỷ-kheo, như vậy kẻ phàm phu tán thán Như Lai.
+- Này các Tỷ-kheo, như vậy kẻ phàm phu tán thán Như Lai.
 
 Trong khi một số Sa-môn, Bà-la-môn, dầu đã dùng các món ăn do tín thí cúng dường, vẫn còn tự nuôi sống bằng những tà mạng như đoán trước sẽ có nguyệt thực, sẽ có nhựt thực, sẽ có tinh thực; mặt trăng, mặt trời sẽ đi đúng chánh đạo, mặt trăng, mặt trời sẽ đi ngoài chánh đạo, các tinh tú sẽ đi đúng chánh đạo, các tinh tú sẽ đi ngoài chánh đạo, sẽ có sao băng, sẽ có lửa cháy các phương hướng, sẽ có động đất, sẽ có sấm trời, mặt trăng, mặt trời, các sao sẽ mọc, sẽ lặn, sẽ mờ, sẽ sáng, nguyệt thực sẽ có kết quả như thế này, nhựt thực sẽ có kết quả như thế này, tinh thực sẽ có kết quả như thế này, mặt trăng mặt trời đi đúng chánh đạo sẽ có kết quả như thế này, mặt trăng mặt trời đi ngoài chánh đạo sẽ có kết quả như thế này, các tinh tú đi đúng chánh đạo sẽ có kết quả như thế này, sao băng sẽ có kết quả như thế này, lửa cháy các phương hướng sẽ có kết quả như thế này, động đất sẽ có những kết quả như thế này, sấm trời sẽ có kết quả như thế này, mặt trăng, mặt trời, các sao mọc, lặn, mờ, sáng, sẽ có kết quả như thế này. Còn Sa-môn Gotama thì tránh xa, không tự nuôi sống bằng những tà mạng kể trên.—Này các Tỷ-kheo, như vậy kẻ phàm phu tán thán Như Lai.
 
@@ -428,15 +426,6 @@ Khi nghe nói vậy, đại đức Ānanda bạch đức Thế Tôn
 
 —Kỳ diệu thay, bạch Thế Tôn! Hy hữu thay, bạch Thế Tôn! Pháp môn này gọi là gì, bạch Thế Tôn?
 
-\- Này Ānanda, pháp môn này gọi là “Lợi Võng”, hãy như vậy mà phụng trì; gọi là “Pháp Võng”, hãy như vậy mà phụng trì; gọi là “Phạm Võng”, hãy như vậy mà phụng trì; gọi là “Kiếm Võng”, hãy như vậy mà phụng trì; gọi là “Vô thượng Chiến thắng”, hãy như vậy mà phụng trì.
+- Này Ānanda, pháp môn này gọi là “Lợi Võng”, hãy như vậy mà phụng trì; gọi là “Pháp Võng”, hãy như vậy mà phụng trì; gọi là “Phạm Võng”, hãy như vậy mà phụng trì; gọi là “Kiếm Võng”, hãy như vậy mà phụng trì; gọi là “Vô thượng Chiến thắng”, hãy như vậy mà phụng trì.
 
 Thế Tôn thuyết như vậy. Các Tỷ-kheo ấy hoan hỷ tín thọ lời Thế Tôn dạy. Trong khi kinh này được truyền thuyết, một ngàn thế giới đều rung động.
-
-Hòa thượng Thích Minh Châu dịch Việt
-
-Chân thành cám ơn anh HDC và nhóm Phật tử VH đã có thiện tâm gửi tặng ấn bản điện tử.  
-(Bình Anson hiệu đính, dựa theo bản Anh ngữ “The Long Discourses of the Buddha”, Maurice Walshe dịch, 1987).
-
-Hiệu đính: **15–06–2007**
-
-Prepared for SuttaCentral by Blake Walsh.

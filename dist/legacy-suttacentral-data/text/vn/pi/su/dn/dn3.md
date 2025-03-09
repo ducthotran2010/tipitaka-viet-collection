@@ -1,8 +1,6 @@
- 
-
 Trường Bộ Kinh
 
-# 3\. Kinh Ambaṭṭha (A-ma-trú)
+# 3. Kinh Ambaṭṭha (A-ma-trú)
 
 ## [](#toc)[Tụng phẩm thứ nhất](#toc)
 
@@ -16,11 +14,11 @@ Lúc bấy giờ, thanh niên Ambaṭṭha (A-ma-trú) là đệ tử của Bà-
 
 Lúc bấy giờ Bà-la-môn Pokkharasāti nói với thanh niên Ambaṭṭha: “Này Ambaṭṭha thân yêu, Sa-môn Gotama là Thích tử, xuất gia từ dòng họ Thích ca, nay đang du hành tại nước Kosala, cùng với đại chúng Tỷ-kheo khoảng năm trăm vị, đã đến tại Icchànankala trú tại Icchànankala. Những tiếng đồn tốt đẹp sau đây được truyền đi về Sa-môn Gotama: “Ngài là bậc Thế Tôn, A-la-hán, Chánh Ðẳng Giác, … Phật, Thế Tôn. Ngài đã chứng ngộ thế giới này với Thiên giới, Ma giới, Phạm thiên giới, với các chúng Sa-môn, Bà-la-môn, chư Thiên và loài Người, tự chứng ngộ rồi hiển thị cho mọi loài được biết. Ngài thuyết pháp, sơ thiện, trung thiện, hậu thiện, nghĩa văn đầy đủ, trình bày phạm hạnh hoàn toàn đầy đủ, thanh tịnh. Nếu được yết kiến một vị A-la-hán như vậy thì rất quý”. Này Ambaṭṭha thân yêu, hãy đi đến gặp Sa-môn Gotama, và tìm hiểu lời đồn về Tôn giả Gotama là như vậy hay không phải như vậy. Nhờ vậy, chúng ta sẽ được biết về Tôn giả Gotama”.
 
-\- Làm thế nào con được biết về Tôn giả Gotama, được biết lời đồn về Tôn giả Gotama như vậy là đúng hay không, có phải Tôn giả Gotama là như vậy, hay không phải như vậy?
+- Làm thế nào con được biết về Tôn giả Gotama, được biết lời đồn về Tôn giả Gotama như vậy là đúng hay không, có phải Tôn giả Gotama là như vậy, hay không phải như vậy?
 
-\- Ambaṭṭha thân yêu, theo truyền thống của chúng ta về ba mươi hai tướng của vị đại nhân, những ai có ba mươi hai tướng ấy sẽ chọn trong hai con đường, không có đường nào khác. Nếu là tại gia, sẽ thành vị Chuyển luân Thánh vương chinh phục mọi quốc độ, đầy đủ bảy châu báu. Bảy món báu này là xe báu, voi báu, ngựa báu, ma ni báu, ngọc nữ báu, cư sĩ báu và thứ bảy là tướng quân báu. Và vị này có hơn một ngàn con trai, là những vị anh hùng, oai phong lẫm liệt, chiến thắng ngoại quân. Vị này sống, thống lãnh quả đất cùng tận cho đến đại dương, và trị vì với chánh pháp, không dùng gậy, không dùng dao. Nếu vị này xuất gia, từ bỏ gia đình, sống không gia đình, vị này sẽ chứng quả A-la-hán, Chánh Ðẳng Giác, quét sạch mê lầm ở đời. Này Ambaṭṭha thân yêu, ta đã cho con chú thuật. Con đã nhận những chú thuật ấy.
+- Ambaṭṭha thân yêu, theo truyền thống của chúng ta về ba mươi hai tướng của vị đại nhân, những ai có ba mươi hai tướng ấy sẽ chọn trong hai con đường, không có đường nào khác. Nếu là tại gia, sẽ thành vị Chuyển luân Thánh vương chinh phục mọi quốc độ, đầy đủ bảy châu báu. Bảy món báu này là xe báu, voi báu, ngựa báu, ma ni báu, ngọc nữ báu, cư sĩ báu và thứ bảy là tướng quân báu. Và vị này có hơn một ngàn con trai, là những vị anh hùng, oai phong lẫm liệt, chiến thắng ngoại quân. Vị này sống, thống lãnh quả đất cùng tận cho đến đại dương, và trị vì với chánh pháp, không dùng gậy, không dùng dao. Nếu vị này xuất gia, từ bỏ gia đình, sống không gia đình, vị này sẽ chứng quả A-la-hán, Chánh Ðẳng Giác, quét sạch mê lầm ở đời. Này Ambaṭṭha thân yêu, ta đã cho con chú thuật. Con đã nhận những chú thuật ấy.
 
-\- Thưa vâng.
+- Thưa vâng.
 
 Thanh niên Ambaṭṭha vâng theo lời của Bà-la-môn Pokkharasāti, từ chỗ ngồi đứng dậy, đảnh lễ Bà-la-môn Pokkharasāti, hướng thân về phía hữu, cỡi xe ngựa cái và cùng một số đông thanh niên khác đi đến khu rừng Icchànankala. Ði xe đến chỗ không còn đi được xe, Ambaṭṭha liền xuống xe đi bộ và đến tại tịnh xá.
 
@@ -34,9 +32,9 @@ Lúc bấy giờ Thế Tôn nói với thanh niên Ambaṭṭha
 
 —Có phải, đối với các bậc Bà-la-môn trưởng lão, đứng tuổi, các bậc giáo sư và tổ sư, ngươi cũng nói chuyện như vậy, như ngươi đã đi qua lại thốt ra những lời hỏi thăm nhát gừng trong khi Ta đang ngồi, hay đứng lại thốt ra những lời hỏi thăm nhát gừng trong khi Ta đang ngồi?
 
-\- Không phải vậy, này Gotama. Phải đi mà nói chuyện với một vị Bà-la-môn, này Gotama, nếu vị ấy đang đi. Phải đứng mà nói chuyện với một vị Bà-la-môn, này Gotama, nếu vị ấy đang đứng. Phải ngồi mà nói chuyện với một vị Bà-la-môn, này Gotama, nếu vị ấy đang ngồi. Phải nằm mà nói chuyện với một vị Bà-la-môn, này Gotama, nếu vị ấy đang nằm. Chỉ với những vị Sa-môn hèn hạ, trọc đầu, đê tiện, đen đủi, sanh từ nơi chân của bà con ta, thì ta mới nói chuyện như vậy, như với ngươi, Gotama”.
+- Không phải vậy, này Gotama. Phải đi mà nói chuyện với một vị Bà-la-môn, này Gotama, nếu vị ấy đang đi. Phải đứng mà nói chuyện với một vị Bà-la-môn, này Gotama, nếu vị ấy đang đứng. Phải ngồi mà nói chuyện với một vị Bà-la-môn, này Gotama, nếu vị ấy đang ngồi. Phải nằm mà nói chuyện với một vị Bà-la-môn, này Gotama, nếu vị ấy đang nằm. Chỉ với những vị Sa-môn hèn hạ, trọc đầu, đê tiện, đen đủi, sanh từ nơi chân của bà con ta, thì ta mới nói chuyện như vậy, như với ngươi, Gotama”.
 
-\- Này Ambaṭṭha, hình như ngươi đến đây với một ý định gì? Ngươi hãy khéo tác ý đến mục đích đã đưa ngươi đến đây. Thanh niên Ambaṭṭha này thật vô giáo dục, dầu nó tự cho là có giáo dục. Như vậy là vô giáo dục, có gì khác nữa!
+- Này Ambaṭṭha, hình như ngươi đến đây với một ý định gì? Ngươi hãy khéo tác ý đến mục đích đã đưa ngươi đến đây. Thanh niên Ambaṭṭha này thật vô giáo dục, dầu nó tự cho là có giáo dục. Như vậy là vô giáo dục, có gì khác nữa!
 
 Thanh niên Ambaṭṭha bị Thế Tôn gọi là vô giáo dục như vậy, liền phẫn nộ, tức tối, muốn nhục mạ Thế Tôn, phỉ báng Thế Tôn, công kích Thế Tôn, và nghĩ: “Sa-môn Gotama có ác ý đối với ta”, liền nói với Thế Tôn
 
@@ -44,15 +42,15 @@ Thanh niên Ambaṭṭha bị Thế Tôn gọi là vô giáo dục như vậy, l
 
 Như vậy, thanh niên Ambaṭṭha lần đầu tiên đã buộc tội dòng họ Thích ca là đê tiện..
 
-\- Này Ambaṭṭha, dòng họ Thích ca đã làm gì phật lòng ngươi?
+- Này Ambaṭṭha, dòng họ Thích ca đã làm gì phật lòng ngươi?
 
-\- Này Gotama, một thời ta đi đến Kapilavatthu (Ca-tỳ-la-vệ) có việc phải làm cho thầy ta là Bà-la-môn Pokkharasāti, và đến tại công hội trường của dòng họ Thích. Lúc bấy giờ một số đông dòng họ Thích ca và thanh niên Thích ca đang ngồi trên ghế cao tại công hội trường. Chúng cười với nhau, dùng ngón tay thọc cù nôn với nhau, ta nghĩ chắc chắn ta là mục tiêu cho chúng đùa giỡn với nhau, lại không ai mời ta ngồi. Này Gotama, như vậy thật không phải lẽ, thật không đúng pháp, khi chúng Thích ca này là những hạng đê tiện, thuộc thành phần đê tiện lại không kính nhường Bà-la-môn, không cung kính Bà-la-môn, không lễ bái Bà-la-môn, không cúng dường Bà-la-môn, không tôn trọng Bà-la-môn.
+- Này Gotama, một thời ta đi đến Kapilavatthu (Ca-tỳ-la-vệ) có việc phải làm cho thầy ta là Bà-la-môn Pokkharasāti, và đến tại công hội trường của dòng họ Thích. Lúc bấy giờ một số đông dòng họ Thích ca và thanh niên Thích ca đang ngồi trên ghế cao tại công hội trường. Chúng cười với nhau, dùng ngón tay thọc cù nôn với nhau, ta nghĩ chắc chắn ta là mục tiêu cho chúng đùa giỡn với nhau, lại không ai mời ta ngồi. Này Gotama, như vậy thật không phải lẽ, thật không đúng pháp, khi chúng Thích ca này là những hạng đê tiện, thuộc thành phần đê tiện lại không kính nhường Bà-la-môn, không cung kính Bà-la-môn, không lễ bái Bà-la-môn, không cúng dường Bà-la-môn, không tôn trọng Bà-la-môn.
 
 Như vậy thanh niên Ambaṭṭha lần thứ hai đã buộc tội dòng họ Thích ca là đê tiện.
 
-\- Này Ambaṭṭha, cũng như con chim cáy, con chim cáy con có thể tự hát thỏa thích trong tổ của nó. Này Ambaṭṭha, Kapilavatthu thuộc dòng họ Thích ca. Thật không xứng để cho Ambaṭṭha phải phật lòng vì một vấn đề nhỏ mọn này.
+- Này Ambaṭṭha, cũng như con chim cáy, con chim cáy con có thể tự hát thỏa thích trong tổ của nó. Này Ambaṭṭha, Kapilavatthu thuộc dòng họ Thích ca. Thật không xứng để cho Ambaṭṭha phải phật lòng vì một vấn đề nhỏ mọn này.
 
-\- Này Gotama, có bốn giai cấp: Sát đế lỵ, Bà-la-môn, Phệ-xá và Thủ-đà-la. Này Gotama, trong bốn giai cấp này, ba giai cấp Sát-đế-lỵ, Phệ-xá và Thủ-đà-la là để hầu hạ hạng Bà-la-môn. Này Gotama, như vậy thật không phải lẽ, thật không đúng pháp khi chúng Thích-ca này là những hạng đê tiện, thuộc thành phần đê tiện, lại không kính nhường Bà-la-môn, không cung kính Bà-la-môn, không lễ bái Bà-la-môn, không tôn trọng Bà-la-môn.
+- Này Gotama, có bốn giai cấp: Sát đế lỵ, Bà-la-môn, Phệ-xá và Thủ-đà-la. Này Gotama, trong bốn giai cấp này, ba giai cấp Sát-đế-lỵ, Phệ-xá và Thủ-đà-la là để hầu hạ hạng Bà-la-môn. Này Gotama, như vậy thật không phải lẽ, thật không đúng pháp khi chúng Thích-ca này là những hạng đê tiện, thuộc thành phần đê tiện, lại không kính nhường Bà-la-môn, không cung kính Bà-la-môn, không lễ bái Bà-la-môn, không tôn trọng Bà-la-môn.
 
 Như vậy, thanh niên Ambaṭṭha lần thứ ba đã buộc tội dòng họ Thích ca là đê tiện.
 
@@ -60,13 +58,13 @@ Lúc bấy giờ Thế Tôn nghĩ: “Thanh niên Ambaṭṭha này đã phỉ b
 
 —Dòng họ ngươi là gì?
 
-\- Này Gotama, dòng họ ta là Kaṇhāyana.
+- Này Gotama, dòng họ ta là Kaṇhāyana.
 
-\- Này Ambaṭṭha, nếu theo phụ mẫu hệ của ngươi về quá khứ, thời dòng họ Thích ca là thầy của ngươi. Và ngươi là con của một nữ tỳ của dòng họ Thích ca. Này thanh niên Ambaṭṭha, tổ tiên của Thích ca là vua Okkāka. Thuở xưa, này Ambaṭṭha, vua Okkāka muốn trao vương vị cho hoàng tử con bà hoàng hậu chính mà vua thương yêu, bèn đuổi ra khỏi nước những người con đầu của mình là Okkāmukha, Karaṇḍu, Hatthiniya, Sinipura. Bị tẩn xuất khỏi nước, những hoàng tử này đến sống tại một khu rừng lớn bên một hồ nước, trên sườn núi Hy-mã-lạp sơn. Vì sợ huyết thống của mình bị lẫn lộn với huyết thống khác, các vị hoàng tử này ăn nằm với những người chị của mình.
+- Này Ambaṭṭha, nếu theo phụ mẫu hệ của ngươi về quá khứ, thời dòng họ Thích ca là thầy của ngươi. Và ngươi là con của một nữ tỳ của dòng họ Thích ca. Này thanh niên Ambaṭṭha, tổ tiên của Thích ca là vua Okkāka. Thuở xưa, này Ambaṭṭha, vua Okkāka muốn trao vương vị cho hoàng tử con bà hoàng hậu chính mà vua thương yêu, bèn đuổi ra khỏi nước những người con đầu của mình là Okkāmukha, Karaṇḍu, Hatthiniya, Sinipura. Bị tẩn xuất khỏi nước, những hoàng tử này đến sống tại một khu rừng lớn bên một hồ nước, trên sườn núi Hy-mã-lạp sơn. Vì sợ huyết thống của mình bị lẫn lộn với huyết thống khác, các vị hoàng tử này ăn nằm với những người chị của mình.
 
-\- Này Ambaṭṭha, một hôm vua Okkāka nói với vị đại thần tùy tùng: “Này các khanh, các hoàng tử hiện nay ở đâu?”: “Bạch Ðại vương, có một khu rừng lớn, bên một hồ nước trên sườn núi Hy-mã-lạp-sơn. Nay các hoàng tử ở tại chỗ ấy. Các hoàng tử, vì sợ huyết thống của mình lẫn lộn huyết thống khác nên ăn nằm với những người chị của mình”.
+- Này Ambaṭṭha, một hôm vua Okkāka nói với vị đại thần tùy tùng: “Này các khanh, các hoàng tử hiện nay ở đâu?”: “Bạch Ðại vương, có một khu rừng lớn, bên một hồ nước trên sườn núi Hy-mã-lạp-sơn. Nay các hoàng tử ở tại chỗ ấy. Các hoàng tử, vì sợ huyết thống của mình lẫn lộn huyết thống khác nên ăn nằm với những người chị của mình”.
 
-\- Này Ambaṭṭha, vua Okkāka liền cảm hứng thốt lời tụng hân hoan: “Các hoàng tử thật là những Sakya (cứng như lõi cây sồi), các hoàng tử thật là những Sakya xuất chúng”. Này Ambaṭṭha, từ đó trở đi, các hoàng tử được gọi là Sakya và vua Okkāka là vua tổ của dòng họ Thích-ca. Này Ambaṭṭha, vua ấy có một nữ tỳ tên là Disà. Nữ tỳ này sinh hạ một người con da đen. Vừa mới sinh, Kaṇha liền nói: “Này mẹ, hãy rửa cho con; này mẹ hãy tắm cho con; này mẹ hãy gội sạch đồ bất tịnh này. Và con sẽ giúp ích cho mẹ”. Này Ambaṭṭha, vì người ta gọi những ác quỷ là ác quỷ nên người ta cũng gọi Kanhà là ác quỷ. Chúng nói như thế này: “Ðứa trẻ này, vừa mới sanh đã nói. Một Kaṇha vừa mới sanh”. Này Ambaṭṭha, từ đó trở đi chữ Kanhàyanà được biết đến. Và Kaṇha là tổ phụ của dòng họ Kaṇhāyana. Này Ambaṭṭha, nếu theo phụ mẫu hệ của ngươi về quá khứ, thời dòng họ Thích-ca là thầy của ngươi, và ngươi là con một nữ tỳ của dòng họ Thích ca.
+- Này Ambaṭṭha, vua Okkāka liền cảm hứng thốt lời tụng hân hoan: “Các hoàng tử thật là những Sakya (cứng như lõi cây sồi), các hoàng tử thật là những Sakya xuất chúng”. Này Ambaṭṭha, từ đó trở đi, các hoàng tử được gọi là Sakya và vua Okkāka là vua tổ của dòng họ Thích-ca. Này Ambaṭṭha, vua ấy có một nữ tỳ tên là Disà. Nữ tỳ này sinh hạ một người con da đen. Vừa mới sinh, Kaṇha liền nói: “Này mẹ, hãy rửa cho con; này mẹ hãy tắm cho con; này mẹ hãy gội sạch đồ bất tịnh này. Và con sẽ giúp ích cho mẹ”. Này Ambaṭṭha, vì người ta gọi những ác quỷ là ác quỷ nên người ta cũng gọi Kanhà là ác quỷ. Chúng nói như thế này: “Ðứa trẻ này, vừa mới sanh đã nói. Một Kaṇha vừa mới sanh”. Này Ambaṭṭha, từ đó trở đi chữ Kanhàyanà được biết đến. Và Kaṇha là tổ phụ của dòng họ Kaṇhāyana. Này Ambaṭṭha, nếu theo phụ mẫu hệ của ngươi về quá khứ, thời dòng họ Thích-ca là thầy của ngươi, và ngươi là con một nữ tỳ của dòng họ Thích ca.
 
 Khi Thế Tôn nói vậy, những thanh niên nói với Thế Tôn
 
@@ -74,9 +72,9 @@ Khi Thế Tôn nói vậy, những thanh niên nói với Thế Tôn
 
 Thế Tôn liền nói với những thanh niên ấy.
 
-\- Nếu những thanh niên các ngươi nghĩ: “Thanh niên Ambaṭṭha không được sanh vào quý tộc, thanh niên Ambaṭṭha không thuộc con nhà danh giá, thanh niên Ambaṭṭha không phải là bậc đa văn, thanh niên Ambaṭṭha không phải là nhà hùng biện giỏi, thanh niên Ambaṭṭha không phải là nhà bác học, thanh niên Ambaṭṭha không thể biện luận với Tôn giả Gotama về vấn đề này”, thời thanh niên Ambaṭṭha hãy đứng ra một bên và để các thanh niên biện luận với Ta về vấn đề này. Nếu các ngươi nghĩ: “Thanh niên Ambaṭṭha được sanh vào quý tộc, thanh niên Ambaṭṭha thuộc con nhà danh giá, thanh niên Ambaṭṭha là bậc đa văn, thanh niên Ambaṭṭha là nhà hùng biện giỏi, thanh niên Ambaṭṭha là nhà bác học, thanh niên Ambaṭṭha có thể biện luận với Gotama về vấn đề này”, thời các ngươi hãy đứng ra một bên và để thanh niên Ambaṭṭha biện luận với ta về vấn đề này.
+- Nếu những thanh niên các ngươi nghĩ: “Thanh niên Ambaṭṭha không được sanh vào quý tộc, thanh niên Ambaṭṭha không thuộc con nhà danh giá, thanh niên Ambaṭṭha không phải là bậc đa văn, thanh niên Ambaṭṭha không phải là nhà hùng biện giỏi, thanh niên Ambaṭṭha không phải là nhà bác học, thanh niên Ambaṭṭha không thể biện luận với Tôn giả Gotama về vấn đề này”, thời thanh niên Ambaṭṭha hãy đứng ra một bên và để các thanh niên biện luận với Ta về vấn đề này. Nếu các ngươi nghĩ: “Thanh niên Ambaṭṭha được sanh vào quý tộc, thanh niên Ambaṭṭha thuộc con nhà danh giá, thanh niên Ambaṭṭha là bậc đa văn, thanh niên Ambaṭṭha là nhà hùng biện giỏi, thanh niên Ambaṭṭha là nhà bác học, thanh niên Ambaṭṭha có thể biện luận với Gotama về vấn đề này”, thời các ngươi hãy đứng ra một bên và để thanh niên Ambaṭṭha biện luận với ta về vấn đề này.
 
-\- Này Gotama, thanh niên Ambaṭṭha được sanh vào quý tộc, thanh niên Ambaṭṭha thuộc con nhà danh giá, thanh niên Ambaṭṭha là bậc đa văn, thanh niên Ambaṭṭha là nhà hùng biện giỏi, thanh niên Ambaṭṭha là nhà bác học, thanh niên Ambaṭṭha có thể biện luận với Tôn giả Gotama về vấn đề này. Chúng tôi sẽ đứng im lặng. Thanh niên Ambaṭṭha sẽ cùng với Gotama biện luận về vấn đề này.
+- Này Gotama, thanh niên Ambaṭṭha được sanh vào quý tộc, thanh niên Ambaṭṭha thuộc con nhà danh giá, thanh niên Ambaṭṭha là bậc đa văn, thanh niên Ambaṭṭha là nhà hùng biện giỏi, thanh niên Ambaṭṭha là nhà bác học, thanh niên Ambaṭṭha có thể biện luận với Tôn giả Gotama về vấn đề này. Chúng tôi sẽ đứng im lặng. Thanh niên Ambaṭṭha sẽ cùng với Gotama biện luận về vấn đề này.
 
 Thế Tôn liền nói với thanh niên Ambaṭṭha
 
@@ -94,9 +92,9 @@ Lúc bấy giờ, thần Dạ xoa Vajirapānī đang cầm một chùy sắt to 
 
 —Tôn giả Gotama đã nói gì? Mong Tôn giả Gotama nói lại cho.
 
-\- Ambaṭṭha, ngươi nghĩ thế nào? Ngươi có nghe các vị Bà-la-môn, trưởng lão, tôn túc, giáo sư và tổ sư nói đến nguồn gốc của dòng họ Kanhàyanà không? Ai là tổ phụ của dòng họ Kanhàyanà?
+- Ambaṭṭha, ngươi nghĩ thế nào? Ngươi có nghe các vị Bà-la-môn, trưởng lão, tôn túc, giáo sư và tổ sư nói đến nguồn gốc của dòng họ Kanhàyanà không? Ai là tổ phụ của dòng họ Kanhàyanà?
 
-\- Tôn giả Gotama, con đã có nghe, đúng như Tôn giả Gotama đã nói. Chính từ đó nguồn gốc của dòng họ Kanhàyanà. Vị ấy là tổ phụ của dòng họ Kanhàyanà.
+- Tôn giả Gotama, con đã có nghe, đúng như Tôn giả Gotama đã nói. Chính từ đó nguồn gốc của dòng họ Kanhàyanà. Vị ấy là tổ phụ của dòng họ Kanhàyanà.
 
 Khi nghe nói vậy, các thanh niên liền la hét lớn
 
@@ -114,102 +112,102 @@ Khi bấy giờ, Như Lai nói với thanh niên Ambaṭṭha
 
 —Ambaṭṭha, nhà ngươi nghĩ thế nào? Một thanh niên Sát-đế-lỵ cưới một thiếu nữ Bà-la-môn. Do sự sum họp ấy, một người con trai được sinh. Một người sanh từ một thanh niên Sát-đế-lỵ và một thiếu nữ Bà-la-môn có thể thọ lãnh chỗ ngồi hay nước giữa những người Bà-la-môn không?
 
-\- Tôn giả Gotama, có thể thọ lãnh.
+- Tôn giả Gotama, có thể thọ lãnh.
 
-\- Và những người Bà-la-môn có mời người ấy dự tiệc cúng cho người chết hay dùng món đồ ăn cúng dường, hay đồ ăn cúng cho thiên thần hay đồ ăn gửi đến như một tặng phẩm không?
+- Và những người Bà-la-môn có mời người ấy dự tiệc cúng cho người chết hay dùng món đồ ăn cúng dường, hay đồ ăn cúng cho thiên thần hay đồ ăn gửi đến như một tặng phẩm không?
 
-\- Tôn giả Gotama, có mời.
+- Tôn giả Gotama, có mời.
 
-\- Và những người Bà-la-môn có dạy các chú thuật hay không?
+- Và những người Bà-la-môn có dạy các chú thuật hay không?
 
-\- Tôn giả Gotama, có dạy.
+- Tôn giả Gotama, có dạy.
 
-\- Có đóng cửa giữa người ấy với những người đàn bà của chúng hay mở cửa?
+- Có đóng cửa giữa người ấy với những người đàn bà của chúng hay mở cửa?
 
-\- Tôn giả Gotama, mở cửa.
+- Tôn giả Gotama, mở cửa.
 
-\- Và những người Sát-đế-lỵ có quán đảnh cho người ấy để thành một Sát-đế-lỵ không?
+- Và những người Sát-đế-lỵ có quán đảnh cho người ấy để thành một Sát-đế-lỵ không?
 
-\- Tôn giả Gotama, thưa không.
+- Tôn giả Gotama, thưa không.
 
-\- Tại sao không?
+- Tại sao không?
 
-\- Vì nó không được sinh (là Sát đế lỵ) từ mẫu hệ.
+- Vì nó không được sinh (là Sát đế lỵ) từ mẫu hệ.
 
-\- Ambaṭṭha, nhà ngươi nghĩ thế nào? Ở đây một thanh niên Bà-la-môn cưới một thiếu nữ Sát-đế-lỵ. Do sự sum họp này, một người con trai được sanh. Một người sanh từ một thanh niên Bà-la-môn và một thiếu nữ Sát-đế-lỵ có thể thọ lãnh chỗ ngồi hay nước giữa những Bà-la-môn hay không?
+- Ambaṭṭha, nhà ngươi nghĩ thế nào? Ở đây một thanh niên Bà-la-môn cưới một thiếu nữ Sát-đế-lỵ. Do sự sum họp này, một người con trai được sanh. Một người sanh từ một thanh niên Bà-la-môn và một thiếu nữ Sát-đế-lỵ có thể thọ lãnh chỗ ngồi hay nước giữa những Bà-la-môn hay không?
 
-\- Tôn giả Gotama, có thể thọ lãnh.
+- Tôn giả Gotama, có thể thọ lãnh.
 
-\- Và những người Bà-la-môn có mời người ấy dự tiệc cúng cho người chết hay dùng các món ăn cúng dường, hay đồ ăn cúng theo thiên thần hay đồ ăn gửi đến như một tặng phẩm không?
+- Và những người Bà-la-môn có mời người ấy dự tiệc cúng cho người chết hay dùng các món ăn cúng dường, hay đồ ăn cúng theo thiên thần hay đồ ăn gửi đến như một tặng phẩm không?
 
-\- Tôn giả Gotama, có mời.
+- Tôn giả Gotama, có mời.
 
-\- Và những người Bà-la-môn có dạy người ấy các chú thuật không?
+- Và những người Bà-la-môn có dạy người ấy các chú thuật không?
 
-\- Tôn giả Gotama, có dạy.
+- Tôn giả Gotama, có dạy.
 
-\- Có đóng cửa giữa người ấy với những người đàn bà của chúng, hay mở cửa?
+- Có đóng cửa giữa người ấy với những người đàn bà của chúng, hay mở cửa?
 
-\- Tôn giả Gotama, chúng mở cửa.
+- Tôn giả Gotama, chúng mở cửa.
 
-\- Và những người Sát-đế-lỵ có làm lễ quán đỉnh cho người ấy để thành một Sát-đế-lỵ không?
+- Và những người Sát-đế-lỵ có làm lễ quán đỉnh cho người ấy để thành một Sát-đế-lỵ không?
 
-\- Tôn giả Gotama, thưa không.
+- Tôn giả Gotama, thưa không.
 
-\- Tại sao vậy?
+- Tại sao vậy?
 
-\- Tôn giả Gotama, vì không được sinh (là Sát đế lỵ) từ phụ hệ.
+- Tôn giả Gotama, vì không được sinh (là Sát đế lỵ) từ phụ hệ.
 
-\- Này Ambaṭṭha, nếu so sánh đàn bà với đàn bà, đàn ông với đàn ông, thì giai cấp Sát đế lỵ là ưu, Bà-la-môn là liệt. Này Ambaṭṭha, nhà ngươi nghĩ thế nào? Ở đây, giả sử do một nguyên nhân gì những người Bà-la-môn cạo đầu một người Bà-la-môn, đánh người ấy với một bị tro, tẩn xuất ngươi ấy ra khỏi nước hay thành phố. Người ấy có được thọ lãnh chỗ ngồi và nước giữa những người Bà-la-môn không?
+- Này Ambaṭṭha, nếu so sánh đàn bà với đàn bà, đàn ông với đàn ông, thì giai cấp Sát đế lỵ là ưu, Bà-la-môn là liệt. Này Ambaṭṭha, nhà ngươi nghĩ thế nào? Ở đây, giả sử do một nguyên nhân gì những người Bà-la-môn cạo đầu một người Bà-la-môn, đánh người ấy với một bị tro, tẩn xuất ngươi ấy ra khỏi nước hay thành phố. Người ấy có được thọ lãnh chỗ ngồi và nước giữa những người Bà-la-môn không?
 
-\- Tôn giả, không được.
+- Tôn giả, không được.
 
-\- Và những người Bà-la-môn, có mời người ấy dự tiệc cúng cho người chết hay dùng các món ăn cúng dường, hay đồ ăn cúng cho thiên thần hay đồ ăn gửi đến như một tặng phẩm không?
+- Và những người Bà-la-môn, có mời người ấy dự tiệc cúng cho người chết hay dùng các món ăn cúng dường, hay đồ ăn cúng cho thiên thần hay đồ ăn gửi đến như một tặng phẩm không?
 
-\- Tôn giả Gotama, không có mời.
+- Tôn giả Gotama, không có mời.
 
-\- Và những người Bà-la-môn có dạy người ấy các chú thuật không?
+- Và những người Bà-la-môn có dạy người ấy các chú thuật không?
 
-\- Tôn giả Gotama, không dạy.
+- Tôn giả Gotama, không dạy.
 
-\- Có đóng cửa giữa người ấy với những người đàn bà của chúng, hay mở cửa?
+- Có đóng cửa giữa người ấy với những người đàn bà của chúng, hay mở cửa?
 
-\- Tôn giả Gotama, đóng cửa.
+- Tôn giả Gotama, đóng cửa.
 
-\- Ambaṭṭha, nhà ngươi nghĩ thế nào? Ở đây giả sử do một nguyên nhân gì, những người Sát đế lỵ cạo đầu một người Sát đế lỵ, đánh người ấy với một bị tro, tẩn xuất người ấy ra khỏi nước hay thành phố, người ấy có được thọ lãnh chỗ ngồi và nước uống giữa những người Bà-la-môn không?
+- Ambaṭṭha, nhà ngươi nghĩ thế nào? Ở đây giả sử do một nguyên nhân gì, những người Sát đế lỵ cạo đầu một người Sát đế lỵ, đánh người ấy với một bị tro, tẩn xuất người ấy ra khỏi nước hay thành phố, người ấy có được thọ lãnh chỗ ngồi và nước uống giữa những người Bà-la-môn không?
 
-\- Tôn giả Gotama, được thọ lãnh.
+- Tôn giả Gotama, được thọ lãnh.
 
-\- Và những người Bà-la-môn có mời người ấy dự tiệc cúng cho người chết, hay dùng những món ăn cúng dường, hoặc đồ ăn cúng cho thiên thần, hay đồ ăn gửi đến như những tặng phẩm không?
+- Và những người Bà-la-môn có mời người ấy dự tiệc cúng cho người chết, hay dùng những món ăn cúng dường, hoặc đồ ăn cúng cho thiên thần, hay đồ ăn gửi đến như những tặng phẩm không?
 
-\- Tôn giả Gotama, có mời.
+- Tôn giả Gotama, có mời.
 
-\- Và những người Bà-la-môn có dạy người ấy các chú thuật không?
+- Và những người Bà-la-môn có dạy người ấy các chú thuật không?
 
-\- Tôn giả Gotama, có dạy
+- Tôn giả Gotama, có dạy
 
 —Có đóng cửa giữa người ấy với những người đàn bà của chúng, hay mở cửa?
 
-\- Tôn giả Gotama, mở cửa.
+- Tôn giả Gotama, mở cửa.
 
-\- Này Ambaṭṭha, đến như vậy là sự đọa lạc tột cùng của người Sát-đế-lỵ, đã bị những người Sát-đế-lỵ cạo đầu, đánh người ấy với một bị tro, tẩn xuất người ấy ra khỏi nước hay thành phố, như vậy, này Ambaṭṭha, khi người Sát-đế-lỵ bị đọa lạc tột cùng, các Sát đế lỵ vẫn giữ phần ưu thắng và các Bà-la-môn vẫn ở địa vị hạ liệt.
+- Này Ambaṭṭha, đến như vậy là sự đọa lạc tột cùng của người Sát-đế-lỵ, đã bị những người Sát-đế-lỵ cạo đầu, đánh người ấy với một bị tro, tẩn xuất người ấy ra khỏi nước hay thành phố, như vậy, này Ambaṭṭha, khi người Sát-đế-lỵ bị đọa lạc tột cùng, các Sát đế lỵ vẫn giữ phần ưu thắng và các Bà-la-môn vẫn ở địa vị hạ liệt.
 
-\- Này Ambaṭṭha, bài kệ này do Phạm thiên Sanam Kumāra thuyết:
+- Này Ambaṭṭha, bài kệ này do Phạm thiên Sanam Kumāra thuyết:
 
 > “Ðối với chúng sanh tin tưởng ở giai cấp, Sát-đế-lỵ chiếm địa vị tối thắng ở nhân gian.  
 > Những vị nào giới hạnh và trí tuệ đầy đủ, vị này chiếm địa vị tối thắng giữa Người và chư Thiên”.
 
 ## [](#toc)[Tụng phẩm thứ hai](#toc)
 
-\- Tôn giả Gotama, nghĩa chữ Giới hạnh trong bài kệ ấy là gì? Nghĩa chữ Tuệ trong bài kệ ấy là gì?
+- Tôn giả Gotama, nghĩa chữ Giới hạnh trong bài kệ ấy là gì? Nghĩa chữ Tuệ trong bài kệ ấy là gì?
 
-\- Này Ambaṭṭha, một vị đã thành tựu vô thượng trí đức không có luận nghị đến sự thọ sanh, không có luận nghị đến giai cấp hay không có luận nghị đến ngã mạn với lời nói: “Ngươi bằng ta hay ngươi không bằng ta”. Chỗ nào nói đến cưới hỏi hay rước dâu đi, hay cả hai, chỗ đó mới có luận nghị đến sự thọ sanh, luận nghị đến giai cấp hay luận nghị đến ngã mạn với lời nói: “Ngươi bằng ta hay không bằng ta”.
+- Này Ambaṭṭha, một vị đã thành tựu vô thượng trí đức không có luận nghị đến sự thọ sanh, không có luận nghị đến giai cấp hay không có luận nghị đến ngã mạn với lời nói: “Ngươi bằng ta hay ngươi không bằng ta”. Chỗ nào nói đến cưới hỏi hay rước dâu đi, hay cả hai, chỗ đó mới có luận nghị đến sự thọ sanh, luận nghị đến giai cấp hay luận nghị đến ngã mạn với lời nói: “Ngươi bằng ta hay không bằng ta”.
 
 Này Ambaṭṭha, những ai còn chấp trước lý thuyết thọ sanh, còn chấp trước lý thuyết giai cấp, còn chấp trước lý thuyết kiêu mạn, hoặc còn chấp trước cưới hỏi rước dâu, những người ấy còn rất xa sự thành tựu vô thượng trí đức. Này Ambaṭṭha, không chấp trước lý thuyết thọ sanh, không chấp trước lý thuyết giai cấp, không chấp trước lý thuyết kiêu mạn, không chấp trước cưới hỏi, đưa dâu, người ấy tức chứng ngộ vô thượng trí đức.
 
-\- Tôn giả Gotama, thế nào là Giới đức trong bài kệ ấy? Thế nào là Trí tuệ trong bài kệ ấy?
+- Tôn giả Gotama, thế nào là Giới đức trong bài kệ ấy? Thế nào là Trí tuệ trong bài kệ ấy?
 
-\- Ở đây, này Ambaṭṭha, Như Lai xuất hiện, là bậc A-la-hán, Chánh Biến Tri, Minh Hạnh Túc:
+- Ở đây, này Ambaṭṭha, Như Lai xuất hiện, là bậc A-la-hán, Chánh Biến Tri, Minh Hạnh Túc:
 
 > … (xin xem kinh ["Sa-môn quả"—kinh số 2, từ đoạn số 40 đến số 98](../../dn2/vn/#wp40), tới câu: “Không có đời sống nào khác nữa” chỉ khác danh từ xưng hô và câu kết từng đoạn. Như đoạn này, câu kết là “Như vậy, này Ambaṭṭha, là vị Tỷ-kheo thành tựu giới hạnh”.)
 
@@ -227,55 +225,55 @@ Này Ambaṭṭha đó là bốn nguyên nhân đưa đến thất bại cho s�
 
 Này Ambaṭṭha, ngươi nghĩ thế nào? Ngươi và thầy ngươi có được xem là đã thành tựu vô thượng trí đức này không?—Bạch không, Tôn giả Gotama. Con và thầy con là gì, Tôn giả Gotama, để có thể so sánh với sự thành tựu vô thượng trí đức. Tôn giả Gotama, con và thầy con còn rất xa sự thành tựu vô thượng trí đức.
 
-\- Này Ambaṭṭha, ngươi nghĩ thế nào? Tuy ngươi và thầy ngươi chưa thấu đạt sự thành tựu vô thượng trí đức này, nhà ngươi có đem theo dụng cụ của nhà đạo sĩ, đi vào rừng sâu và nguyện: “Ta và thầy ta chỉ ăn trái cây rụng mà sống?”
+- Này Ambaṭṭha, ngươi nghĩ thế nào? Tuy ngươi và thầy ngươi chưa thấu đạt sự thành tựu vô thượng trí đức này, nhà ngươi có đem theo dụng cụ của nhà đạo sĩ, đi vào rừng sâu và nguyện: “Ta và thầy ta chỉ ăn trái cây rụng mà sống?”
 
-\- Bạch không, Tôn giả Gotama.
+- Bạch không, Tôn giả Gotama.
 
-\- Này Ambaṭṭha, ngươi nghĩ thế nào? Tuy ngươi và thầy ngươi chưa thấu đạt sự thành tựu vô thượng trí đức này, chưa thấu đạt pháp ăn trái cây rụng để sống, ngươi có mang theo cuốc và giỏ đi vào rừng sâu và nguyện: “Ta và thầy ta chỉ ăn rễ và trái cây để sống không?”
+- Này Ambaṭṭha, ngươi nghĩ thế nào? Tuy ngươi và thầy ngươi chưa thấu đạt sự thành tựu vô thượng trí đức này, chưa thấu đạt pháp ăn trái cây rụng để sống, ngươi có mang theo cuốc và giỏ đi vào rừng sâu và nguyện: “Ta và thầy ta chỉ ăn rễ và trái cây để sống không?”
 
-\- Bạch không, Tôn giả Gotama.
+- Bạch không, Tôn giả Gotama.
 
-\- Này Ambaṭṭha, ngươi nghĩ thế nào? Tuy ngươi và thầy ngươi chưa thấu đạt sự thành tựu vô thượng trí đức này, chưa thấu đạt pháp ăn trái cây rụng để sống, chưa thấu đạt pháp ăn củ, rễ và trái cây để sống, ngươi có nhen lửa tại cuối làng hay cuối xóm và sống thờ lửa ấy với thầy ngươi không?”
+- Này Ambaṭṭha, ngươi nghĩ thế nào? Tuy ngươi và thầy ngươi chưa thấu đạt sự thành tựu vô thượng trí đức này, chưa thấu đạt pháp ăn trái cây rụng để sống, chưa thấu đạt pháp ăn củ, rễ và trái cây để sống, ngươi có nhen lửa tại cuối làng hay cuối xóm và sống thờ lửa ấy với thầy ngươi không?”
 
-\- Bạch không, Tôn giả Gotama.
+- Bạch không, Tôn giả Gotama.
 
-\- Này Ambaṭṭha, ngươi nghĩ thế nào? Tuy ngươi và thầy ngươi chưa thấu đạt sự thành tựu vô thượng trí đức này, chưa thấu đạt pháp ăn trái cây rụng để sống, chưa thấu đạt pháp ăn củ, rễ và trái cây để sống và chưa thấu đạt sự thờ lửa, ngươi và thầy ngươi có xây dựng một ngôi nhà có bốn cửa tại ngã tư đường với lời nguyện: “Từ bốn phương, nếu có vị Sa-môn hay Bà-la-môn nào lại—thì ta sẽ cúng dường tùy theo khả năng, tùy theo sức lực của ta không?”
+- Này Ambaṭṭha, ngươi nghĩ thế nào? Tuy ngươi và thầy ngươi chưa thấu đạt sự thành tựu vô thượng trí đức này, chưa thấu đạt pháp ăn trái cây rụng để sống, chưa thấu đạt pháp ăn củ, rễ và trái cây để sống và chưa thấu đạt sự thờ lửa, ngươi và thầy ngươi có xây dựng một ngôi nhà có bốn cửa tại ngã tư đường với lời nguyện: “Từ bốn phương, nếu có vị Sa-môn hay Bà-la-môn nào lại—thì ta sẽ cúng dường tùy theo khả năng, tùy theo sức lực của ta không?”
 
-\- Bạch không, Tôn giả Gotama.
+- Bạch không, Tôn giả Gotama.
 
-\- Này Ambaṭṭha, như vậy ngươi và thầy ngươi còn khiếm khuyết sự thành tựu vô thượng trí đức này, còn khiếm khuyết bốn nguyên nhân đưa đến thất bại cho sự thành tựu vô thượng trí đức này, Ambaṭṭha, thế mà những lời này lại do thầy của ngươi, Bà-la-môn Pokkharasāti thốt ra: “Những hạng Sa-môn giả hiệu, đầu trọc, đê tiện, đen đủi, sanh từ nơi chân bà con ta là ai mà có thể đàm luận với những Bà-la-môn tinh thông ba tập Vệ đà”. Một vị tự mình chưa thành tựu được những pháp đưa đến sự thất bại (cho những pháp cao thượng hơn). Này Ambaṭṭha, ngươi xem, thầy của ngươi, Bà-la-môn Pokkharasāti đã lỗi lầm như thế nào?
+- Này Ambaṭṭha, như vậy ngươi và thầy ngươi còn khiếm khuyết sự thành tựu vô thượng trí đức này, còn khiếm khuyết bốn nguyên nhân đưa đến thất bại cho sự thành tựu vô thượng trí đức này, Ambaṭṭha, thế mà những lời này lại do thầy của ngươi, Bà-la-môn Pokkharasāti thốt ra: “Những hạng Sa-môn giả hiệu, đầu trọc, đê tiện, đen đủi, sanh từ nơi chân bà con ta là ai mà có thể đàm luận với những Bà-la-môn tinh thông ba tập Vệ đà”. Một vị tự mình chưa thành tựu được những pháp đưa đến sự thất bại (cho những pháp cao thượng hơn). Này Ambaṭṭha, ngươi xem, thầy của ngươi, Bà-la-môn Pokkharasāti đã lỗi lầm như thế nào?
 
 Này Ambaṭṭha, Bà-la-môn Pokkharasāti hưởng thọ sự cung cấp của vua Pasenadi nước Kosala. Vua Pasenadi nước Kosala cũng không cho phép thầy ngươi diện kiến. Nếu vua hội nghị với thầy ngươi thời chỉ nói thầy ngươi ngang qua một tấm màn. Này Ambaṭṭha, tại sao vua Pasenadi nước Kosala lại không cho phép thầy ngươi diện kiến, người mà vua cung cấp thực phẩm thuần tịnh chân chánh. Này Ambaṭṭha, ngươi xem thầy của ngươi, Bà-la-môn Pokkharasāti đã lỗi lầm như thế nào?
 
 Này Ambaṭṭha, ngươi nghĩ thế nào? Như vua Pasenadi nước Kosala hoặc ngồi trên cổ voi, hoặc ngồi trên lưng ngựa, hoặc đứng trên lưng ngựa, hoặc đứng trên tấm thảm xe cùng các vị đại thần hay vương tử, luận bàn quốc sự. Nếu vua rời khỏi chỗ ấy hay đứng qua bên, một người Thủ đà hay đầy tớ của một người Thủ đà đến. Người này cũng đứng tại chỗ ấy, cũng luận bàn quốc sự và nói: “Vua Pasenadi nước Kosala đã nói như vậy”. Dầu người ấy nói như lời nói của vua, luận bàn như lời luận bàn của vua, người ấy có thể là vua hay là bị phó vương không?
 
-\- Không thể được, Tôn giả Gotama.
+- Không thể được, Tôn giả Gotama.
 
-\- Này Ambaṭṭha, nhà ngươi cũng vậy. Thuở xưa, những vị ẩn sĩ giữa các Bà-la-môn, những tác giả các chú thuật, những nhà tụng tán các chú thuật, đã hát, đã nói lên, đã sưu tầm, những Thánh cú mà nay những Bà-la-môn hiện tại cũng hát lên, nói lên, đọc lên giống như các vị trước đã làm. Những vị ẩn sĩ ấy tên là Aṭṭhaka (A sá ca), Vāmaka (Bà-ma), Vāmadeva (Bà-ma -đề-bà), Vessamitta (Tì-bà-thẩm-sá), Yamataggi (Gia-bà -đề-bà), Angirasa (Ương-kỳ-la), Bharadvāja (Bạt-la-đà thẩm-xà), Vāsaṭṭha (Bà-ma-sá) Kassapa (Ca-diếp), Bhagu (Bà-cửu). Dầu ngươi có thể nói: “Ta, một đệ tử, học thuộc lòng những chú thuật của các vị ấy”, chỉ với điều kiện này, ngươi có thể được xem là một vị ẩn sĩ hay đã chứng địa vị của một ẩn sĩ không?
+- Này Ambaṭṭha, nhà ngươi cũng vậy. Thuở xưa, những vị ẩn sĩ giữa các Bà-la-môn, những tác giả các chú thuật, những nhà tụng tán các chú thuật, đã hát, đã nói lên, đã sưu tầm, những Thánh cú mà nay những Bà-la-môn hiện tại cũng hát lên, nói lên, đọc lên giống như các vị trước đã làm. Những vị ẩn sĩ ấy tên là Aṭṭhaka (A sá ca), Vāmaka (Bà-ma), Vāmadeva (Bà-ma -đề-bà), Vessamitta (Tì-bà-thẩm-sá), Yamataggi (Gia-bà -đề-bà), Angirasa (Ương-kỳ-la), Bharadvāja (Bạt-la-đà thẩm-xà), Vāsaṭṭha (Bà-ma-sá) Kassapa (Ca-diếp), Bhagu (Bà-cửu). Dầu ngươi có thể nói: “Ta, một đệ tử, học thuộc lòng những chú thuật của các vị ấy”, chỉ với điều kiện này, ngươi có thể được xem là một vị ẩn sĩ hay đã chứng địa vị của một ẩn sĩ không?
 
-\- Việc này không thể có được.
+- Việc này không thể có được.
 
 Ambaṭṭha, ngươi nghĩ thế nào? Ngươi có được nghe những vị Bà-la-môn, trưởng lão, tôn túc, những vị giáo sư và tổ sư nói đến không? Thuở xưa những vị ẩn sĩ, giữa các Bà-la-môn, những tác giả của chú thuật, những nhà tụng tán các chú thuật đã hát, đã nói lên, đã sưu tầm những Thánh cú mà nay những Bà-la-môn, cũng hát lên, nói lên, đọc lên giống như các vị trước đã làm. Những vị ẩn sĩ ấy tên là Aṭṭhaka, Vāmaka, Vāmadeva, Vessamitta, Yamataggi, Angirasa, Bharadvāja, Vāsaṭṭha, Kassapa, Bhagu. Những vị ấy có khéo tắm, khéo chải chuốt, tóc và râu khéo sửa soạn, trang điểm với vòng hoa và ngọc, mặc toàn đồ trắng, tận hưởng và tham đắm năm món dục lạc, như người và thầy của ngươi hiện nay không?
 
-\- Không có vậy. Tôn giả Gotama.
+- Không có vậy. Tôn giả Gotama.
 
-\- Các vị ẩn sĩ ấy có dùng cơm nấu từ gạo trắng thượng hạng mà các hạt đen được gạn bỏ ra, dùng các món canh, các món đồ ăn nhiều loại không, như ngươi và thầy ngươi hiện nay không?
+- Các vị ẩn sĩ ấy có dùng cơm nấu từ gạo trắng thượng hạng mà các hạt đen được gạn bỏ ra, dùng các món canh, các món đồ ăn nhiều loại không, như ngươi và thầy ngươi hiện nay không?
 
-\- Không có vậy, Tôn giả Gotama.
+- Không có vậy, Tôn giả Gotama.
 
-\- Hay các vị ấy được những thiếu nữ có đường eo và thắt lưng có tua hầu hạ như ngươi và thầy ngươi hiện nay không?
+- Hay các vị ấy được những thiếu nữ có đường eo và thắt lưng có tua hầu hạ như ngươi và thầy ngươi hiện nay không?
 
-\- Không có vậy, Tôn giả Gotama.
+- Không có vậy, Tôn giả Gotama.
 
-\- Hay những vị ấy đi trên những xe do những con ngựa cái có bờm, đuôi được bện và dùng những cây roi và gậy dài như ngươi và thầy ngươi hiện nay không?
+- Hay những vị ấy đi trên những xe do những con ngựa cái có bờm, đuôi được bện và dùng những cây roi và gậy dài như ngươi và thầy ngươi hiện nay không?
 
-\- Không có vậy, Tôn giả Gotama.
+- Không có vậy, Tôn giả Gotama.
 
-\- Hay những vị ấy sống được che chở trong những thành lũy có những chiến hào bao bọc, có những cửa thành hạ xuống, có những chiến sĩ mang gươm dài hộ vệ như ngươi và thầy ngươi hiện nay không?
+- Hay những vị ấy sống được che chở trong những thành lũy có những chiến hào bao bọc, có những cửa thành hạ xuống, có những chiến sĩ mang gươm dài hộ vệ như ngươi và thầy ngươi hiện nay không?
 
-\- Không có vậy, Tôn giả Gotama.
+- Không có vậy, Tôn giả Gotama.
 
-\- Như vậy, này Ambaṭṭha, ngươi và thầy ngươi không phải là một ẩn sĩ, không giống đời sống của nhà ẩn sĩ. Này Ambaṭṭha, nếu có gì nghi ngờ, có gì phân vân về Ta, hãy hỏi Ta và Ta sẽ trả lời.
+- Như vậy, này Ambaṭṭha, ngươi và thầy ngươi không phải là một ẩn sĩ, không giống đời sống của nhà ẩn sĩ. Này Ambaṭṭha, nếu có gì nghi ngờ, có gì phân vân về Ta, hãy hỏi Ta và Ta sẽ trả lời.
 
 Lúc bấy giờ, Thế Tôn ra khỏi tịnh xá và bắt đầu đi kinh hành. Thanh niên Ambaṭṭha đi theo sau Thế Tôn đang đi kinh hành và tìm đếm ba mươi hai tướng tốt của vị đại nhân, nghi hoặc sanh, do dự sanh, chưa được thỏa mãn, chưa được hài lòng, tức là tướng mã âm tàng và tướng lưỡi rộng dài.
 
@@ -283,7 +281,7 @@ Khi bấy giờ, Thế Tôn nghĩ rằng: “Thanh niên Ambaṭṭha này thấ
 
 Thế Tôn liền dùng thần thông khiến thanh niên Ambaṭṭha thấy tướng mã âm tàng của Thế Tôn. Và Thế Tôn le lưỡi, rờ đến, liếm đến hai lỗ tai, rờ đến, liếm đến hai lỗ mũi, và dùng lưỡi che khắp cả vầng trán. Lúc bấy giờ, thanh niên Ambaṭṭha liền nghĩ rằng: “Sa-môn Gotama đầy đủ ba mươi hai tướng tốt của vị đại nhân, không phải không đầy đủ”. Và nói với Thế Tôn: “Tôn giả Gotama, nay chúng tôi xin đi, chúng tôi rất bận, có nhiều việc cần phải làm”.
 
-\- Này Ambaṭṭha, hãy làm những gì ngươi nghĩ là phải thời.
+- Này Ambaṭṭha, hãy làm những gì ngươi nghĩ là phải thời.
 
 Rồi thanh niên Ambaṭṭha leo lên xe do ngựa cái kéo và ra đi.
 
@@ -291,17 +289,17 @@ Lúc bấy giờ Bà-la-môn Pokkharasāti ra khỏi Ukkaṭṭḥa với một 
 
 —Này Ambaṭṭha thân mến, ngươi đã thấy Sa-môn Gotama chưa?
 
-\- Chúng con thấy Tôn giả Gotama rồi.
+- Chúng con thấy Tôn giả Gotama rồi.
 
-\- Này Ambaṭṭha thân mến, có phải Tôn giả Gotama đúng với tin đồn đã truyền đi, chớ không phải khác?
+- Này Ambaṭṭha thân mến, có phải Tôn giả Gotama đúng với tin đồn đã truyền đi, chớ không phải khác?
 
-\- Tôn giả Gotama đúng với tin đồn đã truyền đi, chớ không phải khác. Tôn giả Gotama là như vậy, chớ không phải khác. Tôn giả Gotama đầy đủ ba mươi hai tướng tốt của vị đại nhân, chớ không phải thiếu.
+- Tôn giả Gotama đúng với tin đồn đã truyền đi, chớ không phải khác. Tôn giả Gotama là như vậy, chớ không phải khác. Tôn giả Gotama đầy đủ ba mươi hai tướng tốt của vị đại nhân, chớ không phải thiếu.
 
-\- Này Ambaṭṭha thân mến, con có cùng với Tôn giả Gotama đàm luận không?
+- Này Ambaṭṭha thân mến, con có cùng với Tôn giả Gotama đàm luận không?
 
-\- Con có đàm luận với Tôn giả Gotama.
+- Con có đàm luận với Tôn giả Gotama.
 
-\- Này Ambaṭṭha thân mến, cuộc đàm luận ấy như thế nào?
+- Này Ambaṭṭha thân mến, cuộc đàm luận ấy như thế nào?
 
 Thanh niên Ambaṭṭha liền thuật cho Bà-la-môn Pokkharasāti rõ tất cả cuộc hội đàm với Tôn giả Gotama.
 
@@ -317,13 +315,13 @@ Tuy vậy, Bà-la-môn Pokkharasāti vẫn cho làm các món ăn thượng vị
 
 —Tôn giả Gotama, đệ tử của chúng tôi, thanh niên Ambaṭṭha có đến đây không?
 
-\- Này Bà-la-môn, đệ tử ngươi, thanh niên Ambaṭṭha có đến đây.
+- Này Bà-la-môn, đệ tử ngươi, thanh niên Ambaṭṭha có đến đây.
 
-\- Tôn giả Gotama, Ngài có cùng với thanh niên Ambaṭṭha đàm luận không?
+- Tôn giả Gotama, Ngài có cùng với thanh niên Ambaṭṭha đàm luận không?
 
-\- Này Bà-la-môn, ta có đàm luận với thanh niên Ambaṭṭha.
+- Này Bà-la-môn, ta có đàm luận với thanh niên Ambaṭṭha.
 
-\- Tôn giả Gotama, cuộc đàm luận của Ngài với thanh niên Ambaṭṭha như thế nào?
+- Tôn giả Gotama, cuộc đàm luận của Ngài với thanh niên Ambaṭṭha như thế nào?
 
 Cuộc đàm luận với thanh niên Ambaṭṭha như thế nào, Thế Tôn kể lại tất cả cho Bà-la-môn Pokkharasāti.
 
@@ -331,7 +329,7 @@ Nghe nói vậy, Bà-la-môn nói với Thế Tôn
 
 —Tôn giả Gotama, thanh niên Ambaṭṭha thật là ngu si! Tôn giả Gotama, hãy tha thứ cho thanh niên Ambaṭṭha!
 
-\- Này Bà-la-môn, cầu cho thanh niên Ambaṭṭha được hạnh phúc.
+- Này Bà-la-môn, cầu cho thanh niên Ambaṭṭha được hạnh phúc.
 
 Lúc bấy giờ, Bà-la-môn Pokkharasāti tìm đếm ba mươi hai tướng tốt của bậc đại nhân trên thân Thế Tôn. Bà-la-môn thấy gần đủ ba mươi hai tướng tốt của bậc đại nhân trên thân Thế Tôn, trừ hai tướng. Ðối với hai tướng tốt của bậc đại nhân, nghi hoặc sanh, do dự sanh, chưa được thỏa mãn, chưa được hài lòng, hai tướng là tướng mã âm tàng và tướng lưỡi rộng dài.
 
@@ -347,13 +345,4 @@ Khi ấy Bà-la-môn Pokkharasāti, thấy pháp, chứng pháp, ngộ pháp, th
 
 —Thật vi diệu thay, Tôn giả Gotama! Thật vi diệu thay, Tôn giả Gotama! Như người dựng đứng lại những gì bị quăng ngã xuống, phơi bày ra những gì bị che kín, chỉ đường cho người bị lạc hướng, đem đèn sáng vào trong bóng tối để những ai có mắt có thể thấy sắc. Cũng vậy, chánh pháp đã được Tôn giả Gotama dùng nhiều phương tiện trình bày, giải thích. Tôn giả Gotama, con, con của con, vợ của con, tùy tùng của con, bạn hữu của con, xin quy y Thế Tôn Gotama, quy y Pháp và quy y chúng Tỷ kheo. Mong Tôn giả Gotama nhận con làm đệ tử, từ nay trở đi cho đến mạng chung, con trọn đời quy ngưỡng. Như Tôn giả Gotama đến thăm các gia đình cư sĩ khác ở Ukkaṭṭḥa, mong Tôn giả Gotama cũng đến thăm các gia đình Pokkharasāti. Tại đây, các thanh nam hay thanh nữ Bà-la-môn sẽ đảnh lễ Thế Tôn Gotama, hoặc đứng dậy, hoặc mời chỗ ngồi, hoặc mời nước, hoặc khiến tâm hoan hỷ. Như vậy chúng sẽ hưởng hạnh phúc, lợi ích trong một thời gian lâu dài.
 
-\- Này Bà-la-môn lời ngươi nói thật là chí thiện.
-
-Hòa thượng Thích Minh Châu dịch Việt
-
-Chân thành cám ơn anh HDC và nhóm Phật tử VH đã có thiện tâm gửi tặng ấn bản điện tử.  
-(Bình Anson hiệu đính, dựa theo bản Anh ngữ “The Long Discourses of the Buddha”, Maurice Walshe dịch, 1987).
-
-Hiệu đính: **16–06–2007**
-
-Prepared for SuttaCentral by Blake Walsh.
+- Này Bà-la-môn lời ngươi nói thật là chí thiện.

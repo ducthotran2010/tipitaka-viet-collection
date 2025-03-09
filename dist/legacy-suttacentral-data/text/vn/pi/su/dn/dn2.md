@@ -1,8 +1,6 @@
- 
-
 Trường Bộ Kinh
 
-# 2\. Kinh Sa-môn quả
+# 2. Kinh Sa-môn quả
 
 Như vậy tôi nghe. Một thời Thế Tôn ở tại Rājagaha (Vương Xá) nơi vườn xoài của Jìvaka (Kỳ-bà) Komārabhacca, cùng với đại chúng Tỷ-kheo một nghìn hai trăm năm mươi vị. Lúc bấy giờ Ajātasattu (A-xà-thế) con bà Videhi (Vi-đề-hi) vua xứ Magadha (Ma-kiệt-đà) nhân lễ Bố Tát vào ngày rằm tháng tư Komudi (cây súng) đang ngồi trên lầu cao trang nghiêm, chung quanh có nhiều đại thần hầu hạ. Lúc bấy giờ Ajātasattu con bà Videhi, vua xứ Magadha, nhân ngày Bố Tát cảm hứng nói rằng: “Thật khả ái thay, này các khanh, đêm rằm sáng trăng! Thật diễm lệ thay, này các khanh, đêm rằm sáng trăng! Thật mỹ miều thay, này các khanh, đêm rằm sáng trăng! Thật êm dịu thay, này các khanh, đêm rằm sáng trăng! Thật điềm lành thay, này các khanh, đêm rằm sáng trăng! Nay chúng ta nên đến chiêm bái vị Sa-môn hay Bà-la-môn nào, nhờ sự chiêm bái này tâm chúng ta được tịnh tín?”. Khi nghe nói vậy, một đại thần tâu với Ajātasattu, con bà Videhi vua nước Magadha: “Tâu Ðại vương, có Pùrana Kassapa (Phú-la Ca-diếp) là vị hội chủ, vị giáo trưởng, vị sư trưởng giáo hội, có tiếng tốt, có danh vọng, khai tổ giáo phái, được quần chúng tôn sùng, dồi dào kinh nghiệm lâu ngày, xuất gia đã lâu năm, đã đến tuổi trưởng thượng. Mong Ðại vương đến chiêm bái Pùrana Kassapa này. Chiêm bái Pùrana Kassapa có thể khiến tâm Ðại vương được tịnh tín”. Khi nghe nói vậy Ajātasattu, con bà Videhi, vua nước Magadha yên lặng không nói gì.
 
@@ -20,11 +18,11 @@ Lúc bấy giờ Jìvaka Komārabhacca ngồi yên lặng cách Ajātasattu, con
 
 —Này khanh Jìvaka, sao ngươi lại yên lặng như vậy?
 
-\- Tâu Ðại vương, chính tại vườn xoài này của chúng con, có Thế Tôn, bậc A-la-hán, Chánh Ðẳng Chánh Giác, hiện đang trú ngụ với đại chúng Tỷ-kheo một nghìn hai trăm năm mươi vị. Thế Tôn Gotama có tiếng đồn tốt đẹp sau đây lan rộng: “Ðây là Thế Tôn, bậc A-la-hán, Chánh Ðẳng Chánh Giác, Minh Hạnh Túc, Thiện Thệ, Thế Gian Giải, Vô Thượng Sĩ, Ðiều Ngự Trượng Phu, Thiên Nhân Sư, Phật, Thế Tôn”. Ðại vương hãy đến chiêm bái Thế Tôn này. Rất có thể, nhờ chiêm bái Thế Tôn, tâm của Ðại vương được tịnh tín.
+- Tâu Ðại vương, chính tại vườn xoài này của chúng con, có Thế Tôn, bậc A-la-hán, Chánh Ðẳng Chánh Giác, hiện đang trú ngụ với đại chúng Tỷ-kheo một nghìn hai trăm năm mươi vị. Thế Tôn Gotama có tiếng đồn tốt đẹp sau đây lan rộng: “Ðây là Thế Tôn, bậc A-la-hán, Chánh Ðẳng Chánh Giác, Minh Hạnh Túc, Thiện Thệ, Thế Gian Giải, Vô Thượng Sĩ, Ðiều Ngự Trượng Phu, Thiên Nhân Sư, Phật, Thế Tôn”. Ðại vương hãy đến chiêm bái Thế Tôn này. Rất có thể, nhờ chiêm bái Thế Tôn, tâm của Ðại vương được tịnh tín.
 
-\- Vậy khanh Jìvaka, hãy cho thắng kiệu voi.
+- Vậy khanh Jìvaka, hãy cho thắng kiệu voi.
 
-\- Vâng, tâu Ðại vương.
+- Vâng, tâu Ðại vương.
 
 Jìvaka Komārabhacca vâng theo lời dạy của Ajātasattu, con bà Videhi, vua nước Magadha, sai người thắng năm trăm con voi cái, và con vương tượng vua thường cởi, rồi tâu với Ajātasattu, con bà Videhi, vua nước Magadha: “Tâu Ðại vương, các kiệu voi đã sẵn sàng. Ngài hãy làm những gì Ngài xem là phải thời”. Khi bấy giờ Ajātasattu, con bà Videhi, vua nước Magadha biểu các cung phi leo lên năm trăm con voi cái mỗi người một con, còn mình thì leo lên vương tượng vua thường cởi, xuất hành ra khỏi Rājagaha, dưới ánh sáng của các ngọn đuốc được cầm cao, với oai nghi của bậc đại vương, thẳng tiến đến vườn xoài của Jìvaka Komārabhacca.
 
@@ -32,37 +30,37 @@ Khi Ajātasattu, con bà Videhi, vua nước Magadha đi đến không xa vườ
 
 —Này khanh Jìvaka, người phản ta chăng? Này khanh Jìvaka, người lường gạt ta chăng? Này khanh Jìvaka, ngươi nạp ta cho kẻ thù chăng? Tại sao trong một đại chúng lớn như thế này gần một nghìn hai trăm năm mươi vị, mà không có một tiếng đằng hắng, không có một tiếng ho, không một tiếng ồn?
 
-\- Tâu Ðại vương, thần không phản lại Ngài, thần không lường gạt Ngài, tâu Ðại vương, thần không nạp Ngài cho kẻ thù, tâu Ðại Vương, hãy đi thẳng tới; tâu Ðại vương hãy đi thẳng tới. Tại chỗ kia trong căn nhà tròn chỗ có những ngọn đèn đang thắp sáng.
+- Tâu Ðại vương, thần không phản lại Ngài, thần không lường gạt Ngài, tâu Ðại vương, thần không nạp Ngài cho kẻ thù, tâu Ðại Vương, hãy đi thẳng tới; tâu Ðại vương hãy đi thẳng tới. Tại chỗ kia trong căn nhà tròn chỗ có những ngọn đèn đang thắp sáng.
 
 Lúc bấy giờ, Ajātasattu, con bà Videhi, vua nước Magadha đi cho đến chỗ voi có thể đi được, rồi xuống voi đi đến cửa căn nhà tròn. Khi đến nơi liền nói với Jìvaka Komārabhacca
 
 —Này khanh Jìvaka, Thế Tôn ở tại đâu?
 
-\- Tâu Ðại vương, vị ấy là Thế Tôn. Tâu Ðại vương, Thế Tôn ngồi dựa vào cột chính giữa, mặt hướng phía Nam, ngồi trước mặt chúng Tỷ-kheo.
+- Tâu Ðại vương, vị ấy là Thế Tôn. Tâu Ðại vương, Thế Tôn ngồi dựa vào cột chính giữa, mặt hướng phía Nam, ngồi trước mặt chúng Tỷ-kheo.
 
 Ajātasattu, con bà Videhi, vua nước Magadha liền tiến đến chỗ Thế Tôn. Khi đến rồi, vua đứng một bên. Sau đi đứng một bên, Ajātasattu, con bà Videhi, vua nước Magadha nhìn khắp chúng Tỷ-kheo đang yên lặng an tịnh như một hồ nước trong, cảm hứng nói rằng: “Mong hoàng tử Udāyibhadda (Ưu-đà-di-bạt-đà) cũng được sự trầm lặng như sự trầm lặng của các vị Tỷ-kheo này vậy”.
 
-\- Ðại vương, hình như tâm trí của Ðại vương nặng nhiều về tình thương thì phải?
+- Ðại vương, hình như tâm trí của Ðại vương nặng nhiều về tình thương thì phải?
 
-\- Bạch Thế Tôn, con thương hoàng tử Udāyibhadda rất nhiều. Mong rằng hoàng tử Udāyibhadda cũng được sự trầm lặng như sự trầm lặng của chúng Tỷ-kheo này vậy.
+- Bạch Thế Tôn, con thương hoàng tử Udāyibhadda rất nhiều. Mong rằng hoàng tử Udāyibhadda cũng được sự trầm lặng như sự trầm lặng của chúng Tỷ-kheo này vậy.
 
 Lúc bấy giờ Ajātasattu, con bà Videhi, vua nước Magadha, đảnh lễ Thế Tôn, chấp tay vái chào chúng Tỷ-kheo, và ngồi xuống một bên. Sau khi ngồi xuống một bên, Ajātasattu, con bà Videhi, vua nước Magadha bạch Thế Tôn
 
 —Bạch Thế Tôn, con muốn hỏi Thế Tôn một vấn đề này, nếu Ngài cho phép con hỏi.
 
-\- Ðại vương cứ hỏi tùy theo ý muốn của Ðại vương.
+- Ðại vương cứ hỏi tùy theo ý muốn của Ðại vương.
 
-\- Cũng như các công nghệ chức nghiệp này, như điều tượng sư, điều mã sư, xa thuật sư, quân thuật sư, quân kỳ binh, nguyên súy, chiến sĩ, thượng sĩ quan, thám tử, dõng sĩ can đảm như voi chúa, anh hùng, trang giáp binh, nô lệ xuất thân, hỏa đầu quân, thợ hớt tóc, người hầu tắm, thợ làm bánh, nhà làm vòng hoa, thợ giặt, thợ dệt, nhà làm thúng rổ, thợ đồ gốm, nhà toán số, nhà ấn bản và các công nghệ chức nghiệp khác, chúng hưởng được kết quả thiết thực hiện tại từ công nghiệp chức nghiệp của chúng. Chúng giúp cho tự thân được sống an lạc, hạnh phúc. Chúng giúp cho vợ con được sống an lạc hạnh phúc. Chúng giúp cho cha mẹ được sống an lạc, hạnh phúc. Chúng giúp cho bạn bè được sống an lạc hạnh phúc. Chúng dâng các vật cúng dường cho Sa-môn, Bà-la-môn, sự cúng dường này có ảnh hưởng đến đời sau, liên hệ đến thiên giới, thọ hưởng phước báo an lạc, thác sanh lên cõi trời. Bạch Thế Tôn, Ngài có thể chỉ cho rõ ràng kết quả thiết thực, hiện tại của hạnh Sa-môn chăng?
+- Cũng như các công nghệ chức nghiệp này, như điều tượng sư, điều mã sư, xa thuật sư, quân thuật sư, quân kỳ binh, nguyên súy, chiến sĩ, thượng sĩ quan, thám tử, dõng sĩ can đảm như voi chúa, anh hùng, trang giáp binh, nô lệ xuất thân, hỏa đầu quân, thợ hớt tóc, người hầu tắm, thợ làm bánh, nhà làm vòng hoa, thợ giặt, thợ dệt, nhà làm thúng rổ, thợ đồ gốm, nhà toán số, nhà ấn bản và các công nghệ chức nghiệp khác, chúng hưởng được kết quả thiết thực hiện tại từ công nghiệp chức nghiệp của chúng. Chúng giúp cho tự thân được sống an lạc, hạnh phúc. Chúng giúp cho vợ con được sống an lạc hạnh phúc. Chúng giúp cho cha mẹ được sống an lạc, hạnh phúc. Chúng giúp cho bạn bè được sống an lạc hạnh phúc. Chúng dâng các vật cúng dường cho Sa-môn, Bà-la-môn, sự cúng dường này có ảnh hưởng đến đời sau, liên hệ đến thiên giới, thọ hưởng phước báo an lạc, thác sanh lên cõi trời. Bạch Thế Tôn, Ngài có thể chỉ cho rõ ràng kết quả thiết thực, hiện tại của hạnh Sa-môn chăng?
 
-\- Này Ðại vương, Ðại vương có nhớ đã hỏi câu hỏi ấy với các vị Sa-môn, Bà-la-môn khác chăng?
+- Này Ðại vương, Ðại vương có nhớ đã hỏi câu hỏi ấy với các vị Sa-môn, Bà-la-môn khác chăng?
 
-\- Bạch Ngài, con nhớ đã hỏi câu hỏi ấy với Sa-môn, Bà-la-môn khác.
+- Bạch Ngài, con nhớ đã hỏi câu hỏi ấy với Sa-môn, Bà-la-môn khác.
 
-\- Này Ðại vương, hãy nói lại cho nghe, các vị ấy đã trả lời với Ðại vương như thế nào, nếu Ðại vương không thấy gì trở ngại.
+- Này Ðại vương, hãy nói lại cho nghe, các vị ấy đã trả lời với Ðại vương như thế nào, nếu Ðại vương không thấy gì trở ngại.
 
-\- Bạch Thế Tôn, con không thấy gì trở ngại đối với đức Thế Tôn và các bậc như đức Thế Tôn.
+- Bạch Thế Tôn, con không thấy gì trở ngại đối với đức Thế Tôn và các bậc như đức Thế Tôn.
 
-\- Vậy Ðại vương hãy nói đi.
+- Vậy Ðại vương hãy nói đi.
 
  —Bạch Thế Tôn, một thời con đến Pùrana Kassapa, khi đến nơi, con nói lên những lời đón chào, chúc tụng thân hữu và xã giao với Pùrana Kassapa và ngồi xuống một bên. Sau khi ngồi xuống một bên, con nói với Pùrana Kassapa: “Ngài Kassapa, cũng như các công nghệ, chức nghiệp này, như điều tượng sư, điều mã sư, xa thuật sư, cung thuật sư, quân kỳ binh, nguyên súy, chiến sĩ, thượng sĩ quan, thám tử, dõng sĩ can đảm như voi chúa, anh hùng, trang giáp binh, nô lệ xuất thân, hỏa đầu quân, thợ hớt tóc, người hầu tắm, thợ làm bánh, nhà làm vòng hoa, thợ giặt, thợ dệt, nhà làm thúng rổ, thợ đồ gốm, nhà toán số, nhà ấn bản và các công nghệ chức nghiệp khác, chúng hưởng được kết quả thiết thực, hiện tại công nghệ chức nghiệp của chúng. Chúng giúp cho tự thân được sống an lạc, hạnh phúc. Chúng giúp cho cha mẹ được sống an lạc, hạnh phúc. Chúng giúp cho vợ con được sống an lạc, hạnh phúc. Chúng giúp cho bạn bè được sống an lạc, hạnh phúc. Chúng dâng các vật cúng dường cho Sa-môn, Bà-la-môn, sự cúng dường này có ảnh hưởng đến đời sau, liên hệ đến thiên giới, thọ hưởng phước báo an lạc, thác sanh lên cõi trời. Bạch Ngài, Ngài có thể cho biết kết quả thiết thực hiện tại của hạnh Sa-môn chăng?”
 
@@ -100,35 +98,35 @@ Bạch Thế Tôn, khi được con hỏi kết quả thiết thực hiện tạ
 
 Vậy nên bạch Thế Tôn, con cũng hỏi Thế Tôn. Bạch Thế Tôn, cũng như các công nghệ chức nghiệp. Như điều tượng sư, điều mã sư, xa thuật sư, cung thuật sư, quân kỳ binh, nguyên soái, chiến sĩ, thượng sĩ quan, thám tử, dũng sĩ can đảm như voi chúa, anh hùng, trang giáp binh, nô lệ xuất thân, hỏa đầu quân, thợ hớt tóc, người hầu tắm, thợ làm bánh, nhà vòng hoa, thợ giặt, thợ dệt, nhà làm thúng rổ, thợ đồ gốm, nhà toán số, nhà ấn bản, các công nghệ chức nghiệp khác. Chúng hưởng được kết quả thiết thực hiện tại công nghệ chức nghiệp của chúng. Chúng giúp cho tự thân được sống an lạc, hạnh phúc. Chúng giúp cho cha mẹ được sống an lạc, hạnh phúc. Chúng giúp cho cha mẹ được sống an lạc hạnh phúc. Chúng giúp cho bạn bè được sống an lạc hạnh phúc. Chúng dâng các vật cúng dường cho Sa-môn, Bà-la-môn, sự cúng dường này có ảnh hưởng đến đời sau, liên hệ đến thiên giới, thọ hưởng phước báo an lạc, thác sanh lên cõi trời. Bạch Thế Tôn, Thế Tôn có thể cho biết kết quả thiết thực hiện tại của hạnh Sa-môn chăng?
 
-\- Ðại vương có thể được. Này Ðại vương, ta sẽ hỏi Ðại vương về vấn đề này. Ðại vương hãy trả lời tùy theo ý muốn của Ðại vương.
+- Ðại vương có thể được. Này Ðại vương, ta sẽ hỏi Ðại vương về vấn đề này. Ðại vương hãy trả lời tùy theo ý muốn của Ðại vương.
 
 Ðại vương nghĩ sao? Nếu Ðại vương có một người nô bộc, dậy sớm, thức khuya, thi hành mọi mệnh lệnh của chủ, làm đẹp lòng mọi người, lời nói kính ái, chú ý từng nét mặt (của Ðại vương). Người ấy nghĩ: “Thật hy hữu thay! Thật kỳ diệu thay quả vị thác sanh của các công đức, quả dị thục của các công đức. Ðức vua Ajātasattu, con của bà Videhi của nước Magadha, là người, tôi đây là người. Vị vua Ajātasattu con bà Videhi, của nước Magadha, sống tận hưởng đầy đủ năm món dục lạc, tôi nghĩ không khác gì vị thiên thần, còn tôi là người nô bộc, làm mọi công việc, dậy sớm, thức khuya, thi hành mọi mệnh lệnh của chủ, làm đẹp lòng mọi người, lời nói kính ái, chú ý từng nét mặt (của vua). Vậy ta hãy làm các công đức như vua kia, ta hãy cạo bỏ râu tóc, khoác áo cà sa, từ bỏ gia đình xuất gia tu đạo”. Và người nô lệ ấy, một thời khác, cạo bỏ râu tóc, khoác áo cà sa, từ bỏ gia đình, sống không gia đình, xuất gia tu đạo. Sau khi xuất gia như vậy, người ấy sống chế ngự thân, sống chế ngự lời nói, sống chế ngự ý nghĩ, bằng lòng với nhu cầu tối thiểu về ăn uống, y áo, hoan hỉ sống an tịnh. Nếu những người của Ðại vương đến tâu với Ðại vương. “Ðại vương có biết chăng? Có người nô bộc của Ðại vương, làm mọi công việc, dậy sớm, thức khuya, thi hành mọi mệnh lệnh của chủ, làm đẹp lòng mọi người, lời nói kính ái, chú ý từng nét mặt (của Ðại vương). Tâu Ðại vương, người ấy đã cạo bỏ râu tóc, khoác áo cà sa, từ bỏ gia đình, sống không gia đình, xuất gia tu đạo. Sau khi xuất gia như vậy, người ấy sống chế ngự thân, chế ngự lời nói, chế ngự ý nghĩ, bằng lòng với nhu cầu tối thiểu về ăn uống, y áo, hoan hỷ sống trong an tịnh”. Này Ðại vương, Ðại vương có nói như sau chăng?: “Người ấy hãy lại với ta, hãy làm lại người nô bộc, làm mọi công việc, dậy sớm, thức khuya, thi hành mọi mệnh lệnh của chủ, làm đẹp lòng mọi người, lời nói kính ái chú ý từng nét mặt?”
 
-\- Bạch Thế Tôn, không như vậy. Trái lại chúng con kính lễ người ấy, đứng dậy trước người ấy, mời người ấy ngồi xuống ghế, cúng dường người ấy các dụng cụ như y, đồ ăn khất thực, sàng tọa, thuốc men trị bệnh và chúng con sẽ ra lệnh để bảo vệ, che chở người ấy đúng theo luật pháp.
+- Bạch Thế Tôn, không như vậy. Trái lại chúng con kính lễ người ấy, đứng dậy trước người ấy, mời người ấy ngồi xuống ghế, cúng dường người ấy các dụng cụ như y, đồ ăn khất thực, sàng tọa, thuốc men trị bệnh và chúng con sẽ ra lệnh để bảo vệ, che chở người ấy đúng theo luật pháp.
 
-\- Này Ðại vương, Ðại vương nghĩ thế nào? Nếu quả như vậy, thì đó có phải chăng là kết quả thiết thực hiện tại hạnh Sa-môn?
+- Này Ðại vương, Ðại vương nghĩ thế nào? Nếu quả như vậy, thì đó có phải chăng là kết quả thiết thực hiện tại hạnh Sa-môn?
 
-\- Bạch Thế Tôn, như vậy chính là kết quả thiết thực hiện tại của hạnh Sa-môn.
+- Bạch Thế Tôn, như vậy chính là kết quả thiết thực hiện tại của hạnh Sa-môn.
 
-\- Này Ðại vương đó là kết quả thiết thực hiện tại thứ nhất của hạnh Sa-môn mà Ta đã trình bày.
+- Này Ðại vương đó là kết quả thiết thực hiện tại thứ nhất của hạnh Sa-môn mà Ta đã trình bày.
 
-\- Bạch Thế Tôn, có thể cho biết một kết quả thiết thực hiện tại khác hơn nữa của hạnh Sa-môn?
+- Bạch Thế Tôn, có thể cho biết một kết quả thiết thực hiện tại khác hơn nữa của hạnh Sa-môn?
 
-\- Này Ðại vương, có thể được. Này Ðại vương. Ta sẽ hỏi Ðại vương về vấn đề này. Ðại vương hãy trả lời tùy theo ý muốn của Ðại vương. Ðại vương nghĩ sao? Nếu Ðại vương có một người nông phu, gia chủ, nạp thuế má, làm giàu công khố. Người ấy nghĩ: “Thật hy hữu thay! Thật kỳ diệu thay quả vị thác sanh của các công đức, quả vị thục của các công đức. Vị vua Ajātasattu, con của bà Videhi, nước Magadha, là người, tôi cũng là người. Vị vua Ajātasattu, con bà Videhi nước Magadha, sống tận hưởng đầy đủ năm món dục lạc, tôi nghĩ không khác gì vị thiên thần. Còn tôi là người nông phu, gia chủ, nạp thuế má, làm giàu công khố. Vậy ta hãy làm các công đức như vua kia. Ta hãy cạo bỏ râu tóc, khoác áo cà sa, từ bỏ gia đình, sống không gia đình, xuất gia tu đạo”. Và người nông phu ấy, một thời khác, cạo bỏ râu tóc, khoác áo cà sa, từ bỏ gia đình, sống không gia đình, xuất gia tu đạo. Sau khi xuất gia như vậy, người ấy sống chế ngự thân, chế ngự lời nói, chế ngự ý nghĩ, bằng lòng với nhu cầu tối thiểu về ăn uống, y áo, hoan hỷ sống an tịnh. Nếu những người của Ðại vương đến tâu với Ðại vương: “Ðại vương có biết chăng? Có người nông phu của Ðại vương, người gia chủ, nạp thuế má, làm giàu công khố. Tâu Ðại vương, người ấy đã cạo bỏ râu tóc, khoác áo cà sa, từ bỏ gia đình, sống không gia đình, xuất gia tu đạo. Sau khi xuất gia như vậy, người ấy sống chế ngự thân, chế ngự lời nói, chế ngự ý nghĩ, bằng lòng với nhu cầu tối thiểu về ăn uống, y áo, hoan hỷ sống an tịnh”. Này Ðại vương, Ðại vương có nói: “Người hãy đến lại với ta, hãy làm lại người nông phu, gia chủ, nạp thuế má, làm giàu công khố”?
+- Này Ðại vương, có thể được. Này Ðại vương. Ta sẽ hỏi Ðại vương về vấn đề này. Ðại vương hãy trả lời tùy theo ý muốn của Ðại vương. Ðại vương nghĩ sao? Nếu Ðại vương có một người nông phu, gia chủ, nạp thuế má, làm giàu công khố. Người ấy nghĩ: “Thật hy hữu thay! Thật kỳ diệu thay quả vị thác sanh của các công đức, quả vị thục của các công đức. Vị vua Ajātasattu, con của bà Videhi, nước Magadha, là người, tôi cũng là người. Vị vua Ajātasattu, con bà Videhi nước Magadha, sống tận hưởng đầy đủ năm món dục lạc, tôi nghĩ không khác gì vị thiên thần. Còn tôi là người nông phu, gia chủ, nạp thuế má, làm giàu công khố. Vậy ta hãy làm các công đức như vua kia. Ta hãy cạo bỏ râu tóc, khoác áo cà sa, từ bỏ gia đình, sống không gia đình, xuất gia tu đạo”. Và người nông phu ấy, một thời khác, cạo bỏ râu tóc, khoác áo cà sa, từ bỏ gia đình, sống không gia đình, xuất gia tu đạo. Sau khi xuất gia như vậy, người ấy sống chế ngự thân, chế ngự lời nói, chế ngự ý nghĩ, bằng lòng với nhu cầu tối thiểu về ăn uống, y áo, hoan hỷ sống an tịnh. Nếu những người của Ðại vương đến tâu với Ðại vương: “Ðại vương có biết chăng? Có người nông phu của Ðại vương, người gia chủ, nạp thuế má, làm giàu công khố. Tâu Ðại vương, người ấy đã cạo bỏ râu tóc, khoác áo cà sa, từ bỏ gia đình, sống không gia đình, xuất gia tu đạo. Sau khi xuất gia như vậy, người ấy sống chế ngự thân, chế ngự lời nói, chế ngự ý nghĩ, bằng lòng với nhu cầu tối thiểu về ăn uống, y áo, hoan hỷ sống an tịnh”. Này Ðại vương, Ðại vương có nói: “Người hãy đến lại với ta, hãy làm lại người nông phu, gia chủ, nạp thuế má, làm giàu công khố”?
 
-\- Bạch Thế Tôn, không như vậy. Trái lại chúng con kính nể người ấy, đứng dậy trước người ấy, mời người ấy ngồi xuống ghế, cúng dường người ấy các dụng cụ như y, đồ ăn khất thực, sàng tọa, thuốc men trị bịnh. Và chúng con sẽ ra lệnh để bảo vệ, che chở người ấy đúng theo luật pháp.
+- Bạch Thế Tôn, không như vậy. Trái lại chúng con kính nể người ấy, đứng dậy trước người ấy, mời người ấy ngồi xuống ghế, cúng dường người ấy các dụng cụ như y, đồ ăn khất thực, sàng tọa, thuốc men trị bịnh. Và chúng con sẽ ra lệnh để bảo vệ, che chở người ấy đúng theo luật pháp.
 
-\- Này Ðại vương, Ðại vương nghĩ thế nào? Nếu quả như vậy thời đó có phải là kết quả thiết thực hiện tại của hạnh Sa-môn chăng?
+- Này Ðại vương, Ðại vương nghĩ thế nào? Nếu quả như vậy thời đó có phải là kết quả thiết thực hiện tại của hạnh Sa-môn chăng?
 
-\- Bạch Thế Tôn, như vậy chính là kết quả thiết thực hiện tại của hạnh Sa-môn.
+- Bạch Thế Tôn, như vậy chính là kết quả thiết thực hiện tại của hạnh Sa-môn.
 
-\- Này Ðại vương, đó là kết quả thiết thực hiện tại của hạnh Sa-môn, mà Ta trình bày.
+- Này Ðại vương, đó là kết quả thiết thực hiện tại của hạnh Sa-môn, mà Ta trình bày.
 
 Bạch Thế Tôn, có thể cho biết một kết quả thiết thực hiện tại khác nữa của hạnh Sa-môn, vi diệu hơn, thù thắng hơn những kết quả thiết thực hiện tại của hạnh Sa-môn vừa kể trên?
 
-\- Này Ðại vương có thể được. Này Ðại vương, hãy lóng tai nghe và khéo tác ý, Ta sẽ giảng.
+- Này Ðại vương có thể được. Này Ðại vương, hãy lóng tai nghe và khéo tác ý, Ta sẽ giảng.
 
-\- Vâng, Thế Tôn. Vua Ajātasattu con bà Videhi vua xứ Magadha trả lời Thế Tôn. Thế Tôn nói
+- Vâng, Thế Tôn. Vua Ajātasattu con bà Videhi vua xứ Magadha trả lời Thế Tôn. Thế Tôn nói
 
 —Này Ðại vương, nay ở đời, Như Lai xuất hiện là bậc A-la-hán, Chánh Biến Tri, Minh Hạnh Túc, Thiện Thệ, Thế Gian Giải, Vô Thượng Sĩ, Ðiều Ngự Trượng Phu, Thiên Nhơn Sư, Phật, Thế Tôn. Như Lai sau khi riêng tự chứng ngộ với thượng trí thế giới này với thiên giới, ma giới, phạm thiên giới, gồm cả thế giới này với Sa-môn, Bà-la-môn, Thiên Nhơn, lại tuyên thuyết điều Ngài đã chứng ngộ. Ngài thuyết pháp sơ thiện, trung thiện, hậu thiện đầy đủ văn nghĩa, Ngài truyền dạy phạm hạnh hoàn toàn đầy đủ thanh tịnh.
 
@@ -298,11 +296,11 @@ Này Ðại vương, đó là quả thiết thực hiện tại của hạnh Sa-
 
 Ðược nghe nói vậy, Ajātasattu, con bà Videhi, vua nước Magadha bạch Thế Tôn: “Thật là vi diệu thay, bạch Thế Tôn! Thật là vi diệu thay, bạch Thế Tôn! Bạch Thế Tôn, như người dựng đứng lại những gì bị che kín, chỉ đường cho kẻ bị lạc hướng, đem đèn sáng vào trong bóng tối để những ai có mắt có thể thấy sắc. Cũng vậy, Chánh pháp đã được Thế Tôn dùng nhiều phương tiện trình bày, giải thích. Và nay con xin quy y Thế Tôn, quy y Pháp và quy y Tỷ-kheo Tăng. Mong Thế Tôn nhận con làm đệ tử, từ nay trở đi cho đến mạng chúng, con trọn đời quy ngưỡng. Bạch Thế Tôn, con đã phạm một trọng tội. Vì ngu si, vì vô minh, vì bất thiện, con đã hại mạng phụ vương con, một vị vua chơn chánh, để đạt vương quyền. Mong Thế Tôn nhận cho con tội ấy là một tội để con ngăn chận về tương lai”.
 
-\- Ðại vương, thật là một trọng tội. Vì ngu si, vì vô minh, vì bất thiện, Ðại vương đã hại mạng phụ vương, một vị vua chơn chánh, để đoạt vương quyền. Vì Ðại vương đã thấy tội ấy là một tội, đã thú tội đúng với Chánh pháp, Ta nhận tội ấy cho Ðại vương. Ðó là một sự tiến bộ, này Ðại vương, trong luật pháp của bậc Thánh, những ai thấy tội là tội, thú tội đúng với Chánh pháp, và ngăn chận ở tương lai.
+- Ðại vương, thật là một trọng tội. Vì ngu si, vì vô minh, vì bất thiện, Ðại vương đã hại mạng phụ vương, một vị vua chơn chánh, để đoạt vương quyền. Vì Ðại vương đã thấy tội ấy là một tội, đã thú tội đúng với Chánh pháp, Ta nhận tội ấy cho Ðại vương. Ðó là một sự tiến bộ, này Ðại vương, trong luật pháp của bậc Thánh, những ai thấy tội là tội, thú tội đúng với Chánh pháp, và ngăn chận ở tương lai.
 
 Ðược nghe nói vậy, Ajātasattu, con bà Videhi, vua nước Magadha bạch Thế Tôn: “Bạch Thế Tôn, nay chúng con phải cáo từ, chúng con có nhiều bổn phận, nhiều việc phải làm”.
 
-\- Ðại vương hãy làm những gì Ðại vương nghĩ ra là phải thời.
+- Ðại vương hãy làm những gì Ðại vương nghĩ ra là phải thời.
 
 Lúc bấy giờ, Ajātasattu, con bà Videhi, vua nước Magadha hoan hỷ tán thán lời dạy của Thế Tôn, từ chỗ ngồi đứng dậy, đảnh lễ Thế Tôn, thân phía hữu hướng về Thế Tôn và từ biệt.
 
@@ -311,14 +309,3 @@ Lúc bấy giờ, khi Ajātasattu, con bà Videhi, vua nước Magadha đi chưa
 —Này các Tỷ-kheo, tâm vua ấy rất ăn năn, này các Tỷ-kheo, tâm vua ấy rất hối lỗi. Nếu vua ấy không hại mạng vua cha, một vị vua rất chân chánh, thì tại ngay chỗ ngồi này, vua ấy đã chứng được pháp nhãn, không trần cấu, không ô uế.
 
 Thế Tôn thuyết pháp như vậy. Các Tỷ-kheo ấy hoan hỷ tín thọ lời Thế Tôn dạy.
-
-Hòa thượng Thích Minh Châu dịch Việt
-
-\[[Bản dịch Anh ngữ](truong02e.htm)\]
-
-Chân thành cám ơn anh HDC và nhóm Phật tử VH đã có thiện tâm gửi tặng ấn bản điện tử.  
-(Bình Anson hiệu đính, dựa theo bản Anh ngữ “The Long Discourses of the Buddha”, Maurice Walshe dịch, 1987).
-
-Hiệu đính: 15-06-2007
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,6 @@
- 
-
 Trường Bộ Kinh
 
-# 5\. Kinh Kūṭadanta (Cứu-la-đàn-đầu)
+# 5. Kinh Kūṭadanta (Cứu-la-đàn-đầu)
 
 Như vầy tôi nghe. Một thời đức Thế Tôn đang du hành trong xứ Magadha (Ma-kiệt-đà) cùng với đại chúng Tỷ-kheo khoảng năm trăm vị và đến tại một làng Bà-la-môn ở Magadha tên là Khānumata (Khứ—nậu-bà-đế). Và tại đây, đức Thế Tôn trú tại vườn Ambalatthikà ở Khānumata. Lúc bấy giờ Bà-la-môn Kūṭadanta ở tại Khānumata, một chỗ dân cư đông đúc, cây cỏ, ao nước, lúa gạo phì nhiêu, một vương địa do vua Bimbisāra (Tần-bà-ta-la) vua nước Magadha cấp, một ân tứ của vua, một tịnh ấp. Lúc bấy giờ, một đàn tế lớn đang được thiết lập cho Bà-la-môn Kūṭadanta, bảy trăm con trâu đực, bảy trăm con nghé đực lớn, và bảy trăm con nghé cái lớn, bảy trăm con dê và bảy trăm con cừu đã được dắt đến trụ tế lễ, cho đàn tế.
 
@@ -12,7 +10,7 @@ Lúc bấy giờ, Bà-la-môn Kūṭadanta đi lên trên lầu để nghỉ tr�
 
 —Này người gác cửa, vì sao các Bà-la-môn và gia chủ ở Khānumata, từng đoàn, từng đoàn, lũ lượt đi ra khỏi Khānumata và đến tại Ambalatthikà?
 
-\- Tôn giả, có Sa-môn Gotama, dòng họ Thích-ca, xuất gia từ gia tộc Thích-ca, đang du hành trong nước Magadha với đại chúng Tỷ-kheo khoảng năm trăm vị, đến tại Khānumata, và tại đấy trú ở Ambalatthikà. Tiếng đồn tốt đẹp sau đây được truyền đi về Thế Tôn Gotama: “Ðây là đức Thế Tôn, bậc A-la-hán, Chánh Ðẳng Giác, Minh Hạnh Túc, Thiện Thệ, Thế Gian Giải, Vô Thượng Sĩ, Ðiều Ngự Trượng Phu, Thiên Nhân Sư, Phật, Thế Tôn”. Nay những người ấy đi đến yết kiến Tôn giả Gotama.
+- Tôn giả, có Sa-môn Gotama, dòng họ Thích-ca, xuất gia từ gia tộc Thích-ca, đang du hành trong nước Magadha với đại chúng Tỷ-kheo khoảng năm trăm vị, đến tại Khānumata, và tại đấy trú ở Ambalatthikà. Tiếng đồn tốt đẹp sau đây được truyền đi về Thế Tôn Gotama: “Ðây là đức Thế Tôn, bậc A-la-hán, Chánh Ðẳng Giác, Minh Hạnh Túc, Thiện Thệ, Thế Gian Giải, Vô Thượng Sĩ, Ðiều Ngự Trượng Phu, Thiên Nhân Sư, Phật, Thế Tôn”. Nay những người ấy đi đến yết kiến Tôn giả Gotama.
 
 Bà-la-môn Kūṭadanta liền suy nghĩ như sau: “Ta nghe nói: “Sa-môn Gotama am hiểu ba cách thức tế tự và mười sáu tế pháp”. Ta không biết ba cách thức tế tự và mười sáu tế pháp, và ta muốn cử hành lễ đại tế. Vậy ta hãy đến hỏi Sa-môn Gotama ba cách thức tế tự và mười sáu tế pháp”.
 
@@ -20,7 +18,7 @@ Rồi Bà-la-môn Kūṭadanta gọi người giữ cửa kia
 
 —Này người giữ cửa, hãy đi đến các Bà-la-môn và gia chủ ở Khānumata, khi đến nơi, hãy nói với những Bà-la-môn và gia chủ ở Khānumata như sau: “Bà-la-môn Kūṭadanta có nói: “Này các Hiền giả, hãy chờ đợi, Bà-la-môn Kūṭadanta sẽ thân hành đến yết kiến Sa-môn Gotama”.
 
-\- Dạ vâng.
+- Dạ vâng.
 
 Người gác cửa ấy vâng theo lời bảo của Bà-la-môn Kūṭadanta, đi đến các Bà-la-môn và gia chủ ở Khānumata, khi đến xong liền nói với Bà-la-môn và gia chủ ở Khānumata: “Bà-la-môn Kūṭadanta có nói như vầy: “Này các Hiền giả, hãy chờ đợi Bà-la-môn Kūṭadanta sẽ tự thân hành đến yết kiến Sa-môn Gotama”.
 
@@ -28,11 +26,11 @@ Lúc bấy giờ có khoảng vài trăm Bà-la-môn ở Khānumata với ý đ�
 
 —Có phải Tôn giả Kūṭadanta sẽ đến yết kiến Sa-môn Gotama?
 
-\- Này các Hiền Giả, đó là ý định của ta, ta sẽ đến yết kiến Sa-môn Gotama.
+- Này các Hiền Giả, đó là ý định của ta, ta sẽ đến yết kiến Sa-môn Gotama.
 
-\- Tôn giả Kūṭadanta chớ có đến yết kiến Sa-môn Gotama. Thật không xứng đáng cho Tôn giả Kūṭadanta đến yết kiến Sa-môn Gotama. Nếu Tôn giả Kūṭadanta đến yết kiến Sa-môn Gotama, thì danh tiếng của Tôn giả Kūṭadanta bị hao tổn, danh tiếng của Sa-môn Gotama được tăng trưởng. Vì danh tiếng của Tôn giả Kūṭadanta bị hao tổn và danh tiếng của Sa-môn Gotama được tăng trưởng, do điểm này thật không xứng đáng cho Tôn giả Kūṭadanta đến yết kiến Sa-môn Gotama. Trái lại thật xứng đáng cho Sa-môn Gotama đến yết kiến Tôn giả Kūṭadanta.
+- Tôn giả Kūṭadanta chớ có đến yết kiến Sa-môn Gotama. Thật không xứng đáng cho Tôn giả Kūṭadanta đến yết kiến Sa-môn Gotama. Nếu Tôn giả Kūṭadanta đến yết kiến Sa-môn Gotama, thì danh tiếng của Tôn giả Kūṭadanta bị hao tổn, danh tiếng của Sa-môn Gotama được tăng trưởng. Vì danh tiếng của Tôn giả Kūṭadanta bị hao tổn và danh tiếng của Sa-môn Gotama được tăng trưởng, do điểm này thật không xứng đáng cho Tôn giả Kūṭadanta đến yết kiến Sa-môn Gotama. Trái lại thật xứng đáng cho Sa-môn Gotama đến yết kiến Tôn giả Kūṭadanta.
 
-\- Lại Tôn giả Kūṭadanta thiện sanh cả từ mẫu hệ và phụ hệ, huyết thống thanh tịnh cho đến bảy đời tổ phụ, không bị một vết nhơ nào, không bị một dèm pha nào về vấn đề huyết thống thọ sanh. Vì Tôn giả Kūṭadanta thiện sanh cả từ mẫu hệ và phụ hệ, huyết thống thanh tịnh cho đến bảy đời tổ phụ, không bị một vết nhơ nào, không bị một dèm pha nào về vấn đề huyết thống thọ sinh; do điểm này, thật không xứng đáng cho Tôn giả Kūṭadanta đến yết kiến Sa-môn Gotama, trái lại thật xứng đáng cho Sa-môn Gotama đến yết kiến Tôn giả Kūṭadanta.
+- Lại Tôn giả Kūṭadanta thiện sanh cả từ mẫu hệ và phụ hệ, huyết thống thanh tịnh cho đến bảy đời tổ phụ, không bị một vết nhơ nào, không bị một dèm pha nào về vấn đề huyết thống thọ sanh. Vì Tôn giả Kūṭadanta thiện sanh cả từ mẫu hệ và phụ hệ, huyết thống thanh tịnh cho đến bảy đời tổ phụ, không bị một vết nhơ nào, không bị một dèm pha nào về vấn đề huyết thống thọ sinh; do điểm này, thật không xứng đáng cho Tôn giả Kūṭadanta đến yết kiến Sa-môn Gotama, trái lại thật xứng đáng cho Sa-môn Gotama đến yết kiến Tôn giả Kūṭadanta.
 
 Lại Tôn giả Kūṭadanta là nhà giàu có, đại phú, sung túc …
 
@@ -126,7 +124,7 @@ Sau khi ngồi xuống một bên, Bà-la-môn Kūṭadanta bạch đức Thế 
 
 —Tôn giả Gotama, tôi được nghe như sau: “Sa-môn am hiểu ba cách thức tế tự và mười sáu tế vật”. Tôi không biết đến ba tế tự và mười sáu tế vật và tôi muốn cử hành đại tế tự. Tốt đẹp thay nếu Tôn giả Gotama giảng cho tôi ba cách thức tế tự và mười sáu tế vật.
 
-\- Này Bà-la-môn, vậy người hãy nghe và suy nghĩ kỹ, ta sẽ nói
+- Này Bà-la-môn, vậy người hãy nghe và suy nghĩ kỹ, ta sẽ nói
 
 —Dạ vâng.
 
@@ -136,7 +134,7 @@ Bà-la-môn Kūṭadanta trả lời đức Thế Tôn. Ðức Thế Tôn thuy�
 
 Này Bà-la-môn, khi nghe nói vậy, vị Bà-la-môn chủ tế tâu với vua Mahāvijita như sau: “Ðại vương, vương quốc (này) chịu tai ương, chịu ách nạn, đầy rẫy bọn cướp làng, đầy rẫy bọn cướp ấp, đầy rẫy bọn cướp đô thị, đầy rẫy bọn cướp đường. Trong quốc độ chịu tai ương, chịu ách nạn như vậy, nếu Tôn vương đánh thuế má mới, như vậy Tôn vương có ý nghĩ: “Ta hãy trừ diệt bọn giặc cỏ này, hoặc bằng tử hình, hoặc bằng cấm cố, hoặc bằng phạt vạ, hoặc bằng khiển trách, hoặc bằng tẩn xuất”. Nhưng bọn giặc cỏ này sẽ không được trừ diệt một cách hoàn toàn. Những bọn còn lại không bị hình phạt sau lại tiếp tục hoành hành vương quốc này. Nhưng nếu theo phương pháp sau đây bọn giặc cỏ ấy sẽ được trừ diệt một cách hoàn toàn: những vị nào trong quốc độ nhà vua nỗ lực về nông nghiệp và mục súc, Tôn vương hãy cấp cho những vị ấy hột giống và thực vật; những vị nào trong quốc độ nhà vua nỗ lực về thương nghiệp, Tôn vương hãy cấp cho những vị ấy vốn đầu tư; những vị nào trong quốc độ nhà vua nỗ lực về quan chức, Tôn vương hãy cấp cho những vị ấy vật thực và lương bổng. Và những người này chuyên tâm vào nghề riêng của mình sẽ không nhiễu hại quốc độ nhà vua. Và ngân quỹ nhà vua sẽ được dồi dào, quốc độ sẽ được an cư lạc nghiệp, không có tai ương, ách nạn và dân chúng hoan hỷ vui vẻ, cho con nhảy trên ngực, sống chẳng khác gì với nhà cửa mở rộng”. “Vâng, Tôn giả”.
 
-\- Này Bà-la-môn, vua Mahāvijita vâng theo lời khuyên của vị Bà-la-môn chủ tế: những vị nào trong quốc độ nhà vua nỗ lực về nông nghiệp và mục súc, Tôn vương Mahāvijita cấp cho những vị ấy hột giống và thực vật; những vị nào trong quốc độ nhà vua nỗ lực về thương nghiệp, Tôn vương Mahāvijita cấp cho những vị ấy vốn đầu tư; những vị nào trong quốc độ nhà vua nỗ lực về quan chức, Tôn vương Mahāvijita cấp cho những vị ấy vật thực và lương bổng. Và những người này chuyên tâm về nghề của mình không còn nhiễu hại quốc độ nhà vua; ngân quỹ nhà vua được dồi dào, quốc độ được an cư lạc nghiệp không có tai ương ách nạn và dân chúng hoan hỷ vui vẻ, cho con nhảy trên ngực, sống chẳng khác gì với nhà cửa mở rộng.
+- Này Bà-la-môn, vua Mahāvijita vâng theo lời khuyên của vị Bà-la-môn chủ tế: những vị nào trong quốc độ nhà vua nỗ lực về nông nghiệp và mục súc, Tôn vương Mahāvijita cấp cho những vị ấy hột giống và thực vật; những vị nào trong quốc độ nhà vua nỗ lực về thương nghiệp, Tôn vương Mahāvijita cấp cho những vị ấy vốn đầu tư; những vị nào trong quốc độ nhà vua nỗ lực về quan chức, Tôn vương Mahāvijita cấp cho những vị ấy vật thực và lương bổng. Và những người này chuyên tâm về nghề của mình không còn nhiễu hại quốc độ nhà vua; ngân quỹ nhà vua được dồi dào, quốc độ được an cư lạc nghiệp không có tai ương ách nạn và dân chúng hoan hỷ vui vẻ, cho con nhảy trên ngực, sống chẳng khác gì với nhà cửa mở rộng.
 
 Rồi này Bà-la-môn, vua Mahāvijita cho mời vị Bà-la-môn chủ tế và nói: “Này khanh, ta đã trừ diệt bọn giặc cỏ nhờ áp dụng phương pháp này, ngân quỹ của ta được dồi dào, quốc độ được an cư lạc nghiệp, không có tai ương ách nạn, và dân chúng hoan hỷ, vui vẻ, cho con nhảy trên ngực, sống chẳng khác gì với nhà cửa mở rộng. Này Bà-la-môn, ta muốn tổ chức đại tế đàn, khanh hãy khuyên ta như thế nào để ta được hưởng hạnh phúc an lạc lâu ngày?”: “Vậy Tôn vương hãy cho mời tất cả những vị Sát-đế-lỵ trong quốc độ nhà vua cùng với các chư hầu cả tại tỉnh thành và ngoài tỉnh thành và nói: “Này các khanh, ta muốn tổ chức đại tế đàn. Các khanh hãy tán thành để ta được hưởng hạnh phúc an lạc lâu ngày”. Ðối với tất cả những đại thần trong quốc độ nhà vua, cùng với quyến thuộc cả tại tỉnh thành và ngoài tỉnh thành … tất cả những gia chủ phú hào cả tại tỉnh thành và ngoài tỉnh thành, Tôn vương hãy mời những vị ấy và nói: “Này các khanh, Ta muốn tổ chức đại tế đàn. Các khanh hãy tán thành để ta được hưởng an lạc hạnh phúc lâu dài”.
 
@@ -176,53 +174,53 @@ Khi nghe nói như vậy những Bà-la-môn ấy la to hét lớn: “Cao quý 
 
 Này Bà-la-môn, ta công nhận tự mình đứng ra tổ chức lễ tế đàn hay khiến người tổ chức lễ tế đàn, và sau khi thân hoại mạng chung được sanh ở thiện thú, cõi trời ở đời này. Lúc bấy giờ ta là vị Bà-la-môn chủ tế đã đứng ra chủ lễ tế đàn này.
 
-\- Này Tôn giả Gotama, có tế đàn nào khác ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo hơn, nhiều lợi ích hơn tế đàn với ba tế pháp và mười sáu tế vật này?
+- Này Tôn giả Gotama, có tế đàn nào khác ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo hơn, nhiều lợi ích hơn tế đàn với ba tế pháp và mười sáu tế vật này?
 
-\- Này Bà-la-môn, có một tế đàn khác ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo hơn, nhiều lợi ích hơn tế đàn với ba tế pháp và mười sáu tế vật này.
+- Này Bà-la-môn, có một tế đàn khác ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo hơn, nhiều lợi ích hơn tế đàn với ba tế pháp và mười sáu tế vật này.
 
-\- Tôn giả Gotama, tế đàn khác ấy là gì mà ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo, nhiều lợi ích hơn tế đàn với ba tế pháp và mười sáu tế vật này?
+- Tôn giả Gotama, tế đàn khác ấy là gì mà ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo, nhiều lợi ích hơn tế đàn với ba tế pháp và mười sáu tế vật này?
 
-\- Này Bà-la-môn, chính là những bố thí thường xuyên, những tế đàn thuận lợi, cúng dường cho những vị xuất gia có giới đức. Tế đàn ấy, này Bà-la-môn ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp và mười sáu tế vật này.
+- Này Bà-la-môn, chính là những bố thí thường xuyên, những tế đàn thuận lợi, cúng dường cho những vị xuất gia có giới đức. Tế đàn ấy, này Bà-la-môn ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp và mười sáu tế vật này.
 
 Tôn giả Gotama, do nhân gì, do duyên gì mà những bố thí thường xuyên, những tế đàn thuận lợi cúng dường cho những vị xuất gia có giới đức, tế đàn ấy lại ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn, tế đàn với ba tế pháp và mười sáu tế vật này?
 
-\- Này Bà-la-môn, các vị A-la-hán hay những vị đã bước vào con đường A-la-hán không đi đến tế đàn như vậy. Vì cớ sao?
+- Này Bà-la-môn, các vị A-la-hán hay những vị đã bước vào con đường A-la-hán không đi đến tế đàn như vậy. Vì cớ sao?
 
 Này Bà-la-môn, vì tại đấy có thấy những sự đánh đập bằng roi gậy, có những sự túm cổ lôi kéo. Do vậy các vị A-la-hán hay những vị đã bước vào con đường A-la-hán không đi đến tế đàn như vậy. Những bố thí thường xuyên, những tế đàn thuận lợi, cúng dường cho những vị xuất gia có giới đức, này Bà-la-môn, các vị A-la-hán hay những vị đã bước vào con đường A-la-hán đi đến những tế đàn như vậy. Vì cớ sao? Này Bà-la-môn vì tại đấy không thấy những sự đánh đập bằng roi gậy, không có những sự tóm cổ lôi kéo. Do vậy các vị A-la-hán hay những vị đã bước vào con đường A-la-hán đi đến tế đàn như vậy. Này Bà-la-môn, do nhân ấy, do duyên ấy, những bố thí thường xuyên, những tế đàn thuận lợi cúng dường cho những vị xuất gia có giới đức, tế đàn ấy ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp và mười sáu tế vật này.
 
-\- Tôn giả Gotama, có tế đàn nào khác ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật và những bố thí thường xuyên những tế đàn thuận lợi này?
+- Tôn giả Gotama, có tế đàn nào khác ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật và những bố thí thường xuyên những tế đàn thuận lợi này?
 
-\- Này Bà-la-môn có một tế đàn khác, ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật và những bố thí thường xuyên, những tế đàn thuận lợi này.
+- Này Bà-la-môn có một tế đàn khác, ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật và những bố thí thường xuyên, những tế đàn thuận lợi này.
 
-\- Này Tôn giả Gotama, tế đàn khác ấy là gì, mà ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật và những bố thí thường xuyên, những tế đàn thuận lợi này?
+- Này Tôn giả Gotama, tế đàn khác ấy là gì, mà ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật và những bố thí thường xuyên, những tế đàn thuận lợi này?
 
-\- Này Bà-la-môn, chính là sự xây dựng tinh xá cho bốn phương Tăng. Tế đàn ấy ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, và những bố thí thường xuyên, những tế đàn thuận lợi này.
+- Này Bà-la-môn, chính là sự xây dựng tinh xá cho bốn phương Tăng. Tế đàn ấy ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, và những bố thí thường xuyên, những tế đàn thuận lợi này.
 
 Tôn giả Gotama, có tế đàn nào khác, ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp mười sáu tế vật, những bố thí thường xuyên, những tế đàn thuận lợi và sự cúng dường tinh xá này?
 
-\- Này Bà-la-môn, có một tế đàn khác, ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, những bố thí thường xuyên, những tế đàn thuận lợi và sự cúng dường tinh xá này.
+- Này Bà-la-môn, có một tế đàn khác, ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, những bố thí thường xuyên, những tế đàn thuận lợi và sự cúng dường tinh xá này.
 
-\- Tôn giả Gotama, tế đàn khác ấy là gì, mà ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, những bố thí thường xuyên, những tế đàn thuận lợi và sự cúng dường tinh xá này?
+- Tôn giả Gotama, tế đàn khác ấy là gì, mà ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, những bố thí thường xuyên, những tế đàn thuận lợi và sự cúng dường tinh xá này?
 
-\- Này Bà-la-môn, một ai với tâm thành quy y Phật, quy y Pháp, quy y Tăng, này Bà-la-môn, tế đàn ấy ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, đàn thí thuận lợi và sự cúng dường tinh xá này.
+- Này Bà-la-môn, một ai với tâm thành quy y Phật, quy y Pháp, quy y Tăng, này Bà-la-môn, tế đàn ấy ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, đàn thí thuận lợi và sự cúng dường tinh xá này.
 
 Tôn giả Gotama, có tế đàn nào khác, ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá và những sự quy y này?
 
-\- Này Bà-la-môn, có một tế đàn khác, ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá và những sự quy y này.
+- Này Bà-la-môn, có một tế đàn khác, ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá và những sự quy y này.
 
-\- Tôn giả Gotama, tế đàn khác ấy là gì, mà ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật ấy, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá và những sự quy y ấy?
+- Tôn giả Gotama, tế đàn khác ấy là gì, mà ít phiền tạp hơn, ít nhiễu hại hơn, nhiều quả báo hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật ấy, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá và những sự quy y ấy?
 
-\- Này Bà-la-môn, một ai với tâm thành thọ trì những giới luật không sát sanh, không thâu đạo, không tà dâm, không vọng ngữ, không uống rượu.
+- Này Bà-la-môn, một ai với tâm thành thọ trì những giới luật không sát sanh, không thâu đạo, không tà dâm, không vọng ngữ, không uống rượu.
 
 Này Bà-la-môn tế đàn ấy ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá và những sự quy y này.
 
-\- Này Tôn giả Gotama, có tế đàn nào khác, ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá, những sự quy y và những giới luật này?
+- Này Tôn giả Gotama, có tế đàn nào khác, ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá, những sự quy y và những giới luật này?
 
-\- Này Bà-la-môn, có một tế đàn khác ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá, những sự quy y, những giới luật này.
+- Này Bà-la-môn, có một tế đàn khác ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá, những sự quy y, những giới luật này.
 
-\- Tôn giả Gotama, tế đàn ấy là gì mà ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá, những sự quy y và những giới luật này?
+- Tôn giả Gotama, tế đàn ấy là gì mà ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn tế đàn với ba tế pháp, mười sáu tế vật, sự bố thí thường xuyên, những tế đàn thuận lợi, sự cúng dường tinh xá, những sự quy y và những giới luật này?
 
-\- Này Bà-la-môn, ở đây đức Như Lai sanh ra đời, Ứng Cúng, Chánh Ðẳng Giác … \[tương tự như kinh ["Sa-môn quả", đoạn kinh 40–98](../../dn2/vn/#wp40)\]. Như vậy, này Bà-la-môn, vị Tỷ-kheo thành tựu giới hạnh.
+- Này Bà-la-môn, ở đây đức Như Lai sanh ra đời, Ứng Cúng, Chánh Ðẳng Giác … \[tương tự như kinh ["Sa-môn quả", đoạn kinh 40–98](../../dn2/vn/#wp40)\]. Như vậy, này Bà-la-môn, vị Tỷ-kheo thành tựu giới hạnh.
 
 … chứng và an trú sơ thiền. Này Bà-la-môn, tế đàn này ít phiền tạp hơn, ít nhiễu hại hơn, nhiều kết quả hơn, nhiều lợi ích hơn những tế đàn trước.
 
@@ -239,12 +237,3 @@ Khi ấy Bà-la-môn Kūṭadanta thấy pháp, chứng pháp, ngộ pháp, th�
 Ðức Thế Tôn im lặng nhận lời. Lúc bấy giờ Bà-la-môn Kūṭadanta được biết đức Thế Tôn đã nhận lời, liền từ chỗ ngồi đứng dậy, đảnh lễ đức Thế Tôn, thân phía hữu hướng về đức Phật và từ biệt … Rồi Bà-la-môn Kūṭadanta khi đêm vừa tàn, liền làm cho sẵn sàng tại nhà các món thượng vị loại cứng và loại mềm, rồi báo thì giờ cho đức Thế Tôn: “Giờ đã đến, Tôn giả Gotama, cơm đã sẵn sàng”.
 
 Khi ấy đức Thế Tôn buổi sáng đắp y, đem theo y bát và cùng với chúng Tỷ-kheo đi đến cư xá của Bà-la-môn Kūṭadanta, khi đi đến liền ngồi trên chỗ đã được soạn sẵn. Bà-la-môn Kūṭadanta tự tay làm cho chúng Tỷ-kheo với đức Phật là vị cầm đầu, thỏa mãn với những món thượng vị, loại cứng và loại mềm. Lúc bấy giờ Bà-la-môn Kūṭadanta, sau khi được biết đức Thế Tôn dùng cơm đã xong, đã rửa tay và bát, liền lấy một ghế thấp khác và ngồi xuống một bên. Sau khi Bà-la-môn Kūṭadanta ngồi xuống một bên, đức Thế Tôn với một thời thuyết pháp giảng dạy, khích lệ, kích thích và làm cho Bà-la-môn Kūṭadanta hoan hỷ rồi từ chỗ ngồi đứng dậy và từ biệt.
-
-Hòa thượng Thích Minh Châu dịch Việt
-
-Chân thành cám ơn anh HDC và nhóm Phật tử VH đã có thiện tâm gửi tặng ấn bản điện tử.  
-(Bình Anson hiệu đính, dựa theo bản Anh ngữ “The Long Discourses of the Buddha”, Maurice Walshe dịch, 1987).
-
-Hiệu đính: **16–04–2004**
-
-Prepared for SuttaCentral by Blake Walsh.
