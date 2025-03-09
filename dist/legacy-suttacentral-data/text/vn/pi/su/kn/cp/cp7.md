@@ -1,6 +1,6 @@
 HẠNH TẠNG
 
-# 7\. Hạnh của Hoàng Tử Canda
+# 7. Hạnh của Hoàng Tử Canda
 
 Vào một thời điểm khác nữa, khi ta là vị hoàng tử tên Canda, con trai của Ekaràja, ở tại thành phố Pupphavatī.
 
@@ -15,9 +15,3 @@ Tương tợ y như thế, ngay cả việc bố thí đến người khác vậ
 Biết được năng lực của chân lý ấy, ta đã ban phát vật bố thí kiếp này đến kiếp khác. Ta không suy giảm việc bố thí nhằm thành tựu quả vị Toàn Giác.
 
 Hạnh của Hoàng Tử Canda là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

@@ -2,7 +2,7 @@ HẠNH TẠNG
 
 I. SỰ TOÀN HẢO VỀ BỐ THÍ
 
-# 1\. Hạnh của (Đức Bồ-tát) Akitti
+# 1. Hạnh của (Đức Bồ-tát) Akitti
 
 Kính lễ đức Thế Tôn, bậc A-la-hán, đấng Chánh Biến Tri!
 
@@ -27,9 +27,3 @@ Nếu như ta có được một vị xứng đáng để cúng dường thì ta
 Trong khi bố thí phẩm vật cho vị ấy, ta đã không mong cầu danh và lợi. Ta đã thực hiện những hành động ấy trong khi ước mong phẩm vị Toàn Tri.
 
 Hạnh của (đức Bồ-tát) Akitti là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

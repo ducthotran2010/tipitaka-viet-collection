@@ -1,6 +1,6 @@
 HẠNH TẠNG
 
-# 3\. Hạnh của (Đức Bồ-tát) Kurudhamma
+# 3. Hạnh của (Đức Bồ-tát) Kurudhamma
 
 Vào một thời điểm khác nữa, khi ta là vị vua tên Dhanañjaya ở tại kinh thành Indapattha, và được thuần thục về mười thiện nghiệp.
 
@@ -19,9 +19,3 @@ _Con voi là tối ưu trong việc chiến thắng ở trận tiền, được 
 Ta có thể bố thí luôn cả toàn bộ vương quốc của ta. Ta có thể bố thí cả thân mạng của mình. Ðối với ta, quả vị Toàn Tri là yêu quý; vì thế ta đã bố thí con long tượng.
 
 Hạnh của (đức Bồ-tát) Kurudhamma là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

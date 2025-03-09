@@ -1,6 +1,6 @@
 HẠNH TẠNG
 
-# 2\. Hạnh của (Đức Bồ-tát) Saṅkha
+# 2. Hạnh của (Đức Bồ-tát) Saṅkha
 
 Vào một thời điểm khác nữa, khi ta là vị Bà-la-môn tên gọi Saṅ-kha. Có ý định băng qua đại dương, ta đã đi đến bến tàu.
 
@@ -21,9 +21,3 @@ Sau khi suy nghĩ như thế, ta đã cởi ra đôi dép, rồi đảnh lễ �
 Mặc dầu ta có cơ thể mảnh mai và được nuôi dưỡng cẩn thận gấp trăm lần so với vị ấy, tuy nhiên trong khi làm tròn đủ hạnh bố thí, ta cũng đã cúng dường đến vị ấy như thế.
 
 Hạnh của (đức Bồ-tát) Saṅkha là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

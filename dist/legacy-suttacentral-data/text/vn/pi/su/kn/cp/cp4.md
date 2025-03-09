@@ -1,6 +1,6 @@
 HẠNH TẠNG
 
-# 4\. Hạnh của (Đức Bồ-tát) Mahāsudassana
+# 4. Hạnh của (Đức Bồ-tát) Mahāsudassana
 
 Tại thành phố ấy, ta đã cho thông báo ba lần trong ngày ở khắp các nơi rằng: “_Ai muốn (hoặc) mong mỏi vật gì? Của cải gì nên được ban phát? (Ban phát) đến ai?_
 
@@ -19,9 +19,3 @@ Cũng giống như người bị bệnh, sau khi làm hài lòng vị thầy thu
 Tương tợ y như thế, khi biết được (điều ấy), để làm viên mãn (pháp bố thí) không bị thiếu sót và làm cho đầy đủ tâm ý còn khiếm khuyết, ta đã ban phát vật thí cho những người cầu xin, không luyến tiếc, không mong mỏi sự đền đáp nhằm thành tựu quả vị Toàn Giác.
 
 Hạnh của (đức Bồ-tát) Mahāsudassana là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

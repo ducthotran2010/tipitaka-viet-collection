@@ -1,6 +1,6 @@
 HẠNH TẠNG
 
-# 8\. Hạnh của Đức Vua Sivi
+# 8. Hạnh của Đức Vua Sivi
 
 Ở tại thành phố có tên gọi là Ariṭṭha, ta đã là vị Sát-đế-lỵ tên Sivi. Vào lúc ngồi ở tòa lâu đài quý báu, ta đã suy nghĩ như vầy:
 
@@ -35,9 +35,3 @@ Trong khi chuẩn bị bố thí, khi đang bố thí, khi tặng vật đã đ�
 Hai con mắt không có bị ta ghét bỏ, bản thân không có bị ta ghét bỏ, đối với ta quả vị Toàn Giác là yêu quý; vì thế ta đã bố thí con mắt.
 
 Hạnh của Đức Vua Sivi là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.

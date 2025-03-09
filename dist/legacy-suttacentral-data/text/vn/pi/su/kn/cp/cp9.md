@@ -1,6 +1,6 @@
 HẠNH TẠNG
 
-# 9\. Hạnh của (Đức Bồ-tát) Vessantara
+# 9. Hạnh của (Đức Bồ-tát) Vessantara
 
 Người mẹ ruột của ta là nữ nhân dòng Sát-đế-lỵ tên Phusatī. Bà ấy là hoàng hậu yêu quý của (Chúa Trời) Sakka vào những kiếp sống trước.
 
@@ -119,9 +119,3 @@ Khi ấy, bảy loại châu báu đã đổ xuống cơn mưa, có đám mây l
 Ngay cả trái đất vô tư này không nhận thức được nỗi niềm hạnh phúc và khổ đau, nó cũng đã rung chuyển bảy lần bởi vì năng lực bố thí của ta.
 
 Hạnh của (đức Bồ-tát) Vessantara là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Bhikkhu Sujato.
