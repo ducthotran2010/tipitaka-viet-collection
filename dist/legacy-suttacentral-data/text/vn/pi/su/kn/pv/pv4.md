@@ -1,6 +1,6 @@
-CHUYỆNNGẠQUỶ
+CHUYỆN NGẠ QUỶ
 
-1 PHẨM RẮN
+PHẨM RẮN
 
 # 1.4
 
@@ -13,9 +13,3 @@ Sự khóc lóc, và sầu muộn, hay sự than vãn khác là không nên, b�
 Và thêm nữa, việc cúng dường này được dâng cúng, được khéo thiết lập ở Hội Chúng, thì lập tức thành tựu lợi ích dài lâu cho người đã quá vãng ấy.
 
 Chuyện Ngạ Quỷ Hình Nộm Bằng Bột là thứ tư.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

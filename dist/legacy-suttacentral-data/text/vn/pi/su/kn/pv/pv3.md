@@ -1,6 +1,6 @@
-CHUYỆNNGẠQUỶ
+CHUYỆN NGẠ QUỶ
 
-1 PHẨM RẮN
+PHẨM RẮN
 
 # 1.3
 
@@ -11,9 +11,3 @@ CHUYỆNNGẠQUỶ
 Thưa ngài Nārada, điều này đã được ngài đích thân nhìn thấy. Những người có lòng bi mẫn, tốt lành đã nói rằng: ‘Chớ nói lời đâm thọc và chớ nói lời dối trá, ngươi sẽ được trở thành Dạ-xoa có dục lạc theo như ước muốn.’”
 
 Chuyện Ngạ Quỷ Miệng Thối là thứ ba.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

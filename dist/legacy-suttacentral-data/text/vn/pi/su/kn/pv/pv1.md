@@ -1,6 +1,6 @@
-CHUYỆNNGẠQUỶ
+CHUYỆN NGẠ QUỶ
 
-1 PHẨM RẮN
+PHẨM RẮN
 
 # 1.1
 
@@ -13,9 +13,3 @@ Hạt giống này, việc gieo trồng, cánh đồng là (yếu tố được 
 Ngay tại đây, sau khi làm việc thiện và cúng dường lại (phước báu) cho các ngạ quỷ, sau khi làm nghiệp tốt lành thì đi đến nơi chốn là cõi Trời.
 
 Chuyện Ngạ Quỷ Ví Như Cánh Đồng là thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

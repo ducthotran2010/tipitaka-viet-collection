@@ -1,6 +1,6 @@
-CHUYỆNNGẠQUỶ
+CHUYỆN NGẠ QUỶ
 
-1 PHẨM RẮN
+PHẨM RẮN
 
 # 1.6
 
@@ -23,9 +23,3 @@ Bà đã bắt con thề thốt và cho người mắng nhiếc con. Con đây �
 Do quả thành tựu của cả hai, của nghiệp ấy và của việc nói dối, con ăn thịt những đứa con trai, con bị lấm lem bởi máu mủ.”
 
 Chuyện Ngạ Quỷ Ăn Năm Đứa Con Trai là thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

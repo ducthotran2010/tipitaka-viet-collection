@@ -1,6 +1,6 @@
-CHUYỆNNGẠQUỶ
+CHUYỆN NGẠ QUỶ
 
-1 PHẨM RẮN
+PHẨM RẮN
 
 # 1.5
 
@@ -29,9 +29,3 @@ Và thêm nữa, việc cúng dường này được dâng cúng, được khéo
 Việc ấy là bổn phận đối với thân quyến, và điều này đã được chỉ bảo. Việc cúng dường cao quý đến các ngạ quỷ đã được làm. Và sức lực đã được trao đến các vị tỳ khưu. Phước báu được tạo ra bởi quý vị không phải là ít.”
 
 Chuyện Ngạ Quỷ Ở Bên Kia Vách Tường là thứ năm.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

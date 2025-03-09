@@ -1,6 +1,6 @@
-CHUYỆNNGẠQUỶ
+CHUYỆN NGẠ QUỶ
 
-1 PHẨM RẮN
+PHẨM RẮN
 
 # 1.8
 
@@ -21,9 +21,3 @@ Ta đây, với mũi tên đã được rút ra, có được trạng thái mát
 Những người có trí tuệ, những người có lòng thương tưởng hành động như thế. Họ giúp cho thoát khỏi cơn sầu muộn giống như Sujāta đối với người cha vậy.”
 
 Chuyện Ngạ Quỷ Bò Đực là thứ tám.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.
