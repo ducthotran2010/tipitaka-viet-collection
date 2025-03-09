@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 47\. Paṭācārā
+# 47. Paṭācārā
 
 “Trong khi cày thửa ruộng với những cái cày, trong khi gieo những hạt giống ở đất, trong khi nuôi dưỡng các con và vợ, những người thanh niên tìm kiếm tài sản.
 
@@ -17,9 +17,3 @@ Sau khi xem xét chỗ nằm, tôi đã ngồi xuống chiếc giường nhỏ. 
 Trưởng lão ni Paṭācārā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Paṭācārā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

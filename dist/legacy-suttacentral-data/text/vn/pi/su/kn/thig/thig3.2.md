@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 30\. Uttamā
+# 30. Uttamā
 
 “Không đạt được sự an tịnh của ý, không làm chủ được việc kiểm soát ở tâm, tôi đã đi ra khỏi trú xá bốn lần, năm lần.
 
@@ -13,9 +13,3 @@ Sau khi lắng nghe Pháp của vị ni ấy, đúng theo như vị ni ấy đã
 Trưởng lão ni Uttamā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Uttamā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

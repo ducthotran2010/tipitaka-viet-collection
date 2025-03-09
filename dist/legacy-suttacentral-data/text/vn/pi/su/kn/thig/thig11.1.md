@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-11 NHÓM MƯỜI HAI
+NHÓM MƯỜI HAI
 
-# 64\. Uppalavaṇṇā
+# 64. Uppalavaṇṇā
 
 “Cả hai chúng tôi, mẹ và con gái, đã có chung chồng. Tôi đây đã có sự chấn động, có sự kỳ lạ, có sự nổi da gà.
 
@@ -33,9 +33,3 @@ Trưởng lão ni Uppalavaṇṇā đã nói những lời kệ như thế.
 Kệ ngôn của trưởng lão ni Uppalavaṇṇā.
 
 Nhóm Mười Hai được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

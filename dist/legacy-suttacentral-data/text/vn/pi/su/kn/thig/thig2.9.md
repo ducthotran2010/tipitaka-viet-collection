@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 27\. Abhayā
+# 27. Abhayā
 
 “‘Này Abhayā, thân thể là mỏng manh, những kẻ phàm phu bị quyến luyến với nó.’ Tôi sẽ buông bỏ thân xác này, có sự nhận biết rõ, có niệm.
 
@@ -11,9 +11,3 @@ Do nhiều hiện tượng khổ đau, tôi đã thích thú trong sự không x
 Trưởng lão ni Abhayā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Abhayā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

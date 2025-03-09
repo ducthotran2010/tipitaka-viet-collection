@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-7 NHÓM BẢY
+NHÓM BẢY
 
-# 59\. Cālā
+# 59. Cālā
 
 “Sau khi thiết lập niệm, vị tỳ khưu ni, có các quyền đã được tu tập, đã thấu triệt vị thế An Tịnh, sự yên lặng của các pháp hữu vi, sự an lạc.
 
@@ -21,9 +21,3 @@ Sự vui thích đã được phá hủy ở tất cả các nơi. Khối đốn
 Trưởng lão ni Cālā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Cālā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-7 NHÓM BẢY
+NHÓM BẢY
 
-# 58\. Uttarā
+# 58. Uttarā
 
 “‘Sau khi cầm lấy những cái chày, những người thanh niên giã thóc. Trong khi nuôi dưỡng các con và vợ, những người thanh niên tìm kiếm tài sản.
 
@@ -21,9 +21,3 @@ Tôi sẽ tôn vinh và sống (với ni sư), tựa như chư Thiên cõi Ba M�
 Trưởng lão ni Uttarā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Uttarā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

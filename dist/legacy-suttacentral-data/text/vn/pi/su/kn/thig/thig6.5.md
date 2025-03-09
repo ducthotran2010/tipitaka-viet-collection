@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 54\. Anopamā
+# 54. Anopamā
 
 “Tôi đã được sanh ra trong gia đình cao quý, có nhiều của cải, có tài sản đồ sộ, được thành tựu về màu da và dáng vóc, con gái ruột của Megha.
 
@@ -19,9 +19,3 @@ Sau đó, tôi đã cắt tóc, tôi đã xuất gia sống đời không nhà. 
 Trưởng lão ni Anopamā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Anopamā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 32\. Dantikā
+# 32. Dantikā
 
 “Sau khi rời khỏi chỗ nghỉ ban ngày ở ngọn núi Gijjhakūṭa, tôi đã nhìn thấy con voi lội xuống rồi bước lên ở bờ sông.
 
@@ -13,9 +13,3 @@ Sau khi nhìn thấy con vật chưa được huấn luyện đã được huấ
 Trưởng lão ni Dantikā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Dantikā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

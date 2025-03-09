@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-9 NHÓM CHÍN
+NHÓM CHÍN
 
-# 62\. Vaḍḍhamātā
+# 62. Vaḍḍhamātā
 
 “‘Này Vaḍḍha, con chớ có khao khát về thế gian vào bất cứ lúc nào. Này con trai bé bỏng, con chớ dự phần vào khổ đau lần này lần khác.
 
@@ -27,9 +27,3 @@ Trưởng lão ni Vaḍḍhamātā (mẹ của Vaḍḍha) đã nói những l�
 Kệ ngôn của trưởng lão ni Vaḍḍhamātā.
 
 Nhóm Chín được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

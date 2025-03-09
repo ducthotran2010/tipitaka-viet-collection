@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 44\. Sakulā
+# 44. Sakulā
 
 “Trong khi sống tại gia, tôi đã lắng nghe Pháp của vị tỳ khưu, tôi đã nhìn thấy pháp xa lìa luyến ái, Niết Bàn, vị thế Bất Hoại.
 
@@ -17,9 +17,3 @@ Sau khi nhìn thấy các hành là vô ngã, được sanh lên do nhân, (có 
 Trưởng lão ni Sakulā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Sakulā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

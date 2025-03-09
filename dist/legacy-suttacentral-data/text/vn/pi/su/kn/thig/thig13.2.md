@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-13 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 67\. Rohiṇī
+# 67. Rohiṇī
 
 “‘Này con gái quý mến, con nằm ngủ (nhắc đến): Các vị Sa-môn. Con thức dậy (nhắc đến): Các vị Sa-môn. Con ngợi ca (các đức tính của) chỉ riêng các vị Sa-môn, chắc hẳn con sẽ trở thành vị nữ Sa-môn.
 
@@ -47,9 +47,3 @@ Trước đây, tôi đã là thân quyến của Phạm Thiên. Bây giờ, tô
 Trưởng lão ni Rohiṇī đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Rohiṇī.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

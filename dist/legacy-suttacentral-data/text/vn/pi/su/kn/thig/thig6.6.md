@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 55\. Mahāpajāpatīgotamī
+# 55. Mahāpajāpatīgotamī
 
 “Bạch đức Phật, bậc Anh Hùng, đấng Vô Thượng của tất cả chúng sanh, xin kính lễ Ngài, Ngài đã giúp cho con và nhiều người khác giải thoát khỏi khổ đau.
 
@@ -19,9 +19,3 @@ Tôi nhìn thấy các vị Thinh Văn, có sự nỗ lực tinh tấn, có bả
 Trưởng lão ni Mahāpajāpatīgotamī đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Mahāpajāpatīgotamī.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

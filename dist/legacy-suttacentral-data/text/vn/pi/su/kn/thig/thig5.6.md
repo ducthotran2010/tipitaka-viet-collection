@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 43\. Mittākāḷi
+# 43. Mittākāḷi
 
 “Sau khi xuất gia vì lòng tin, rời nhà sống không nhà, tôi đã đi lang thang đó đây, năng nổ về lợi lộc và sự tôn vinh.
 
@@ -17,9 +17,3 @@ Trong khi xem xét đúng theo bản thể về sự sanh và diệt của các 
 Trưởng lão ni Mittākāḷi đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Mittākāḷi.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

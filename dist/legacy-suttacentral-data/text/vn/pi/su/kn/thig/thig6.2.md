@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 51\. Vāseṭṭhī
+# 51. Vāseṭṭhī
 
 “Do nỗi sầu muộn về đứa con trai, tôi bị khổ sở, có tâm bị rối loạn, không còn nhận biết, lõa thể, và đầu tóc rối tung, tôi đã đi lang thang đó đây.
 
@@ -19,9 +19,3 @@ Tất cả các nỗi sầu muộn đã được trừ tuyệt, đã được d�
 Trưởng lão ni Vāseṭṭhī đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Vāseṭṭhī.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

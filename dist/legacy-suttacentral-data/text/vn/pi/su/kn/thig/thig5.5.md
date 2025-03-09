@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 42\. Nanduttarā
+# 42. Nanduttarā
 
 “Tôi đã lễ bái ngọn lửa, mặt trăng, mặt trời, và chư Thiên. Sau khi đi đến các bến nước ở dòng sông, tôi đã lội xuống nước.
 
@@ -17,9 +17,3 @@ Tất cả các hữu, các sự ước muốn, và các điều mong mỏi đã
 Trưởng lão ni Nanduttarā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Nanduttarā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

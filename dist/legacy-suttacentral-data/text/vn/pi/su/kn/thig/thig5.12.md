@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 49\. Candā
+# 49. Candā
 
 “Trước đây, tôi đã bị lâm cảnh bất hạnh, góa phụ và không con cái, không có các bạn bè thân quyến, tôi đã không đạt được thức ăn và y phục.
 
@@ -19,9 +19,3 @@ Trưởng lão ni Candā đã nói những lời kệ như thế.
 Kệ ngôn của trưởng lão ni Candā.
 
 Nhóm Năm được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

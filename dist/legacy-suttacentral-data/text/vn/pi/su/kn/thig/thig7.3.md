@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-7 NHÓM BẢY
+NHÓM BẢY
 
-# 60\. Upacālā
+# 60. Upacālā
 
 “Có niệm, có nhãn quan, vị tỳ khưu ni, với các quyền đã được tu tập, đã thấu triệt vị thế An Tịnh, (là pháp) không được thực hành bởi những kẻ xấu.
 
@@ -23,9 +23,3 @@ Trưởng lão ni Upacālā đã nói những lời kệ như thế.
 Kệ ngôn của trưởng lão ni Upacālā.
 
 Nhóm Bảy được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

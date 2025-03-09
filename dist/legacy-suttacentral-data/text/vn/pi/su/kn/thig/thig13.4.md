@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-13 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 69\. Sundarī
+# 69. Sundarī
 
 “‘Này bà quý mến, trước đây trong khi để cho các người con trai đã chết bị nhai ngấu nghiến (bởi loài thú), bà quả thật vô cùng buồn bực ban ngày lẫn ban đêm.
 
@@ -57,9 +57,3 @@ Ngài là đức Phật. Ngài là bậc Đạo Sư. Bạch đấng Bà-la-môn,
 Trưởng lão ni Sundarī đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Sundarī.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

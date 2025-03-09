@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 41\. Sundarīnandā
+# 41. Sundarīnandā
 
 “‘Này Nandā, cô hãy nhìn thấy xác thân là bệnh hoạn, không trong sạch, hôi thối, hãy tu tập tâm được chuyên nhất, khéo được định tĩnh, về (đề mục) tử thi.
 
@@ -17,9 +17,3 @@ Rồi tôi đã nhàm chán xác thân, và tôi đã không còn luyến ái �
 Trưởng lão ni Sundarīnandā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Sundarīnandā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

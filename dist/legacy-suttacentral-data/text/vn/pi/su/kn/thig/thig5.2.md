@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 39\. Vimalā
+# 39. Vimalā
 
 “Bị đắm say với màu da, dáng vóc, vẻ đẹp, và tiếng tăm, và kiêu kỳ với tuổi thanh xuân, tôi đã khinh khi những người đàn bà khác.
 
@@ -17,9 +17,3 @@ Tất cả các sự ràng buộc thuộc về cõi trời và thuộc về loà
 Trưởng lão ni Vimalā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Vimalā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

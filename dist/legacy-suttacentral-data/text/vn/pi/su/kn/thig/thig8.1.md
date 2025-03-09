@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-8 NHÓM TÁM
+NHÓM TÁM
 
-# 61\. Sīsūpacālā
+# 61. Sīsūpacālā
 
 Vị tỳ khưu ni, được đầy đủ về giới, khéo được thu thúc ở các giác quan, có thể chứng đắc vị thế An Tịnh có vị ngọt ngào toàn vẹn.
 
@@ -25,9 +25,3 @@ Trưởng lão ni Sīsūpacālā đã nói những lời kệ như thế.
 Kệ ngôn của trưởng lão ni Sīsūpacālā.
 
 Nhóm Tám được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

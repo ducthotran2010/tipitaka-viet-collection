@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-13 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 66\. Ambapālī
+# 66. Ambapālī
 
 “Các sợi tóc của tôi đã là màu đen giống như màu của loài ong, có đầu ngọn bị xoắn lại. Bởi tuổi già, chúng trở thành tương tự như những thớ sợi của vỏ cây gai; lời nói của bậc Tuyên Thuyết Sự Thật là không sai khác.
 
@@ -45,9 +45,3 @@ Thân xác này đã trở nên như thế này, già cỗi, nơi chứa đựng
 Trưởng lão ni Ambapālī đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Ambapālī.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

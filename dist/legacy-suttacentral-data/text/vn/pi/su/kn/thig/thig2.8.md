@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 26\. Abhayamātā
+# 26. Abhayamātā
 
 “‘Thưa mẹ, từ lòng bàn chân trở lên, từ chóp cọng tóc trở xuống, mẹ hãy quán xét thân này là không trong sạch, có mùi hôi thối.’
 
@@ -11,9 +11,3 @@ Trong khi an trú như vậy, tất cả luyến ái đã được xóa sạch, 
 Trưởng lão ni Abhayamātā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Abhayamātā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

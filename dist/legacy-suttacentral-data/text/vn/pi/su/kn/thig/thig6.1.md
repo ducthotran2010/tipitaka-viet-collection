@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 50\. Ni ???
+# 50. Ni ???
 
 “‘Cô không biết chúng sinh ấy đã từ đâu đi đến, (không biết) con đường đã đi đến hoặc đã ra đi của nó, thế mà cô khóc là: Con trai tôi!
 
@@ -19,9 +19,3 @@ Hôm nay, tôi đây, có mũi tên đã được rút ra, không còn cơn đó
 Các tỳ khưu ni trưởng lão số lượng 500 vị đã nói những lời kệ như thế.
 
 Kệ ngôn của năm trăm vị trưởng lão ni.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

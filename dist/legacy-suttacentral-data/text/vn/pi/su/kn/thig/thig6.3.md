@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 52\. Khemā
+# 52. Khemā
 
 “‘Nàng trẻ trung và có sắc đẹp, ta cũng trẻ trung và là thanh niên. Này Khemā, nàng hãy đến. Chúng ta hãy vui thú với nhạc cụ gồm có năm loại.’
 
@@ -19,9 +19,3 @@ Còn ta, ngay trong khi lễ bái đấng Toàn Giác, bậc Tối Thượng Nh�
 Trưởng lão ni Khemā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Khemā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

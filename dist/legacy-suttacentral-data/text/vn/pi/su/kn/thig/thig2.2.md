@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-2 NHÓM HAI
+NHÓM HAI
 
-# 20\. Jentā
+# 20. Jentā
 
 “Bảy giác chi này là các con đường đưa đến việc đạt được Niết Bàn, tất cả các pháp ấy đã được tôi tu tập đúng theo như (lời) đã được thuyết giảng bởi đức Phật.
 
@@ -11,9 +11,3 @@ Bởi vì đức Thế Tôn ấy đã được tôi nhìn thấy, đây là xác
 Trưởng lão ni Jentā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Jentā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

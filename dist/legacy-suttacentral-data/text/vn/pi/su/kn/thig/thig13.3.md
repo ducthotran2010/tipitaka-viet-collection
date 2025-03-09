@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-13 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 68\. Cāpā
+# 68. Cāpā
 
 “‘Trước đây, người ấy đã là vị (đạo sĩ) có gậy ở bàn tay. Bây giờ, người ấy là thợ săn thú rừng. Vì tham ái, người ấy đã không thể đi đến bờ kia từ đầm lầy ghê rợn.
 
@@ -49,9 +49,3 @@ Sau khi đảnh lễ hai bàn chân của Ngài, sau khi hướng bên phải nh
 Trưởng lão ni Cāpā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Cāpā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 48\. Lão
+# 48. Lão
 
 “Sau khi cầm lấy những cái chày, những người thanh niên giã thóc. Trong khi nuôi dưỡng các con và vợ, những người thanh niên tìm kiếm tài sản.
 
@@ -17,9 +17,3 @@ Sau khi đứng lên, họ đã (đi đến gặp và đã) đảnh lễ các b�
 Các tỳ khưu ni trưởng lão số lượng ba mươi vị đã nói những lời kệ như thế.
 
 Kệ ngôn của ba mươi vị tỳ khưu ni trưởng lão.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

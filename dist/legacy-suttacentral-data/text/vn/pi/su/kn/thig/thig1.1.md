@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-1 NHÓM MỘT
+NHÓM MỘT
 
-# 1\. Ni nào đó
+# 1. Ni nào đó
 
 Kính lễ đức Thế Tôn, bậc A-la-hán, đấng Chánh Biến Tri!
 
@@ -11,9 +11,3 @@ Kính lễ đức Thế Tôn, bậc A-la-hán, đấng Chánh Biến Tri!
 Một vị tỳ khưu ni trưởng lão nào đó không rõ đã nói lời kệ như thế.
 
 Kệ ngôn của một trưởng lão ni nào đó.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

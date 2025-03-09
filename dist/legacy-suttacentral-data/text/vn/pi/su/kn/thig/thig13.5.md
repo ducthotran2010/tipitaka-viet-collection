@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-13 NHÓM HAI MƯƠI
+NHÓM HAI MƯƠI
 
-# 70\. Subhā
+# 70. Subhā
 
 Tôi đã được nghe Giáo Pháp trước đây lúc còn trẻ tuổi, có y phục tinh khiết. Tôi đây, không bị xao lãng, đã có sự lãnh hội về các Sự Thật.
 
@@ -65,9 +65,3 @@ Trưởng lão ni Subhā, con gái người thợ rèn, đã nói những lời 
 Kệ ngôn của trưởng lão ni Subhā, con gái người thợ rèn.
 
 Nhóm Hai Mươi được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

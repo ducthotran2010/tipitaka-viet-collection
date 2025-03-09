@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 53\. Sujātā
+# 53. Sujātā
 
 “Được trang điểm, có y phục đẹp, có tràng hoa, được bôi trầm hương, được che phủ với tất cả các đồ trang sức, (tôi) dẫn đầu đám nữ tỳ.
 
@@ -19,9 +19,3 @@ Sau đó, nhận thức được Chánh Pháp, tôi đã xuất gia sống đờ
 Trưởng lão ni Sujātā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Sujātā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

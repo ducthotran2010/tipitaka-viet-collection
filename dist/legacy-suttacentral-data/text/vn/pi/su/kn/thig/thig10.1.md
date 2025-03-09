@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-10 NHÓM MƯỜI MỘT
+NHÓM MƯỜI MỘT
 
-# 63\. Kisāgotamī
+# 63. Kisāgotamī
 
 Tư cách bạn lành đã được bậc Hiền Trí khen ngợi khi đề cập đến thế gian. Trong khi thân cận với các bạn lành, ngay cả kẻ ngu dốt cũng có thể trở thành người sáng trí.
 
@@ -31,9 +31,3 @@ Trưởng lão ni Kisāgotamī đã nói những lời kệ như thế.
 Kệ ngôn của trưởng lão ni Kisāgotamī.
 
 Nhóm Mười Một được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

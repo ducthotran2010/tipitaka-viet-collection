@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-6 NHÓM SÁU
+NHÓM SÁU
 
-# 56\. Guttā
+# 56. Guttā
 
 “Này Guttā, sau khi lìa bỏ con trai và gia súc yêu quý, (cô có) sự xuất gia với mục đích nào thì cô hãy đeo đuổi chính mục đích ấy, chớ rơi vào sự tác động của tâm.
 
@@ -19,9 +19,3 @@ Sau khi tiêu trừ việc luân hồi tái sanh, sau khi biết toàn diện v�
 Trưởng lão ni Guttā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Guttā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

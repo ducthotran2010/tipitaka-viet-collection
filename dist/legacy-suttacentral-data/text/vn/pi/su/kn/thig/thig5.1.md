@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 38\. Ni nào đó
+# 38. Ni nào đó
 
 “Hai mươi lăm năm kể từ khi tôi đã được xuất gia, tôi đã không chứng đắc sự an tịnh của tâm cho dầu chỉ bằng thời gian của một khảy móng tay.
 
@@ -17,9 +17,3 @@ Trí biết được tâm của người khác, và nhĩ giới đã được tr
 Một trưởng lão ni nào đó đã nói những lời kệ như thế.
 
 Kệ ngôn của một trưởng lão ni nào đó.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

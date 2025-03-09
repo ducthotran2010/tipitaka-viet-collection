@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-14 NHÓM BA MƯƠI
+NHÓM BA MƯƠI
 
-# 71\. Subhājīva­kam­ba­vanikā­
+# 71. Subhājīva­kam­ba­vanikā­
 
 “Trong khi vị tỳ khưu ni Subhā đang đi đến khu vườn xoài đáng yêu của Jīvaka, có kẻ vô lại đã cản ngăn nàng. Subhā đã nói với gã ấy điều này:
 
@@ -77,9 +77,3 @@ Trưởng lão ni Subhā ngụ ở vườn xoài của Jīvaka đã nói những
 Kệ ngôn của trưởng lão ni Subhā ngụ ở vườn xoài của Jīvaka.
 
 Nhóm Ba Mươi được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

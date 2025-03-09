@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-16 NHÓM LỚN
+NHÓM LỚN
 
-# 73\. Sumedhā
+# 73. Sumedhā
 
 Ở thành phố Mantāvatī, Sumedhā, người con gái của hoàng hậu chánh cung của đức vua Koñca, đã có được đức tin nhờ vào những vị đang thực hành Giáo Pháp.
 
@@ -163,9 +163,3 @@ Nhóm Lớn được chấm dứt.
 “Tất cả các câu kệ ấy là năm trăm hai mươi mốt. Các trưởng lão ni là một trăm lẻ một, tất cả các vị ni ấy có sự cạn kiệt của các lậu hoặc.”
 
 TRƯỞNG LÃO NI KỆ ĐƯỢC ĐẦY ĐỦ.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

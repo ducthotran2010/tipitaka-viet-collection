@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-3 NHÓM BA
+NHÓM BA
 
-# 36\. Dứt
+# 36. Dứt
 
 “Vị thế ấy là có thể đạt đến bởi các bậc ẩn sĩ, là khó với tới, không thể đạt được bởi người nữ có sự nhận biết nhờ vào hai ngón tay.
 
@@ -15,9 +15,3 @@ Trưởng lão ni Somā đã nói những lời kệ như thế.
 Kệ ngôn của trưởng lão ni Somā.
 
 Nhóm Ba được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

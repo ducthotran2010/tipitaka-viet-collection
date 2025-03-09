@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 40\. Sīhā
+# 40. Sīhā
 
 “Có sự tác ý không theo đúng đường lối, bị khổ sở vì sự luyến ái ở các dục, trước đây tôi đã tự kiêu, không làm chủ được việc kiểm soát ở tâm.
 
@@ -17,9 +17,3 @@ Sau khi đã thực hiện cái thòng lọng chắc chắn, sau khi đã buộc
 Trưởng lão ni Sīhā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Sīhā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

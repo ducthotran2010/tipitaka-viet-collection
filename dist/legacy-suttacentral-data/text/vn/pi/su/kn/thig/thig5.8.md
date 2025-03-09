@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 45\. Soṇā
+# 45. Soṇā
 
 “Sau khi sanh ra mười người con trai ở sắc thân này, vì thế, bị yếu sức, già nua, tôi đã đi đến gặp vị tỳ khưu ni.
 
@@ -17,9 +17,3 @@ Năm uẩn đã được biết toàn diện, chúng tồn tại với gốc r�
 Trưởng lão ni Soṇā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Soṇā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

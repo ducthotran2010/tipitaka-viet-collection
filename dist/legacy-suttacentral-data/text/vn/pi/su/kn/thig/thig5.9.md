@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-5 NHÓM NĂM
+NHÓM NĂM
 
-# 46\. Bhaddākuṇḍalakesā
+# 46. Bhaddākuṇḍalakesā
 
 “Trước đây, tôi đã đi lang thang, tóc được cạo, mang bùn đất, mặc một mảnh y phục, với sự suy nghĩ là có tội ở việc không tội, và với sự nhận thức là không tội ở việc có tội.
 
@@ -17,9 +17,3 @@ Quả thật, ông ta đã tạo được nhiều phước báu! Quả thật, n
 Trưởng lão ni Bhaddākuṇḍalakesā đã nói những lời kệ như thế.
 
 Kệ ngôn của trưởng lão ni Bhaddākuṇḍalakesā.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

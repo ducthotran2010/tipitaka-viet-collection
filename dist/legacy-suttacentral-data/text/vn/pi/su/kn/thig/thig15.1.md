@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-15 NHÓM BỐN MƯƠI
+NHÓM BỐN MƯƠI
 
-# 72\. Isidāsī
+# 72. Isidāsī
 
 Ở thành phố có tên của loài hoa Pāṭaliputta, nơi trong lành nhất ở trên trái đất, có hai vị tỳ khưu ni có đức hạnh, thuộc dòng dõi gia tộc Sakya.
 
@@ -105,9 +105,3 @@ Trưởng lão ni Isidāsī đã nói những lời kệ như thế.
 Kệ ngôn của trưởng lão ni Isidāsī.
 
 Nhóm Bốn Mươi được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

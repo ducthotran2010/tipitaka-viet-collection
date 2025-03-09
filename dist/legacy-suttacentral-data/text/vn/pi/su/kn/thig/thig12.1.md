@@ -1,8 +1,8 @@
 TRƯỞNG LÃO NI KỆ
 
-12 NHÓM MƯỜI SÁU
+NHÓM MƯỜI SÁU
 
-# 65\. Puṇṇā
+# 65. Puṇṇā
 
 “‘Tôi đã đội nước, vào lúc trời lạnh tôi đã thường xuyên lội xuống nước. Tôi bị sợ hãi vì nỗi lo về hình phạt của những người chủ, bị khổ sở vì nỗi lo về sự thô tháo của lời nói (la mắng).
 
@@ -41,9 +41,3 @@ Trưởng lão ni Puṇṇā đã nói những lời kệ như thế.
 Kệ ngôn của trưởng lão ni Puṇṇā.
 
 Nhóm Mười Sáu được chấm dứt.
-
-Translated by Bhikkhu Indacanda, 2011. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.
