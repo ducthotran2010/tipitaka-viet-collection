@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VI. PHẨM VĪJANĪ
 
-# 57\. Ký Sự về Trưởng Lão Pañcadīpaka
+# 57. Ký Sự về Trưởng Lão Pañcadīpaka
 
 Sau khi đã khéo an trú trong Chánh Pháp của đức Phật Padumuttara, bậc có lòng thương tưởng đến tất cả sanh linh, tôi đã có được quan điểm chính chắn.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Pañcadīpakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Pañcadīpaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

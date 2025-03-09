@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIX. PHẨM PAṂSUKŪLA:
 
-# 483\. Ký Sự về Trưởng Lão Bhisadāyaka
+# 483. Ký Sự về Trưởng Lão Bhisadāyaka
 
 Lúc bấy giờ, tôi đã lội xuống hồ nước đã bị nhiều con voi sử dụng, và vì lý do đói (bụng) tôi (đã) nhổ lên củ sen ở tại nơi ấy.
 
@@ -14,7 +14,7 @@ Vào thời điểm ấy, đức Thế Tôn danh hiệu Padumuttara là vị Ph�
 
 Khi ấy, trong khi Ngài đang phất phơ các lá y may từ vải bị quăng bỏ, tôi đã nghe được tiếng động. Trong khi chú ý ở phía bên trên, tôi đã nhìn thấy đấng Lãnh Đạo Thế Gian.
 
-5061\. Trong khi đứng ngay tại nơi ấy, tôi đã thỉnh cầu đấng Lãnh Đạo Thế Gian rằng: “Xin đức Phật, bậc Hữu Nhãn, vì lòng thương tưởng hãy thọ lãnh mật ong cùng với các củ sen, sữa, bơ lỏng, và rễ sen của con.” Do đó, đấng Bi Mẫn, bậc Đạo Sư có danh vọng lớn lao, đã ngự xuống.
+5061. Trong khi đứng ngay tại nơi ấy, tôi đã thỉnh cầu đấng Lãnh Đạo Thế Gian rằng: “Xin đức Phật, bậc Hữu Nhãn, vì lòng thương tưởng hãy thọ lãnh mật ong cùng với các củ sen, sữa, bơ lỏng, và rễ sen của con.” Do đó, đấng Bi Mẫn, bậc Đạo Sư có danh vọng lớn lao, đã ngự xuống.
 
 Bậc Hữu Nhãn vì lòng thương tưởng đã thọ nhận vật thực của tôi. Sau khi thọ nhận, bậc Toàn Giác đã thực hiện lời tùy hỷ đến tôi rằng:
 
@@ -47,9 +47,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Bhisadāyaka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Bhisadāyaka là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

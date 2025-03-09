@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 X. PHẨM SUDHAPIṆḌIYA
 
-# 95\. Ký Sự về Trưởng Lão Gandhamāliya
+# 95. Ký Sự về Trưởng Lão Gandhamāliya
 
 Tôi đã thực hiện bảo tháp có hương thơm được bao phủ với các bông hoa nhài, được làm xứng đáng với đức Phật, được dành cho đức Thế Tôn Siddhattha.
 
@@ -21,9 +21,3 @@ Kể từ khi tôi đã dâng cúng tràng hoa có hương thơm trước đây 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Gandhamāliyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

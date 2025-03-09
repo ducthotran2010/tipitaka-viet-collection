@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XV. PHẨM CHATTA
 
-# 148\. Ký Sự về Trưởng Lão Phalakadāyaka
+# 148. Ký Sự về Trưởng Lão Phalakadāyaka
 
 Trong thời quá khứ, tôi đã là thợ đóng xe thuyền khéo được học tập về nghề mộc. Tôi đã thực hiện tấm ván bằng gỗ trầm hương và đã dâng cúng đến đấng quyến thuộc của thế gian.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Phalakadāyaka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Phalakadāyaka là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XII. PHẨM MAHĀPARIVĀRA
 
-# 113\. Ký Sự về Trưởng Lão Saraṇagamaniya
+# 113. Ký Sự về Trưởng Lão Saraṇagamaniya
 
 Cuộc giao chiến giữa hai vị Thiên Vương đang diễn tiến đã trở nên hỗn độn, tiếng kêu la ầm ĩ đã vang lên.
 
@@ -31,9 +31,3 @@ Bậc Hữu Nhãn đã khiến cho dân chúng suy tưởng, hơn nữa còn ti�
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Saraṇagamanīyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

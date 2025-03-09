@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XL. PHẨM PIḶINDIVACCHA
 
-# 391\. Ký Sự về Trưởng Lão Piḷindivaccha
+# 391. Ký Sự về Trưởng Lão Piḷindivaccha
 
 Tôi đã là người gác cổng ở thành phố Haṃsavatī. Của cải đã được tích lũy trong nhà của tôi là không bị suy suyển, không thể đo lường.
 
@@ -334,7 +334,7 @@ Sau khi dâng cúng các vật đo lường và các hòm nhỏ đến đức Ph
 
 Tôi luôn luôn cảnh giác, có được sự an lạc, có danh vọng lớn lao, đồng thời có cả tương lai, được xa lìa sự thất bại, có sự tinh tế, được lánh khỏi tất cả các hiểm họa.
 
-3538\. Và tôi có sự đạt được các đức tính vĩ đại, tôi có hành vi bình lặng, sự kích động đã được xa lìa hẳn, tôi đạt được các vật đo lường và các hòm nhỏ có bốn màu, cùng với các con voi, các con ngựa, và châu báu, những vật này của tôi không bị tiêu hoại; điều này là quả báu của việc dâng cúng các vật đo lường.
+3538. Và tôi có sự đạt được các đức tính vĩ đại, tôi có hành vi bình lặng, sự kích động đã được xa lìa hẳn, tôi đạt được các vật đo lường và các hòm nhỏ có bốn màu, cùng với các con voi, các con ngựa, và châu báu, những vật này của tôi không bị tiêu hoại; điều này là quả báu của việc dâng cúng các vật đo lường.
 
 Sau khi dâng cúng các ống đựng thuốc bôi đến đức Phật và Hội Chúng, tập thể tối thượng, tôi thọ hưởng năm phước báu tương xứng với nghiệp của tôi.
 
@@ -410,7 +410,7 @@ Tôi luôn luôn có tuổi thọ, có sức mạnh, sáng suốt, có dung sắ
 
 Sau khi dâng cúng nhang (thơm) đến đức Thiện Thệ và Hội Chúng, tập thể cao quý tối thượng, tôi thọ hưởng mười phước báu tương xứng với nghiệp của tôi.
 
-3577\. Trong khi luân hồi ở cõi này cõi khác, tôi đạt được cơ thể có mùi thơm ngào ngạt, có uy quyền, có tuệ nhạy bén, có danh tiếng, có tuệ sắc bén, có tuệ bao la, có tuệ vi tiếu, và tuệ thâm sâu, có tuệ rộng lớn, và tuệ đổng tốc. Giờ đây, do nhờ tác động của chính việc ấy, tôi đạt đến sự tịnh lặng, an lạc, Niết Bàn.
+3577. Trong khi luân hồi ở cõi này cõi khác, tôi đạt được cơ thể có mùi thơm ngào ngạt, có uy quyền, có tuệ nhạy bén, có danh tiếng, có tuệ sắc bén, có tuệ bao la, có tuệ vi tiếu, và tuệ thâm sâu, có tuệ rộng lớn, và tuệ đổng tốc. Giờ đây, do nhờ tác động của chính việc ấy, tôi đạt đến sự tịnh lặng, an lạc, Niết Bàn.
 
 Quả vậy, tôi đã thành công mỹ mãn, đã thành tựu tam minh, đã thực hành lời dạy đức Phật vào thời hiện tiền của đức Phật tối thượng.
 
@@ -419,9 +419,3 @@ Các phiền não của tôi đã được thiêu đốt, tất cả các hữu 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Piḷindivaccha đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

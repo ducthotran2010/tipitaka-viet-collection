@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXIV. PHẨM UDAKĀSANA
 
-# 240\. Ký Sự về Trưởng Lão Vāsidāyaka
+# 240. Ký Sự về Trưởng Lão Vāsidāyaka
 
 Trước đây, tôi đã là người thợ rèn ở trong kinh thành Tivarā. Tôi đã dâng cúng một lưỡi rìu đến đấng Tự Chủ, bậc không bị đánh bại.
 
@@ -20,9 +20,3 @@ Phần Tóm Lược:
 Chỗ ngồi và nước, bát đĩa, vị có bánh ngọt sālā, vị liên quan đến chiếc chiếu, vòng rào chắn, thợ nhuộm màu, bông hoa piyāla,vị bố thí vật hiến dâng là trái xoài, việc bố trí, vị dâng cúng lưỡi rìu; (tổng cộng) có ba mươi tám câu kệ.
 
 Phẩm Udakāsana là phẩm thứ hai mươi bốn.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

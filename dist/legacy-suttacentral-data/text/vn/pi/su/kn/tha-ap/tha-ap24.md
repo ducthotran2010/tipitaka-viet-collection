@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 III. PHẨM SUBHŪTI
 
-# 22\. Ký Sự về Trưởng Lão Upavāna
+# 22. Ký Sự về Trưởng Lão Upavāna
 
 Đấng Chiến Thắng tên Padumuttara là bậc thông suốt về tất cả các pháp. Sau khi phát cháy như là khối lửa, bậc Toàn Giác đã viên tịch Niết Bàn.
 
@@ -50,7 +50,7 @@ Chúng ta cũng sẽ kiến tạo ngôi bảo tháp dành cho đấng Bảo Hộ
 
 Các ác thần cũng đã làm phát triển ngôi bảo điện của đức Phật được cao thêm một do-tuần. Khi ấy, với chiều cao năm do-tuần, ngôi bảo tháp được rực rỡ.
 
-887\. Khi ấy, loài Dạ-xoa đã tụ hội lại ở nơi ấy và đã cùng nhau bàn bạc rằng: “Loài người, chư Thiên, loài rồng, loài nhân điểu, và các ác thần đã xây dựng ngôi bảo tháp hạng nhất dành cho đức Phật tối thượng một cách cá biệt. Thế gian cùng với chư Thiên không xao lãng, chúng ta chớ nên xao lãng.
+887. Khi ấy, loài Dạ-xoa đã tụ hội lại ở nơi ấy và đã cùng nhau bàn bạc rằng: “Loài người, chư Thiên, loài rồng, loài nhân điểu, và các ác thần đã xây dựng ngôi bảo tháp hạng nhất dành cho đức Phật tối thượng một cách cá biệt. Thế gian cùng với chư Thiên không xao lãng, chúng ta chớ nên xao lãng.
 
 Chúng ta cũng sẽ kiến tạo ngôi bảo tháp dành cho đấng Bảo Hộ Thế Gian như thế ấy. Bằng các loại ngọc pha-lê, chúng ta sẽ phủ lên ngôi bảo điện dành cho đức Phật cho được cao thêm.”
 
@@ -119,9 +119,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Upavāna đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Upavāna là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

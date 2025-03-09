@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 V. PHẨM UPĀLI
 
-# 50\. Ký Sự về Trưởng Lão Cunda
+# 50. Ký Sự về Trưởng Lão Cunda
 
 Sau khi cho thực hiện cây cột trụ dành cho đức Thế Tôn Siddhattha, bậc Trưởng Thượng của thế gian như thế ấy, tôi đã phủ lên bằng các bông hoa nhài
 
@@ -55,9 +55,3 @@ Phần Tóm Lược:
 Vị Upāli, vị Soṇa, vị Bhaddiya, vị Sanniṭṭhāpaka, vị Hatthiya, mái che, giường nằm, đường kinh hành, vị Subhadda, vị tên Cunda; (tổng cộng) có một trăm bốn mươi câu kệ và bốn câu thêm vào đó.
 
 Phẩm Upāli là phẩm thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIII. PHẨM SEREYYAKA
 
-# 121\. Ký Sự về Trưởng Lão Sereyyaka
+# 121. Ký Sự về Trưởng Lão Sereyyaka
 
 Là vị giảng huấn, thông thạo về chú thuật, thông suốt về ba tập Vệ-đà, trong khi đang đứng ở ngoài trời, tôi đã nhìn thấy đấng Lãnh Đạo Thế Gian.
 
@@ -27,9 +27,3 @@ Do sự tịnh tín ấy ở trong tâm, được thúc đẩy bởi nhân tố 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Sereyyakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

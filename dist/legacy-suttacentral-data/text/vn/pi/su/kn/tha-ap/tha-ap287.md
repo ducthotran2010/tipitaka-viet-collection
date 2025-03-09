@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXIX. PHẨM PAṆṆADĀYAKA
 
-# 285\. Ký Sự về Trưởng Lão Maghavapupphiya
+# 285. Ký Sự về Trưởng Lão Maghavapupphiya
 
 Ở bờ sông Nammadā, có đấng Tự Chủ là bậc không bị đánh bại. Ngài đã chứng đạt thiền định, được thanh tịnh, không bị chộn rộn.
 
@@ -17,9 +17,3 @@ Kể từ khi tôi đã cúng dường bông hoa trước đây chín mươi m�
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Maghavapupphiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

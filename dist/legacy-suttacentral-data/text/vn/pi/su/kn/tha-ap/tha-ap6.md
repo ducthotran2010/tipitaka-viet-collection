@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 I. PHẨM ĐỨC PHẬT
 
-# 4\. Ký Sự về Trưởng Lão Anuruddha
+# 4. Ký Sự về Trưởng Lão Anuruddha
 
 Tôi đã nhìn thấy đức Thế Tôn Sumedha, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu, bậc Lãnh Đạo Thế Gian đang an trú vào hạnh độc cư.
 
@@ -37,9 +37,3 @@ Tôi nhìn thấy một ngàn thế giới bằng trí tuệ trong Giáo Pháp c
 Đại đức trưởng lão Anuruddha đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Anuruddha là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

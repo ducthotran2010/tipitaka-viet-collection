@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXIII. PHẨM UMMĀPUPPHIYA
 
-# 325\. Ký Sự về Trưởng Lão Nimittasaññaka
+# 325. Ký Sự về Trưởng Lão Nimittasaññaka
 
 Tôi sống ở khu ẩn cư tại bờ sông Candabhāgā. Tôi đã nhìn thấy con nai màu vàng chói đang bước đi ở trong khu rừng.
 
@@ -21,9 +21,3 @@ Trước đây hai mươi bảy kiếp, tôi đã là vị lãnh chúa độc nh
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Nimittasaññakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

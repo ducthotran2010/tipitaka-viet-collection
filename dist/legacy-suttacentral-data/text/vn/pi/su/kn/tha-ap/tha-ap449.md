@@ -6,7 +6,7 @@ TẬP HAI
 
 XLV. PHẨM VIBHĪṬAKA:
 
-# 447\. Ký Sự về Trưởng Lão Sīhāsanika
+# 447. Ký Sự về Trưởng Lão Sīhāsanika
 
 Với tâm tịnh tín, với ý vui mừng, tôi đã dâng cúng bảo tọa sư tử đến đức Thế Tôn Padumuttara là bậc tầm cầu lợi ích cho tất cả chúng sanh.
 
@@ -27,9 +27,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Sīhāsanikađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sīhāsanika là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

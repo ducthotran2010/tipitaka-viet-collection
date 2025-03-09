@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXV. PHẨM EKAPADUMIYA
 
-# 350\. Ký Sự về Trưởng Lão Ekañjaliya
+# 350. Ký Sự về Trưởng Lão Ekañjaliya
 
 Lúc bấy giờ, bậc Toàn Giác tên Revata đã cư ngụ ở bờ sông. Tôi đã nhìn thấy đức Phật, bậc Vô Nhiễm tợ như mặt trời có tia sáng màu vàng.
 
@@ -22,9 +22,3 @@ Phần Tóm Lược:
 Vị có đóa sen hồng, vị có tràng hoa sen xanh, lá cờ, vị có bông hoa kiṅkiṇi, (gian nhà bằng) cây sậy, bông hoa campaka, đóa sen hồng, nắm (cỏ), cây tinduka, và vị chắp tay lại là tương tợ; (tổng cộng) có sáu mươi sáu câu kệ đã được tính đếm bởi các bậc trí.
 
 Phẩm Ekapadumiya là phẩm thứ ba mươi lăm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

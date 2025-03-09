@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIV. PHẨM SOBHITA
 
-# 135\. Ký Sự về Trưởng Lão Rahosaññaka
+# 135. Ký Sự về Trưởng Lão Rahosaññaka
 
 Ở không xa núi Hi-mã-lạp có ngọn núi tên là Vasabha. Ở chân ngọn núi ấy có khu ẩn cư đã được tạo lập.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Rahosaññakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Rahosaññaka là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

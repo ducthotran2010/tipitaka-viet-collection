@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVII. PHẨM SUPĀRICARIYA
 
-# 170\. Ký Sự về Trưởng Lão Pañcaṅguliya
+# 170. Ký Sự về Trưởng Lão Pañcaṅguliya
 
 Đức Thế Tôn tên Tissa đã là bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu. (Tôi đã nhìn thấy) bậc Hiền trí, vị thiện xảo về việc an trú (thiền quả), đang đi vào hương thất.
 
@@ -26,9 +26,3 @@ Phần Tóm Lược:
 Vị có sự phục vụ tốt, vị có bông hoa kaṇavera, vị có vật ăn được, vị cúng dường khu vực, bông hoa kaṇikāra, vị dâng cúng bơ lỏng, bông hoa yūthika, vị dâng cúng tấm vải, tràng hoa, và một nhúm năm ngón tay; (tổng cộng) có năm mươi bốn câu kệ.
 
 Phẩm Supāricariya là phẩm thứ mười bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

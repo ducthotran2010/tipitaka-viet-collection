@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIII. PHẨM SAKIṂSAMMAJJAKA:
 
-# 430\. Ký Sự về Trưởng Lão Soṇṇakontarika
+# 430. Ký Sự về Trưởng Lão Soṇṇakontarika
 
 Đức Phật là vị đã tu tập về tâm, đã chế ngự bản thân, được định tĩnh, đang cư xử theo đường lối Phạm hạnh, thích thú trong sự tịnh lặng của tâm.
 
@@ -42,9 +42,3 @@ Phần Tóm Lược:
 Vị trưởng lão quét một lần, vị có tấm vải độc nhất, vị có một chỗ ngồi, vị dâng (bông hoa) kadamba, vị dâng (bông hoa) koraṇḍa, vị (dâng) bơ lỏng, vị lắng nghe (Giáo Pháp), vị đã khéo suy nghĩ, vị liên quan đến (bông hoa) kiṅkaṇī, và vị có cây gậy vàng. Có một trăm câu kệ và thêm vào bảy mươi mốt câu nữa.
 
 Phẩm Sakiṃsammajjaka là phẩm thứ bốn mươi ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

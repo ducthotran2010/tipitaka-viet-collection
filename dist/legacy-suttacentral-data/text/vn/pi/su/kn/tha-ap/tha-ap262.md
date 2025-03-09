@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXVI. PHẨM THOMAKA
 
-# 260\. Ký Sự về Trưởng Lão Aggajapupphiya
+# 260. Ký Sự về Trưởng Lão Aggajapupphiya
 
 (Tôi đã nhìn thấy) đấng Toàn Giác Sikhī có màu da vàng chói ngồi ở trong vùng đồi núi đang chiếu sáng các hào quang như là ngọn lửa.
 
@@ -24,9 +24,3 @@ Phần Tóm Lược:
 Vị tán dương, một bữa ăn, giàn hỏa thiêu, bông hoa campaka, bông hoa sattapāṭali, đôi dép, bó hoa, lá cây, vị dâng cúng cái chòi, bông hoa aggaja; và các câu kệ đã được tính đếm ở đây là bốn mươi mốt câu cả thảy.
 
 Phẩm Thomaka là phẩm thứ hai mươi sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

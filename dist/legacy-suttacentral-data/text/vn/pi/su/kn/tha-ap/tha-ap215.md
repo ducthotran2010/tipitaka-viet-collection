@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXII. PHẨM HATTHI
 
-# 213\. Ký Sự về Trưởng Lão Saccasaññaka
+# 213. Ký Sự về Trưởng Lão Saccasaññaka
 
 Vào lúc ấy, trong lúc tiếp độ đám đông dân chúng thành tựu Niết Bàn, (đức Phật) Vessabhū, đứng đầu Hội Chúng tỳ khưu, (đã) thuyết giảng về các Chân Lý Cao Thượng.
 
@@ -21,9 +21,3 @@ Trước đây hai mươi sáu kiếp, tôi đã là người độc nhất th�
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Saccasaññakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

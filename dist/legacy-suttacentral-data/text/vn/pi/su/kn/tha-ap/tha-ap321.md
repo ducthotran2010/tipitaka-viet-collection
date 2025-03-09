@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXII. PHẨM ĀRAKKHADĀYAKA
 
-# 319\. Ký Sự về Trưởng Lão Kandalipupphiya
+# 319. Ký Sự về Trưởng Lão Kandalipupphiya
 
 Lúc bấy giờ, tôi đã là người nông dân ở bờ sông Sindhu. Tôi bị vướng bận trong việc quán xuyến công việc của người khác và (sống) lệ thuộc vào vật thực của người khác.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Kandalipupphiya đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Kandalipupphiya là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VII. PHẨM SAKACINTANIYA
 
-# 61\. Ký Sự về Trưởng Lão Sakacintaniya
+# 61. Ký Sự về Trưởng Lão Sakacintaniya
 
 Tôi đã nhìn thấy khu rừng bao la rậm rạp ít có tiếng động, không bị chộn rộn, chính là nơi trú ngụ của các vị ẩn sĩ, là địa điểm tiếp nhận các vật hiến cúng.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Sakacintaniyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sakacintaniya là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

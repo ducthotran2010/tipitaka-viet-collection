@@ -6,7 +6,7 @@ TẬP HAI
 
 XLV. PHẨM VIBHĪṬAKA:
 
-# 450\. Ký Sự về Trưởng Lão Bodhighariya
+# 450. Ký Sự về Trưởng Lão Bodhighariya
 
 Với tâm tịnh tín, với ý vui mừng, tôi đã cho thực hiện căn nhà ở cội Bồ Đề của đức Thế Tôn Siddhattha là vị Chúa Tể của loài người như thế ấy.
 
@@ -40,9 +40,3 @@ Phần Tóm Lược:
 Vị có trái cây vibhīṭaka, vị dâng trái táo, vị dâng trái billa, vị dâng trái bhallātaka, vị dâng tràng hoa uttalī, vị dâng bông hoa ambāṭaka, luôn cả vị có chỗ ngồi, vị dâng ghế kê chân, vị làm cái viền rào, vị cho thực hiện căn nhà của cội Bồ Đề. Ở đây, các câu kệ đã được tính đếm là bảy mươi chín câu, tất cả đã được thuật lại ở phẩm này.
 
 Phẩm Vibhīṭaka là phẩm thứ bốn mươi lăm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

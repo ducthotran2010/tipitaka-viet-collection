@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXX. PHẨM CITAKAPŪJAKA
 
-# 300\. Ký Sự về Trưởng Lão Anusaṃsāvaka
+# 300. Ký Sự về Trưởng Lão Anusaṃsāvaka
 
 Tôi đã nhìn thấy đấng Chiến Thắng Vipassī đang đi khất thực. Tôi đã dâng lên một vá thức ăn đến đấng Chúa Tể của loài người như thế ấy.
 
@@ -29,9 +29,3 @@ Bông hoa kaṇikāra, vị cúng dường voi, vật tựa (lưng), chỗ ngồ
 Tất cả gồm có hai ngàn năm trăm và bảy mươi hai câu thêm vào đó nữa. (Tổng cộng) có ba trăm ký sự đã được tính đếm bởi các vị nhìn thấy sự lợi ích.
 
 Nhóm “Một Trăm” thứ ba được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

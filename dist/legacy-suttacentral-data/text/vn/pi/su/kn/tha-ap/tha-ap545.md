@@ -6,7 +6,7 @@ TẬP HAI
 
 LV. PHẨM BHADDIYA:
 
-# 543\. Ký Sự về Trưởng Lão Sīvali
+# 543. Ký Sự về Trưởng Lão Sīvali
 
 Trước đây một trăm ngàn kiếp, vị Lãnh Đạo, đấng Chiến Thắng tên Padumuttara, bậc Hữu Nhãn về tất cả các pháp đã hiện khởi.
 
@@ -28,7 +28,7 @@ Luôn cả các vị Sa-môn và Bà-la-môn đã chắp tay lên lễ bái rằ
 
 Bạch đấng Đại Hiền Trí, cuộc đại thí đã được vị Sát-đế-lỵ dâng cúng đến Ngài trọn bảy ngày, xin Ngài hãy chú nguyện quả báu cho vị ấy, (chúng tôi) có ước muốn được nghe.”
 
-6089\. Khi ấy, đức Thế Tôn đã nói rằng: “Các ngươi hãy lắng nghe lời nói của Ta. Sự cúng dường đã khéo được thiết lập ở đức Phật vô lượng, ở Hội Chúng, ai là người thông báo rằng chính việc cúng dường ấy là có quả báu vô lượng? Và luôn cả người có của cải dồi dào này cũng phát nguyện vị thế tối thượng rằng:
+6089. Khi ấy, đức Thế Tôn đã nói rằng: “Các ngươi hãy lắng nghe lời nói của Ta. Sự cúng dường đã khéo được thiết lập ở đức Phật vô lượng, ở Hội Chúng, ai là người thông báo rằng chính việc cúng dường ấy là có quả báu vô lượng? Và luôn cả người có của cải dồi dào này cũng phát nguyện vị thế tối thượng rằng:
 
 ‘Giống như vị tỳ khưu Sudassana là có lợi lộc trong số các vị có lợi lộc dồi dào, mong rằng ta cũng có thể được tương tợ như thế,’ (người này) sẽ đạt được điều ấy trong ngày vị lai.
 
@@ -93,9 +93,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Sīvalī đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sīvalī là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

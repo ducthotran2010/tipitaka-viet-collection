@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXV. PHẨM EKAPADUMIYA
 
-# 347\. Ký Sự về Trưởng Lão Padumapūjaka
+# 347. Ký Sự về Trưởng Lão Padumapūjaka
 
 Ở không xa núi Hi-mã-lạp có ngọn núi tên là Romasa. Khi ấy, cũng có vị Phật tên Sambhava đã cư ngụ ở ngoài trời.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Ký sự về trưởng lão Padumapūjaka là phần thứ bảy.
 
 (Tụng phẩm thứ mười ba).
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

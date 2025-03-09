@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIX. PHẨM PAṂSUKŪLA:
 
-# 487\. Ký Sự về Trưởng Lão Pulinuppādaka
+# 487. Ký Sự về Trưởng Lão Pulinuppādaka
 
 Ở ngọn núi Hi-mã-lạp, (tôi là) vị đạo sĩ khổ hạnh tên Devaḷa. Con đường kinh hành của tôi ở tại nơi ấy đã được tạo nên bởi các vị phi nhân.
 
@@ -85,9 +85,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Pulinuppādaka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Pulinuppādaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

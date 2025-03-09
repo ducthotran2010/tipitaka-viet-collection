@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXV. PHẨM TUVARADĀYAKA
 
-# 250\. Ký Sự về Trưởng Lão Uddāladāyaka
+# 250. Ký Sự về Trưởng Lão Uddāladāyaka
 
 Đấng Tự Chủ tên Kakusandha, bậc không bị đánh bại, sau khi lìa khỏi khu rừng bao la đã đi đến gần con sông lớn.
 
@@ -22,9 +22,3 @@ Phần Tóm Lược:
 Hạt tuvara nướng, (vị trưởng lão) Nāgakesariya, các bông hoa sen, các bông hoa viravi, vị xông khói liêu cốc, bình bát, xá-lợi, các bông hoa sattali, các bông hoa bimbijālika, cùng với bông hoa uddālaka; (tổng cộng) có ba mươi bảy câu kệ đã được tính đếm bởi các bậc thông minh.
 
 Phẩm Tuvaradāyaka là phẩm thứ hai mươi lăm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ TẬP HAI
 
 LV. PHẨM BHADDIYA:
 
-# 544\. Ký Sự về Trưởng Lão Vaṅgīsa
+# 544. Ký Sự về Trưởng Lão Vaṅgīsa
 
 Trước đây một trăm ngàn kiếp, vị Lãnh Đạo, đấng Chiến Thắng tên Padumuttara, bậc Hữu Nhãn về tất cả các pháp đã hiện khởi.
 
@@ -42,7 +42,7 @@ Ngài đang là đấng Bảo Hộ cho những ai không người bảo hộ, l�
 
 Sau khi ngợi ca đấng Toàn Giác có đức hạnh lớn lao như thế, v.v… Tôi đã nói rằng: “Con sẽ đạt đến số phận của vị tỳ khưu tranh luận dũng cảm.”
 
-6138\. Khi ấy, đức Thế Tôn, bậc có tài biện giải không giới hạn đã nói rằng: “Được tịnh tín, người này đã tự tay mình chăm lo bữa ăn đến đức Phật cùng với (các) Thinh Văn trong bảy ngày và đã ngợi ca đức hạnh của Ta. Người này ước nguyện vị thế của vị tỳ khưu là người tranh luận dũng cảm.
+6138. Khi ấy, đức Thế Tôn, bậc có tài biện giải không giới hạn đã nói rằng: “Được tịnh tín, người này đã tự tay mình chăm lo bữa ăn đến đức Phật cùng với (các) Thinh Văn trong bảy ngày và đã ngợi ca đức hạnh của Ta. Người này ước nguyện vị thế của vị tỳ khưu là người tranh luận dũng cảm.
 
 Trong thời vị lai xa xăm người này sẽ đạt được điều ước nguyện ấy sau khi đã thọ hưởng sự thành tựu ở cõi Trời và cõi người không phải là ít.
 
@@ -105,9 +105,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Vaṅgīsa đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Vaṅgīsa là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

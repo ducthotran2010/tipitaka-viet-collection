@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XI. PHẨM BHIKKHĀDĀYĪ
 
-# 102\. Ký Sự về Trưởng Lão Ñāṇasaññaka
+# 102. Ký Sự về Trưởng Lão Ñāṇasaññaka
 
 Đức Phật, bậc Đại Ẩn Sĩ có màu da vàng chói như là loài bò mộng thuần chủng, tợ như giống voi mātaṅga (đến tuổi) bị tiết dục ở ba nơi.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Ñāṇasaññakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ñāṇasaññaka là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

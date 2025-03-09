@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIX. PHẨM PAṂSUKŪLA:
 
-# 484\. Ký Sự về Trưởng Lão Ñāṇatthavika
+# 484. Ký Sự về Trưởng Lão Ñāṇatthavika
 
 Khu ẩn cư của tôi được xây dựng khéo léo ở phía nam của núi Hi-mã-lạp. Vào lúc bấy giờ, trong khi tầm cầu mục đích tối thượng tôi cư ngụ ở trong rừng.
 
@@ -71,9 +71,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ñāṇatthavika đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ñāṇatthavika là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

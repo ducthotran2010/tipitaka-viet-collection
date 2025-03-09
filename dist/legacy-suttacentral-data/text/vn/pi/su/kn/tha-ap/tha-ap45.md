@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 V. PHẨM UPĀLI
 
-# 43\. Ký Sự về Trưởng Lão Bhaddiya Kāḷigodhāputta
+# 43. Ký Sự về Trưởng Lão Bhaddiya Kāḷigodhāputta
 
 Tất cả mọi người đi đến đức Toàn Giác Padumuttara, bậc Đại Hiền Trí có tâm từ ái, đấng Lãnh Đạo cao cả của toàn thể thế gian.
 
@@ -43,9 +43,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Bhaddiya Kāḷigodhāyaputta đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Bhaddiya Kāḷigodhāputta là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

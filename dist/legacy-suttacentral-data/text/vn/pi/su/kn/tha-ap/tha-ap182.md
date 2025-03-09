@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVIII. PHẨM KUMUDA
 
-# 180\. Ký Sự về Trưởng Lão Saṅghupaṭṭhāka
+# 180. Ký Sự về Trưởng Lão Saṅghupaṭṭhāka
 
 Vào thời kỳ đức Thế Tôn Vessabhū, tôi đã là người phụ việc tu viện. Với tâm tịnh tín, với ý vui mừng, tôi đã phục vụ Hội Chúng tối thượng.
 
@@ -22,9 +22,3 @@ Phần Tóm Lược:
 Bông súng trắng, rồi vị có cầu thang, giống cây nở hoa về đêm, vị dâng cúng giếng nước, vị có bảo tọa sư tử, vị rải rắc (bông hoa) ở con đường, vị có một ngọn đèn, vị dâng lên ngọc ma-ni, vị y sĩ, vị phục vụ; (tổng cộng) có bốn mươi chín câu kệ.
 
 Phẩm Kumuda là phẩm thứ mười tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

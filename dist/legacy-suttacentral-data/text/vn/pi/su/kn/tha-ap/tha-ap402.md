@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XL. PHẨM PIḶINDIVACCHA
 
-# 400\. Ký Sự về Trưởng Lão Ajita
+# 400. Ký Sự về Trưởng Lão Ajita
 
 Sau khi đi sâu vào núi Hi-mã-lạp, đấng Chiến Thắng tên Padumuttara, bậc thông suốt về tất cả các pháp, đấng Lãnh Đạo Thế Gian đã ngồi xuống.
 
@@ -93,9 +93,3 @@ Giờ là phần tóm lược của các phẩm:
 Nhóm “Mười” từ phẩm Paduma.
 
 Nhóm “Một Trăm” thứ tư được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VI. PHẨM VĪJANĪ
 
-# 58\. Ký Sự về Trưởng Lão Dhajadāyaka
+# 58. Ký Sự về Trưởng Lão Dhajadāyaka
 
 Ở tại cội cây Bồ Đề của đức Phật Padumuttara, tôi đã trở nên mừng rỡ. Với tâm mừng rỡ tôi đã treo ngọn cờ ở chóp đỉnh của cội cây.
 
@@ -29,9 +29,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Dhajadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Dhajadāyaka là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

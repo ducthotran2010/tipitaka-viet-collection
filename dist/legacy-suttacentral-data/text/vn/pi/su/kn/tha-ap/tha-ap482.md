@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVIII. PHẨM NAḶAMĀLĪ:
 
-# 480\. Ký Sự về Trưởng Lão Pulinacaṅkamiya
+# 480. Ký Sự về Trưởng Lão Pulinacaṅkamiya
 
 Trong thời quá khứ, tôi đã là thợ săn thú rừng ở trong khu rừng hoang rậm. Trong lúc tìm kiếm loài linh dương, tôi đã nhìn thấy con đường kinh hành.
 
@@ -28,9 +28,3 @@ Phần Tóm Lược:
 Vị có tràng hoa sậy, vị dâng ngọc ma-ni, vị có trăm ngọn đuốc, vị có cây quạt, món sữa đông, thẻ vật thực, luôn cả bông hoa nguyệt quế ở núi, trái cây vallikāra, vị dâng đôi dép, và đường kinh hành rải cát. Có chín mươi lăm câu kệ đã được tính đếm bởi các bậc trí.
 
 Phẩm Naḷamālī là phẩm thứ bốn mươi tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

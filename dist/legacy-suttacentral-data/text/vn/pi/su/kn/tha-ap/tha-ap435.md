@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIV. PHẨM EKAVIHĀRĪ:
 
-# 433\. Ký Sự về Trưởng Lão Pāṭihīrasaññaka
+# 433. Ký Sự về Trưởng Lão Pāṭihīrasaññaka
 
 Khi ấy, đấng Chiến Thắng tên Padumuttara, vị thọ nhận các vật hiến cúng, đã đi vào thành phố cùng với một trăm ngàn vị có năng lực (A-la-hán).
 
@@ -29,9 +29,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Pāṭihīrasaññakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Pāṭihīrasaññaka là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

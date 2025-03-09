@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVII. PHẨM SĀLAKUSUMIYA:
 
-# 468\. Ký Sự về Trưởng Lão Pilakkhaphaladāyaka
+# 468. Ký Sự về Trưởng Lão Pilakkhaphaladāyaka
 
 Sau khi nhìn thấy đức Phật Atthadassī, bậc có danh vọng lớn lao ở cuối rừng, với tâm tịnh tín với ý vui mừng tôi đã dâng lên trái của cây sung.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Pilakkhaphaladāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Pilakkhaphaladāyaka là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

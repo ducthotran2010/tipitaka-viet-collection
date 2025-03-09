@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXI. PHẨM KAṆIKĀRAPUPPHIYA
 
-# 210\. Ký Sự về Trưởng Lão Vātātapanivāriya
+# 210. Ký Sự về Trưởng Lão Vātātapanivāriya
 
 Tôi đã cúng dường một chiếc lọng đến đức Thế Tộn Tissa, vị Trời của chư Thiên như thế ấy, với tâm ý trong sạch.
 
@@ -28,9 +28,3 @@ Phần Tóm Lược:
 Bông hoa kaṇikāra, bông hoa minela, bông hoa kiṅkiṇi, và với sự vượt qua, vị có bông hoa nigguṇḍi, vị cúng dường nước, bông hoa salala, và bông hoa kuraṇḍaka, (vị dâng cúng) chân đế bình bát, lọng che nắng; (tổng cộng) có bốn mươi tám câu kệ.
 
 Phẩm Kaṇikārapupphiya là phẩm thứ hai mươi mốt.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

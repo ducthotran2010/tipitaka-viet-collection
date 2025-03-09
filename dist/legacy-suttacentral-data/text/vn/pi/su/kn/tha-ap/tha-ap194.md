@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XX. PHẨM TAMĀLAPUPPHIYA
 
-# 192\. Ký Sự về Trưởng Lão Tiṇasantharadāyaka
+# 192. Ký Sự về Trưởng Lão Tiṇasantharadāyaka
 
 Cỏ mà vị ẩn sĩ sống ở trong rừng (đã) cắt cho bậc Đạo Sư, tất cả cỏ ấy đã ngã xuống ở trên mặt đất, nghiêng về phía phải.
 
@@ -21,9 +21,3 @@ Trước đây sáu mươi lăm kiếp, bốn vị (cùng) tên Mahaddhana đã 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Tiṇasantharadāyakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

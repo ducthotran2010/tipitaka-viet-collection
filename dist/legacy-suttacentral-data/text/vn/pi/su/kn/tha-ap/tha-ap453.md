@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVI. PHẨM JAGATIDĀYAKA:
 
-# 451\. Ký Sự về Trưởng Lão Jagatidāyaka
+# 451. Ký Sự về Trưởng Lão Jagatidāyaka
 
 Với tâm tịnh tín, với ý vui mừng, tôi đã cho thực hiện nền đất ở cội cây Bồ Đề tối thượng của bậc Hiền Trí Dhammadassī.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Jagatidāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Jagatidāyaka là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

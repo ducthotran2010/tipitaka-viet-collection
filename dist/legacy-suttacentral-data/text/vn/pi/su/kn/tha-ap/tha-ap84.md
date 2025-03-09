@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IX. PHẨM TIMIRAPUPPHIYA
 
-# 82\. Ký Sự về Trưởng Lão Gatasaññaka
+# 82. Ký Sự về Trưởng Lão Gatasaññaka
 
 Bảy tuổi tính từ khi sanh, tôi đã xuất gia vào đời sống không gia đình. Tôi đã đảnh lễ ở bàn chân của bậc Đạo Sư với tâm ý trong sạch.
 
@@ -21,9 +21,3 @@ Trước đây vào kiếp thứ tám, đã có ba vị (cùng tên) Aggisikha l
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Gatasaññakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

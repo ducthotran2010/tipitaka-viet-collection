@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XV. PHẨM CHATTA
 
-# 141\. Ký Sự về Trưởng Lão Atichattiya
+# 141. Ký Sự về Trưởng Lão Atichattiya
 
 Khi đức Thế Tôn, bậc Tối Thượng Nhân Atthadassī viên tịch đã Niết Bàn, tôi đã cho thực hiện chiếc lọng che ở thượng tầng và đã dâng lên ở ngôi bảo tháp.
 
@@ -19,9 +19,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Atichattiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Atichattiya là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

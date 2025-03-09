@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XX. PHẨM TAMĀLAPUPPHIYA
 
-# 200\. Ký Sự về Trưởng Lão Yūthikāpupphiya
+# 200. Ký Sự về Trưởng Lão Yūthikāpupphiya
 
 Đấng Chiến Thắng tên Padumuttara, vị thọ nhận các vật hiến cúng, bậc Hữu Nhãn đã rời khỏi khu rừng bao la và đã đi đến trú xá.
 
@@ -31,9 +31,3 @@ Vị dâng cúng thức ăn, (vị có) đoàn tùy tùng, bông hoa sereyya, tr
 Nhóm “Mười” từ phẩm Bhikkhā.
 
 Nhóm “Một Trăm” thứ nhì được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

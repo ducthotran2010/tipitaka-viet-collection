@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIII. PHẨM SAKIṂSAMMAJJAKA:
 
-# 428\. Ký Sự về Trưởng Lão Sucintita
+# 428. Ký Sự về Trưởng Lão Sucintita
 
 Tôi đã là người nông dân ở thành phố Haṃsavatī. Tôi sinh sống bằng công việc trồng trọt. Nhờ thế, tôi nuôi dưỡng các đứa trẻ.
 
@@ -79,9 +79,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Sucintitađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sucintita là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

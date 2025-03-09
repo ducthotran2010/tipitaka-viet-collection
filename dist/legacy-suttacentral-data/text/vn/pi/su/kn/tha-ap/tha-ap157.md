@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVI. PHẨM BANDHUJĪVAKA
 
-# 155\. Ký Sự về Trưởng Lão Mandāravapūjaka
+# 155. Ký Sự về Trưởng Lão Mandāravapūjaka
 
 Trong khi là vị Thiên tử, tôi đã cúng dường đến đấng Lãnh Đạo Sikhī. Tôi đã cầm lấy bông hoa mandārava và đã dâng lên đức Phật.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Mandāravapūjakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Mandāravapūjaka là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

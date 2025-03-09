@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXVI. PHẨM THOMAKA
 
-# 258\. Ký Sự về Trưởng Lão Paṇṇadāyaka
+# 258. Ký Sự về Trưởng Lão Paṇṇadāyaka
 
 Tôi là vị mặc y phục bằng vỏ cây ở ngọn núi Hi-mã-lạp. Thu thúc trong các điều kiện hạn chế, tôi có thức ăn là muối và lá cây.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Paṇṇadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Paṇṇadāyaka là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

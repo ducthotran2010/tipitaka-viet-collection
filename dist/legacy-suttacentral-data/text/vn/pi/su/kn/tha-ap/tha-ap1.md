@@ -62,7 +62,7 @@ Có nhiều cây Như Ý thuộc cõi trời và thuộc loài người, (từ c
 
 Ta đã chứa đầy các bình bát xinh đẹp làm bằng ngọc ma-ni với các vật thực cứng mềm đáng được thưởng thức, có đầy đủ nước uống và thức ăn, rồi đã dâng cúng (đến các vị ấy).
 
-29\. Tất cả các vị ấy, đoàn thể các bậc Thánh nhân, đều đồng đẳng về Thiên nhãn (và) gắn bó với tấm y thanh bạch. Được toại ý với vật thực tối thắng (của Ta) gồm có mật ong, đường thô, luôn cả dầu ăn, và mật mía, (các vị) đã đi vào gian phòng làm bằng châu báu tợ như những con sư tử cư ngụ ở hang động.
+29. Tất cả các vị ấy, đoàn thể các bậc Thánh nhân, đều đồng đẳng về Thiên nhãn (và) gắn bó với tấm y thanh bạch. Được toại ý với vật thực tối thắng (của Ta) gồm có mật ong, đường thô, luôn cả dầu ăn, và mật mía, (các vị) đã đi vào gian phòng làm bằng châu báu tợ như những con sư tử cư ngụ ở hang động.
 
 Các vị đã nằm xuống với tư thế của loài sư tử ở chiếc giường vô cùng giá trị, có sự tỉnh thức, rồi đã ngồi dậy và đã xếp vào tư thế kiết già ở trên chiếc giường, thể nhập vào sự thỏa thích trong thiền là hành xứ của tất cả chư Phật.
 
@@ -90,7 +90,7 @@ Chư Phật Toàn Giác, chư Phật Độc Giác, chư Thinh Văn, và tín ch�
 
 ‘Nguyện cho tất cả các chiếc trống hãy vang lên, tất cả các cây đàn vīṇā ấy hãy tấu nhạc. Nguyện cho tất cả các cuộc trì tụng (được) tiến hành ở xung quanh của tòa lâu đài.’
 
-44\. ‘Nguyện cho những chiếc ghế bành bằng vàng khổng lồ, hội đủ hào quang, không bị hỏng hóc, làm bằng châu báu hãy tồn tại từ thế giới này đến thế giới khác cho đến địa phận của chư Phật. Nguyện cho những cây đèn ấy hãy chói sáng. Nguyện cho hệ thống mười ngàn (thế giới) hãy trở thành (sáng chói như là) một ngọn đèn.’
+44. ‘Nguyện cho những chiếc ghế bành bằng vàng khổng lồ, hội đủ hào quang, không bị hỏng hóc, làm bằng châu báu hãy tồn tại từ thế giới này đến thế giới khác cho đến địa phận của chư Phật. Nguyện cho những cây đèn ấy hãy chói sáng. Nguyện cho hệ thống mười ngàn (thế giới) hãy trở thành (sáng chói như là) một ngọn đèn.’
 
 ‘Nguyện cho các kiều nữ luôn cả các vũ công, các toán mỹ nhân hãy nhảy múa. Nguyện cho các màn trình diễn đa dạng hãy được phô diễn ở xung quanh của tòa lâu đài.’
 
@@ -169,9 +169,3 @@ Như vậy, chư Phật là không thể nghĩ bàn. Giáo Pháp của chư Ph�
 Trong khi trình bày về phẩm hạnh Phật của bản thân, đức Thế Tôn đã nói về bản thể của Giáo Pháp tên là Buddhāpadāniyaṃnhư thế ấy.
 
 Ký Sự về Phật Toàn Giác được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

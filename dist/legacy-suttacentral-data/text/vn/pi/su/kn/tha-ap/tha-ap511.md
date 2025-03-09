@@ -6,7 +6,7 @@ TẬP HAI
 
 LI. PHẨM KAṆIKĀRA:
 
-# 509\. Ký Sự về Trưởng Lão Tālaphaladāyaka
+# 509. Ký Sự về Trưởng Lão Tālaphaladāyaka
 
 Đức Thế Tôn tên Sataraṃsī, đấng Tự Chủ, vị không bị đánh bại, đã xuất ra khỏi sự độc cư và đã ra đi về việc khất thực.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Tālaphaladāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Tālaphaladāyaka là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

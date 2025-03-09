@@ -6,13 +6,13 @@ TẬP HAI
 
 LV. PHẨM BHADDIYA:
 
-# 548\. Ký Sự về Trưởng Lão Lomasakaṅgiya
+# 548. Ký Sự về Trưởng Lão Lomasakaṅgiya
 
 Ở vào kiếp Bhadda này, trong số các vị đang thuyết giảng đã hiện khởi đấng cao quý tên Kassapa, có danh tiếng vĩ đại, là thân quyến của đấng Phạm Thiên (dòng dõi Bà-la-môn).
 
 Lúc bấy giờ, tôi và luôn cả Candana đã xuất gia trong Giáo Pháp và đã làm tròn đầy bổn phận trong Giáo Pháp cho đến phút cuối của cuộc đời.
 
-6252\. Từ nơi ấy chết đi, cả hai chúng tôi đã đạt đến cõi trời Đẩu Suất. Tại nơi ấy, chúng tôi đã vượt trội những vị còn lại về mười chi phần là sắc, v.v… về các điệu vũ, các lời ca, và các khúc tấu nhạc. Chúng tôi đã sống cho đến hết tuổi thọ và đã trải qua sự an lạc lớn lao.
+6252. Từ nơi ấy chết đi, cả hai chúng tôi đã đạt đến cõi trời Đẩu Suất. Tại nơi ấy, chúng tôi đã vượt trội những vị còn lại về mười chi phần là sắc, v.v… về các điệu vũ, các lời ca, và các khúc tấu nhạc. Chúng tôi đã sống cho đến hết tuổi thọ và đã trải qua sự an lạc lớn lao.
 
 Sau khi mệnh chung từ nơi ấy, Candana đã đi đến cõi trời Đạo Lợi, tôi đã trở thành người con trai dòng Sakya ở thành Kapilavatthu.
 
@@ -61,9 +61,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Lomasakaṅgiya đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Lomasakaṅgiya là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

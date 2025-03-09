@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IV. PHẨM KUṆḌADHĀNA
 
-# 32\. Ký Sự về Trưởng Lão Sāgata
+# 32. Ký Sự về Trưởng Lão Sāgata
 
 Lúc bấy giờ, tôi đã là vị Bà-la-môn tên Sobhita. Được tháp tùng bởi những người học trò của mình, tôi đã đi đến tu viện.
 
@@ -39,9 +39,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Sāgata đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sāgata là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

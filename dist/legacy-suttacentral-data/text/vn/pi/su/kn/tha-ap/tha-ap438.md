@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIV. PHẨM EKAVIHĀRĪ:
 
-# 436\. Ký Sự về Trưởng Lão Kalambadāyaka
+# 436. Ký Sự về Trưởng Lão Kalambadāyaka
 
 Bậc Tự Giác Ngộ tên Romasa ngụ ở trong vùng đồi núi. Được tịnh tín, tôi đã tự tay mình dâng lên Ngài bông hoa kalamba.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Kalambadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Kalambadāyaka là phần thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

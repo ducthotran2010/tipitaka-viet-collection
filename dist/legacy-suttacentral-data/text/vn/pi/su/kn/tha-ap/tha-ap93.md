@@ -6,9 +6,9 @@ PHẦN THỨ NHẤT
 
 X. PHẨM SUDHAPIṆḌIYA
 
-# 91\. Ký Sự về Trưởng Lão Sudhāpiṇḍiya
+# 91. Ký Sự về Trưởng Lão Sudhāpiṇḍiya
 
-1554\. Đối với người đang cúng dường đến đối tượng xứng đáng sự cúng dường như là đức Phật hoặc là vị Thinh Văn đang vượt qua chướng ngại, hoặc đã vượt qua sầu muộn và than vãn, đối với người đang cúng dường đến các vị đã đạt Niết Bàn không còn hãi sợ như thế ấy thì không thể nào ước định được phước báu (của người ấy) là thế này hay thế kia, bằng bất cứ cách thức gì.
+1554. Đối với người đang cúng dường đến đối tượng xứng đáng sự cúng dường như là đức Phật hoặc là vị Thinh Văn đang vượt qua chướng ngại, hoặc đã vượt qua sầu muộn và than vãn, đối với người đang cúng dường đến các vị đã đạt Niết Bàn không còn hãi sợ như thế ấy thì không thể nào ước định được phước báu (của người ấy) là thế này hay thế kia, bằng bất cứ cách thức gì.
 
 Ở đây người nào có thể được làm chúa tể thậm chí của cả bốn châu lục, điều ấy không giá trị bằng một phần mười sáu của một phần nhỏ của sự cúng dường.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Sudhāpiṇḍiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sudhāpiṇḍiya là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

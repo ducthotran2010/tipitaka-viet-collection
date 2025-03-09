@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXVI. PHẨM SADDASAÑÑAKA
 
-# 357\. Ký Sự về Trưởng Lão Supuṭakapūjaka
+# 357. Ký Sự về Trưởng Lão Supuṭakapūjaka
 
 Đấng Lãnh Đạo Thế Gian Vipassī, trong khi lìa khỏi việc nghỉ ngơi ban ngày, trong khi đi đó đây về việc khất thực, Ngài đã đi đến gần chỗ của tôi.
 
@@ -19,9 +19,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Supuṭakapūjakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Supuṭakapūjaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

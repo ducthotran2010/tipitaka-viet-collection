@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VI. PHẨM VĪJANĪ
 
-# 55\. Ký Sự về Trưởng Lão Opavayha
+# 55. Ký Sự về Trưởng Lão Opavayha
 
 Tôi đã dâng cúng con ngựa thuần chủng đến đức Phật Padumuttara. Sau khi dâng tặng cho bậc Toàn Giác, tôi đã đi về căn nhà của mình.
 
@@ -31,9 +31,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Opavayha đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Opavayha là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

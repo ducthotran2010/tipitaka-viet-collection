@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIX. PHẨM KUṬAJAPUPPHIYA
 
-# 185\. Ký Sự về Trưởng Lão Isimuggadāyaka
+# 185. Ký Sự về Trưởng Lão Isimuggadāyaka
 
 (Tôi đã nhìn thấy) đấng Lãnh Đạo Thế Gian tợ như mặt trời đang mọc lên, tợ như mặt trời có tia sáng màu trắng, tợ như cây kakudha đang chói sáng.
 
@@ -21,9 +21,3 @@ Trong bốn mươi ngàn kiếp, ba mươi tám người ấy có (cùng) tên l
 Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Isimuggadāyakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

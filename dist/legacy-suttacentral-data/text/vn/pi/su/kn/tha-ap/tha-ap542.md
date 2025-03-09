@@ -6,7 +6,7 @@ TẬP HAI
 
 LIV. PHẨM KACCĀNA:
 
-# 540\. Ký Sự về Trưởng Lão Mogharāja
+# 540. Ký Sự về Trưởng Lão Mogharāja
 
 Trước đây một trăm ngàn kiếp, đấng Chiến Thắng tên Padumuttara, bậc Hiền Trí, đấng hiểu biết về toàn bộ thế giới, bậc Hữu Nhãn đã hiện khởi.
 
@@ -88,9 +88,3 @@ Phần Tóm Lược:
 Vị Kaccāna, vị trưởng lão Vakkali, vị có tên là Mahākappina, vị Dabba, vị có tên là Kumāra, vị Bāhiya, vị Koṭṭhita có năng lực, vị Uruvelakassapa, vị Rādha, và bậc trí tuệ Mogharājā. Ở đây có ba trăm và luôn cả sáu mươi hai câu kệ đã được gộp chung lại.
 
 Phẩm Kaccāna là phẩm thứ năm mươi bốn.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

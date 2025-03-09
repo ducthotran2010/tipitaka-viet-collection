@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVIII. PHẨM NAḶAMĀLĪ:
 
-# 471\. Ký Sự về Trưởng Lão Naḷamāliya
+# 471. Ký Sự về Trưởng Lão Naḷamāliya
 
 Tôi đã nhìn thấy bậc Toàn Giác có màu da vàng chói, vị thọ nhận các vật hiến cúng, đấng Lãnh Đạo Thế Gian, đang di chuyển ở phía trên chóp đỉnh của khu rừng bao la.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Naḷamāliya đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Naḷamāliya là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

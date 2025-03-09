@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 X. PHẨM SUDHAPIṆḌIYA
 
-# 99\. Ký Sự về Trưởng Lão Veyyāvaccaka
+# 99. Ký Sự về Trưởng Lão Veyyāvaccaka
 
 Đã có đoàn người vô cùng đông đúc đến với đức Thế Tôn Vipassī. Tôi là đã người làm việc phục dịch năng động trong mọi công chuyện.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Veyyāvaccakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Veyyāvaccaka là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

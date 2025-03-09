@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XX. PHẨM TAMĀLAPUPPHIYA
 
-# 198\. Ký Sự về Trưởng Lão Muṭṭhipūjaka
+# 198. Ký Sự về Trưởng Lão Muṭṭhipūjaka
 
 Vì lòng thương tưởng hậu thế, đức Thế Tôn tên Sumedha, đấng Trưởng Thượng của thế gian, bậc Nhân Ngưu, đấng Chiến Thắng đã ra sức nỗ lực.
 
@@ -19,9 +19,3 @@ Trong hai ngàn ba trăm kiếp, tôi đã là vị Sát-đế-lỵ tên Sunela,
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Muṭṭhipūjakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

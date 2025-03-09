@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIV. PHẨM SOBHITA
 
-# 139\. Ký Sự về Trưởng Lão Sālapupphadāyaka
+# 139. Ký Sự về Trưởng Lão Sālapupphadāyaka
 
 Lúc bấy giờ, tôi đã là vua của loài thú, là con sư tử đã được sanh ra cao quý. Trong khi tìm kiếm chỗ hiểm trở ở ngọn núi, tôi đã nhìn thấy đấng Lãnh Đạo Thế Gian.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Sālapupphadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sālapupphadāyaka là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

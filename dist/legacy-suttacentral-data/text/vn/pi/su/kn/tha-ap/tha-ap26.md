@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 III. PHẨM SUBHŪTI
 
-# 24\. Ký Sự về Trưởng Lão Pañcasīlasamādāniya
+# 24. Ký Sự về Trưởng Lão Pañcasīlasamādāniya
 
 Khi ấy, tôi đã là người làm công ở thành phố Candavatī. Bị vướng bận trong việc quán xuyến công việc của người khác, tôi không đạt được sự xuất gia.
 
@@ -53,9 +53,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Pañcasīlasamādāniyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Pañcasīlasamādāniya là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

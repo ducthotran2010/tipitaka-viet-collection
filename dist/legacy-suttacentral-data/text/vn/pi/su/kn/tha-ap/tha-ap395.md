@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XL. PHẨM PIḶINDIVACCHA
 
-# 393\. Ký Sự về Trưởng Lão Sabbakittika
+# 393. Ký Sự về Trưởng Lão Sabbakittika
 
 (Tôi đã nhìn thấy đấng Lãnh Đạo Thế Gian) tợ như cây kaṇikāra đang cháy sáng, tợ như cây đèn đang phát sáng, tợ như vì sao osadhī đang chiếu sáng, giống như tia chớp ở bầu trời.
 
@@ -69,9 +69,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Sabbakittikađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sabbakittika là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXIII. PHẨM UMMĀPUPPHIYA
 
-# 322\. Ký Sự về Trưởng Lão Pulinapūjaka
+# 322. Ký Sự về Trưởng Lão Pulinapūjaka
 
 (Tôi đã nhìn thấy) đấng Nhân Ngưu đang chiếu sáng, trông tợ như cây kakudha đang chói sáng, giống như con bò mộng thuần chủng, tợ như vì sao osadhī đang tỏa rạng.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Pulinapūjakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Pulinapūjaka là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXII. PHẨM ĀRAKKHADĀYAKA
 
-# 314\. Ký Sự về Trưởng Lão Sattapadumiya
+# 314. Ký Sự về Trưởng Lão Sattapadumiya
 
 Tôi là vị Bà-la-môn tên Nesāda sống ở bờ sông. Tôi đã quét dọn khu ẩn cư bằng những bông hoa (sen) có trăm cánh.
 
@@ -21,9 +21,3 @@ Trước đây bảy mươi ba kiếp, bốn vị (cùng tên) Pādapāvara đã
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Sattapadumiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

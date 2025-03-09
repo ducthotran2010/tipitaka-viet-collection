@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VI. PHẨM VĪJANĪ
 
-# 60\. Ký Sự về Trưởng Lão Asanabodhiya
+# 60. Ký Sự về Trưởng Lão Asanabodhiya
 
 Vào lúc bảy tuổi tính từ khi sanh, tôi đã nhìn thấy đấng Lãnh Đạo Thế Gian. Với tâm tịnh tín, với ý vui mừng, tôi đã đi đến gần bậc Tối Thượng Nhân.
 
@@ -46,9 +46,3 @@ Phần Tóm Lược:
 Vị có cây quạt, vị Sataraṃsī, chiếc giường, vị có nước hương thơm, vị có phương tiện di chuyển, vị có vật phụ thuộc, cây đèn, ngọn cờ, vị cúng dường hoa sen hồng, và cội Bồ Đề là thứ mười. Như thế, (tổng cộng) có chín mươi hai câu kệ đã được nói đến.
 
 Phẩm Vījanī là phẩm thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

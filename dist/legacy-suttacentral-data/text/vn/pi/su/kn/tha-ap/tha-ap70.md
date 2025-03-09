@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VII. PHẨM SAKACINTANIYA
 
-# 68\. Ký Sự về Trưởng Lão Ambadāyaka
+# 68. Ký Sự về Trưởng Lão Ambadāyaka
 
 Đức Thế Tôn Anomadassī, bậc không còn mầm mống tái sanh, ngồi ở vùng đồi núi đã lan tỏa với tâm từ ái ở thế gian vô hạn lượng.
 
@@ -14,7 +14,7 @@ Khi ấy, tôi đã là con khỉ ở ngọn núi Hi-mã-lạp tối thượng. 
 
 Lúc bấy giờ, ở không xa núi Hi-mã-lạp có những cây xoài đã được kết trái. Tôi đã hái trái chín từ nơi ấy và đã dâng cúng trái xoài cùng với mật ong.
 
-1405\. Đức Phật, bậc Đại Hiền Trí Anomadassī đã chú nguyện điều ấy cho tôi rằng: “Do cả hai việc là sự dâng cúng mật ong và sự dâng cúng trái xoài này, (người ấy) sẽ sướng vui ở thế giới chư Thiên trong năm mươi bảy kiếp, và trong những kiếp còn lại sẽ luân hồi xen kẽ (giữa cõi trời và cõi người).
+1405. Đức Phật, bậc Đại Hiền Trí Anomadassī đã chú nguyện điều ấy cho tôi rằng: “Do cả hai việc là sự dâng cúng mật ong và sự dâng cúng trái xoài này, (người ấy) sẽ sướng vui ở thế giới chư Thiên trong năm mươi bảy kiếp, và trong những kiếp còn lại sẽ luân hồi xen kẽ (giữa cõi trời và cõi người).
 
 (Người ấy) sẽ làm cho nghiệp ác được loại trừ nhờ vào trí giác ngộ đã được hoàn toàn chín muồi, sẽ không đi đến đọa xứ, và sẽ thiêu đốt các phiền não.”
 
@@ -27,9 +27,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Ambadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ambadāyaka là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

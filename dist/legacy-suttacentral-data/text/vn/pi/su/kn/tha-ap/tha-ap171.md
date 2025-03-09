@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVII. PHẨM SUPĀRICARIYA
 
-# 169\. Ký Sự về Trưởng Lão Samādapaka
+# 169. Ký Sự về Trưởng Lão Samādapaka
 
 Ở tại thành phố Bandhumatī, đã có hội chúng cư sĩ đông đảo. Tôi đã là người ưu tú trong số họ, và họ là các cộng sự viên của tôi.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Samādapaka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Samādapaka là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

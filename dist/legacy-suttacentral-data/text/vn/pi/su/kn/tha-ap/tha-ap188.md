@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIX. PHẨM KUṬAJAPUPPHIYA
 
-# 186\. Ký Sự về Trưởng Lão Bodhi-upaṭṭhāka
+# 186. Ký Sự về Trưởng Lão Bodhi-upaṭṭhāka
 
 Tôi đã là người sử dụng chiếc trống con ở thành phố Rammavatī. Thường xuyên bận rộn với công việc phục vụ, tôi đã đi đến cội Bồ Đề tối thượng.
 
@@ -17,9 +17,3 @@ Trước đây một ngàn năm trăm kiếp, tôi đã là vị thống lãnh d
 Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Bodhi-upaṭṭhākađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

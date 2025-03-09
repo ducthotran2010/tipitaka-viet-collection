@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIX. PHẨM KUṬAJAPUPPHIYA
 
-# 182\. Ký Sự về Trưởng Lão Bandhujīvaka
+# 182. Ký Sự về Trưởng Lão Bandhujīvaka
 
 Đấng Toàn Giác, bậc Tự Chủ tên Siddhattha là vị đã được các bậc có đức hạnh ca ngợi. Được thành tựu về thiền định, Ngài đã ngồi ở trong vùng đồi núi.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Bandhujīvakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Bandhujīvaka là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

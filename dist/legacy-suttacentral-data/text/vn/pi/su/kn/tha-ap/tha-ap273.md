@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXVIII. PHẨM SUVAṆṆABIMBOHANA
 
-# 271\. Ký Sự về Trưởng Lão Suvaṇṇabimbohaniya
+# 271. Ký Sự về Trưởng Lão Suvaṇṇabimbohaniya
 
 Được tịnh tín, tôi đã tự tay mình dâng cúng một cái ghế. Và tôi đã dâng lên cái gối nhằm đạt đến mục đích tối thượng
 
@@ -17,9 +17,3 @@ Trước đây vào kiếp thứ sáu mươi ba, (tôi đã là) vị Sát-đế
 Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Suvaṇṇabimbohaniyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

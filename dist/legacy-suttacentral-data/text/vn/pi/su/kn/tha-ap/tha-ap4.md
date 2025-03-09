@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 I. PHẨM ĐỨC PHẬT
 
-# 2\. Ký Sự về Trưởng Lão Mahāmoggallāna
+# 2. Ký Sự về Trưởng Lão Mahāmoggallāna
 
 Đức Thế Tôn Anomadassī, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu, đã cư ngụ tại núi Hi-mã-lạp, đứng đầu hội chúng chư Thiên.
 
@@ -59,9 +59,3 @@ Về việc làm mà tôi đã khẳng định trước đây vô lượng kiế
 Đại đức trưởng lão Mahāmoggallāna đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Mahāmoggallāna là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

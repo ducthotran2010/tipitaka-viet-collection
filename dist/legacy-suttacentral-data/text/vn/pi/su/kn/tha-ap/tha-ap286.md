@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXIX. PHẨM PAṆṆADĀYAKA
 
-# 284\. Ký Sự về Trưởng Lão Ekapupphiya
+# 284. Ký Sự về Trưởng Lão Ekapupphiya
 
 Lúc bấy giờ, tôi đã là con yêu tinh ở cánh cổng phía nam. Tôi đã nhìn thấy đức Phật, bậc Vô Nhiễm, tợ như mặt trời có tia sáng màu vàng.
 
@@ -17,9 +17,3 @@ Kể từ khi tôi đã dâng cúng bông hoa trước đây chín mươi mốt 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Ekapupphiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

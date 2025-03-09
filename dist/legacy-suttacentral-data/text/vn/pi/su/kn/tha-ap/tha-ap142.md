@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIV. PHẨM SOBHITA
 
-# 140\. Ký Sự về Trưởng Lão Piyālaphaladāyaka
+# 140. Ký Sự về Trưởng Lão Piyālaphaladāyaka
 
 Lúc bấy giờ, tôi đã là kẻ đồ tể, là kẻ giết hại các sanh mạng khác. Tôi nằm ngủ ở sườn núi không xa bậc Đạo Sư Sikhī.
 
@@ -30,9 +30,3 @@ Phần Tóm Lược:
 Vị Sobhita, vị Sudassana, (vị dâng cúng) trầm hương, (vị dâng cúng) mái che bằng bông hoa, vị suy tưởng về nơi thanh vắng, vị có bông hoa campaka, cùng với vị chỉ dạy về mục đích, vị có một lần tịnh tín, vị dâng cúng bông hoa sālā, và vị dâng cúng trái cây là thứ mười; (tổng cộng) có bảy mươi hai câu kệ đã được tính đếm bởi các bậc trí.
 
 Phẩm Sobhita là phẩm thứ mười bốn.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

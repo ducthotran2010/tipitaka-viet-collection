@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XX. PHẨM TAMĀLAPUPPHIYA
 
-# 197\. Ký Sự về Trưởng Lão Tindukadāyaka
+# 197. Ký Sự về Trưởng Lão Tindukadāyaka
 
 Tôi đã là con khỉ có sức mạnh và nhanh nhẹn, thường lai vãng ở nơi hiểm trở của ngọn núi. Sau khi nhìn thấy cây tinduka có trái, tôi đã tưởng nhớ đến đức Phật tối thượng.
 
@@ -23,9 +23,3 @@ Trước đây năm mươi bảy kiếp, (tôi đã là) vị có tên Upananda,
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Tindukadāyakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

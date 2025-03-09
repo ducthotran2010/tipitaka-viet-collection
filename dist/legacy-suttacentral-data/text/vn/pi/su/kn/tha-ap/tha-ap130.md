@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIII. PHẨM SEREYYAKA
 
-# 128\. Ký Sự về Trưởng Lão Ñāṇasaññaka
+# 128. Ký Sự về Trưởng Lão Ñāṇasaññaka
 
 Tôi sống trong vùng đồi núi tại núi Hi-mã-lạp. Sau khi nhìn thấy bãi cát đang chói sáng, tôi đã tưởng nhớ đến đức Phật tối thượng rằng:
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Ñāṇasaññakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ñāṇasaññaka là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

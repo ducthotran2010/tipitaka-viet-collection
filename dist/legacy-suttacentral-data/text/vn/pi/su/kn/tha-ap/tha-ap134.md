@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIV. PHẨM SOBHITA
 
-# 132\. Ký Sự về Trưởng Lão Sudassana
+# 132. Ký Sự về Trưởng Lão Sudassana
 
 Ở bờ sông Vitatthā, cây pilakkha đã được kết trái. Trong khi tìm kiếm giống cây ấy, tôi đã nhìn thấy đấng Lãnh Đạo Thế Gian.
 
@@ -23,9 +23,3 @@ Trước đây mười ba kiếp, mười hai vị (cùng) tên Phaluggata đã 
 Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Sudassana đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

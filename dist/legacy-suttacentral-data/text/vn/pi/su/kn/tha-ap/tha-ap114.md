@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XII. PHẨM MAHĀPARIVĀRA
 
-# 112\. Ký Sự về Trưởng Lão Sumaṅgala
+# 112. Ký Sự về Trưởng Lão Sumaṅgala
 
 Đấng Chiến Thắng cao quý Atthadassī, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu sau khi rời khỏi trú xá đã đi đến hồ nước.
 
@@ -27,9 +27,3 @@ Trước đây một ngàn sáu trăm kiếp, đã có hai, rồi chín vị cù
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Sumaṅgala đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

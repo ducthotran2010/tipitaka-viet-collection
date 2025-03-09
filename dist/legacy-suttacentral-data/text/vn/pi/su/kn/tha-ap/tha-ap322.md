@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXII. PHẨM ĀRAKKHADĀYAKA
 
-# 320\. Ký Sự về Trưởng Lão Kumudamāliya
+# 320. Ký Sự về Trưởng Lão Kumudamāliya
 
 (Tôi đã nhìn thấy) đấng Đại Hùng Vipassī, vị Anh Hùng ưu tú, quý cao, bậc Đại Ẩn Sĩ có sự chinh phục, tợ như con sư tử đã được sanh ra cao quý.
 
@@ -24,9 +24,3 @@ Phần Tóm Lược:
 Vị dâng cúng sự bảo vệ, vị dâng cúng vật thực, vị có sự suy tưởng về đức Phật đã đi qua, vị liên quan đến đóa hoa sen, vị có chỗ ngồi bằng bông hoa, vị ca ngợi, vị có sự suy tưởng về âm thanh, ba loại hào quang, vị có hoa kandali, vị có hoa kumuda, (tổng cộng) có năm mươi bảy câu kệ.
 
 Phẩm Ārakkhadāyaka là phẩm thứ ba mươi hai.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

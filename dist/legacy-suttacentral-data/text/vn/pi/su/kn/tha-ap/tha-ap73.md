@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VIII. PHẨM NĀGASAMĀLA
 
-# 71\. Ký Sự về Trưởng Lão Nāgasamāla
+# 71. Ký Sự về Trưởng Lão Nāgasamāla
 
 Tôi đã dâng lên bông hoa āpāṭali ở ngôi bảo tháp của đấng quyến thuộc thế gian Sikhī (được tạo lập) ở khu vực cao ráo tại con đường lớn.
 
@@ -17,9 +17,3 @@ Trước đây mười lăm kiếp, (tôi đã là) vị Sát-đế-lỵ tên Bh
 Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Nāgasamāla đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

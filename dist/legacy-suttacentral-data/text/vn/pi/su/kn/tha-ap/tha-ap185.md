@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIX. PHẨM KUṬAJAPUPPHIYA
 
-# 183\. Ký Sự về Trưởng Lão Koṭumbariya
+# 183. Ký Sự về Trưởng Lão Koṭumbariya
 
 (Tôi đã nhìn thấy đức Phật Sikhī) ngồi ở trong vùng đồi núi tợ như cây kaṇikāra đang cháy sáng, tợ như biển cả không thể đo lường, giống như là quả địa cầu bao la.
 
@@ -21,9 +21,3 @@ Trước đây hai mươi kiếp, tôi đã là đấng Chuyển Luân Vương �
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Koṭumbariyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

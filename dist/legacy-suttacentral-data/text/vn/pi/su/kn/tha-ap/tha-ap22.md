@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 II. PHẨM SĪHĀSANADĀYAKA
 
-# 20\. Ký Sự về Trưởng Lão Sumaṅgala
+# 20. Ký Sự về Trưởng Lão Sumaṅgala
 
 Có ý định dâng tặng phẩm vật hiến cúng, tôi đã cho chuẩn bị vật thực. Trong khi chờ đợi các vị Bà-la-môn, tôi đã đứng ở khu vực bùng binh rộng lớn.
 
@@ -50,9 +50,3 @@ Phần Tóm Lược:
 Vị có bảo tọa sư tử, vị có một cây cột trụ, vị Nanda, vị Cullapanthaka, vị Piḷinda, và luôn cả vị Rāhula, vị Vaṅganta, vị Raṭṭhapāla, vị Sopāka, và luôn cả vị Maṅgala là mười (ký sự) thuộc phẩm thứ nhì. Và ở đây, có một trăm ba mươi tám câu kệ đã được giảng giải
 
 Phẩm Sīhāsanadāyaka là phẩm thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

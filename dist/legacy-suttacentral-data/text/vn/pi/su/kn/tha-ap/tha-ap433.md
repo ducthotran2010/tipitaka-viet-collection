@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIV. PHẨM EKAVIHĀRĪ:
 
-# 431\. Ký Sự về Trưởng Lão Ekavihāriya
+# 431. Ký Sự về Trưởng Lão Ekavihāriya
 
 Ở vào kiếp Bhadda này, trong số các vị đang thuyết giảng đã hiện khởi đấng cao quý tên Kassapa, thuộc dòng dõi, có danh tiếng vĩ đại, là thân quyến của đấng Phạm Thiên.
 
@@ -14,7 +14,7 @@ Bậc như thế ấy đã sống không còn pháp chướng ngại, không c�
 
 Bậc Đại Bi, đấng Anh Hùng, rành rẽ về phương thức huấn luyện, có tâm không quyến luyến, lìa phiền não, không thân cận với gia đình và đồ chúng.
 
-4634\. Bị bận rộn trong những việc hữu ích cho những người khác, đấng Tế Độ Thế Gian ấy ngồi giữa đại chúng đang hướng dẫn chúng sanh luôn cả chư Thiên về Đạo Lộ đưa đến Niết Bàn, về việc làm khô cạn bãi lầy đưa đến cảnh giới (tái sanh), về pháp Bất Tử có phẩm vị tối thắng, cản ngăn sự già và sự chết.
+4634. Bị bận rộn trong những việc hữu ích cho những người khác, đấng Tế Độ Thế Gian ấy ngồi giữa đại chúng đang hướng dẫn chúng sanh luôn cả chư Thiên về Đạo Lộ đưa đến Niết Bàn, về việc làm khô cạn bãi lầy đưa đến cảnh giới (tái sanh), về pháp Bất Tử có phẩm vị tối thắng, cản ngăn sự già và sự chết.
 
 Thốt lên âm điệu của loài chim karavīka(ca-lăng-tầng-già), đấng Bảo Hộ, đức Như Lai, với âm thanh của Phạm Thiên đang tiếp độ những người có lối đi bị lầm lạc, không người hướng dẫn, ra khỏi chốn vô cùng khốn khổ.
 
@@ -33,9 +33,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ekavihāriyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ekavihāriya là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

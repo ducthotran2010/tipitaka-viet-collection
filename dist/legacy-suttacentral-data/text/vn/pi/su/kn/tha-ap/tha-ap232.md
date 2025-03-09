@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXIII. PHẨM ĀLAMBANADĀYAKA
 
-# 230\. Ký Sự về Trưởng Lão Ekavandiya
+# 230. Ký Sự về Trưởng Lão Ekavandiya
 
 Đấng Anh Hùng Vessabhū là bậc ưu tú, quý cao trong số các vị thắng trận. Với tâm tịnh tín, với ý vui mừng, tôi đã đảnh lễ đức Phật tối thượng.
 
@@ -22,9 +22,3 @@ Phần Tóm Lược:
 Vật tựa (lưng), tấm da dê, vị dâng cúng thịt, vị thí chủ về sự bảo vệ, sự không bị bệnh, (bông hoa) aṅkola, (vòng hoa) vàng, (vòng hoa) ruột cây, vòng hoa đội đầu, và sự đảnh lễ; (tổng cộng) có năm mươi lăm câu kệ đã được tính đếm bởi các vị nhìn thấy sự lợi ích.
 
 Phẩm Ālambanadāyaka là phẩm thứ hai mươi ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

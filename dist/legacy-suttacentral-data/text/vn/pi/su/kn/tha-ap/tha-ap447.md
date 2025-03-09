@@ -6,7 +6,7 @@ TẬP HAI
 
 XLV. PHẨM VIBHĪṬAKA:
 
-# 445\. Ký Sự về Trưởng Lão Uttalipupphiya
+# 445. Ký Sự về Trưởng Lão Uttalipupphiya
 
 Tôi đã lấy ra tràng hoa uttalīvà đã dâng lên cội Bồ Đề là cây Nigrodhađã được phát triển có ánh sáng màu xanh.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Uttalipupphiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Uttalipupphiya là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

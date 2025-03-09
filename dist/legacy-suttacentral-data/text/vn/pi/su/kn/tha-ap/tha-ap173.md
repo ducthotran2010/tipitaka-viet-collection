@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVIII. PHẨM KUMUDA
 
-# 171\. Ký Sự về Trưởng Lão Kumudamāliya
+# 171. Ký Sự về Trưởng Lão Kumudamāliya
 
 Ở núi Hi-mã-lạp đã có hồ nước thiên nhiên rộng lớn. Là loài quỷ sứ đã được sanh ra ở tại nơi ấy, tôi đã có dáng vẻ rùng rợn, có sức mạnh lớn lao.
 
@@ -27,9 +27,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Kumudamāliyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Kumudamāliya là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

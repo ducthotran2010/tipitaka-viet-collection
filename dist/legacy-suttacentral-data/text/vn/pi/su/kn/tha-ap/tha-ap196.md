@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XX. PHẨM TAMĀLAPUPPHIYA
 
-# 194\. Ký Sự về Trưởng Lão Asokapūjaka
+# 194. Ký Sự về Trưởng Lão Asokapūjaka
 
 Lúc bấy giờ, ở thành phố Tīvarā đáng yêu đã có khu vườn thượng uyển. Ở tại nơi ấy, tôi đã là người giữ vườn, có sự sinh hoạt gắn bó với đức vua.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Asokapūjakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Asokapūjaka là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

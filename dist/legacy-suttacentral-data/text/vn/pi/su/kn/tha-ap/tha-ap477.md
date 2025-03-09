@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVIII. PHẨM NAḶAMĀLĪ:
 
-# 475\. Ký Sự về Trưởng Lão Kummāsadāyaka
+# 475. Ký Sự về Trưởng Lão Kummāsadāyaka
 
 Trong khi bậc Đại Ần Sĩ Vipassī đang đi tìm kiếm (vật thực), tôi đã nhìn thấy bình bát (của Ngài) trống không và tôi đã đặt đầy sữa đông (ở bình bát).
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Kummāsadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Kummāsadāyaka là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

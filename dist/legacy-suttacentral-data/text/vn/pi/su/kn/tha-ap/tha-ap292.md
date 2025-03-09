@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXIX. PHẨM PAṆṆADĀYAKA
 
-# 290\. Ký Sự về Trưởng Lão Pubbaṅgamiya
+# 290. Ký Sự về Trưởng Lão Pubbaṅgamiya
 
 Nhằm đạt đến mục đích tối thượng, chúng tôi tám mươi bốn ngàn người đã xuất gia, không còn sở hữu gì. Trong số các vị ấy, tôi đã là người đứng đầu.
 
@@ -28,9 +28,3 @@ Phần Tóm Lược:
 Lá cây, (các) trái cây, sự đi ra tiếp đón, vị có một bông hoa, và (vị có) bông hoa maghava, người phục vụ, sự nghiệp (của chư Phật), sự xuất gia, vị phục vụ chư Phật, vị đứng đầu; (tổng cộng) có bốn mươi tám câu kệ đã được thuật lại.
 
 Phẩm Paṇṇadāyaka là phần thứ hai mươi chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

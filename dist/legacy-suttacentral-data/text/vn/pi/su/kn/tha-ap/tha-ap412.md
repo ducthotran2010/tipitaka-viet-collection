@@ -6,7 +6,7 @@ TẬP HAI
 
 XLI. PHẨM METTEYYA:
 
-# 410\. Ký Sự về Trưởng Lão Udena
+# 410. Ký Sự về Trưởng Lão Udena
 
 Ở không xa núi Hi-mã-lạp, có ngọn núi tên là Paduma, có khu ẩn cư của tôi đã khéo được xây dựng, có gian nhà rộng bằng lá đã khéo được tạo lập.
 
@@ -114,9 +114,3 @@ Phần Tóm Lược:
 Vị trưởng lão Metteyya, vị Puṇṇaka, vị Mettagū, luôn cả vị Dhotaka, vị Upasīva, vị Nanda, và vị Hemaka là vị thứ bảy ở nơi ấy, vị Todeyya, vị Jatukaṇṇī, và vị Udeno có danh vọng lớn lao. Ở đây là ba trăm câu kệ và thêm vào tám mươi ba câu.
 
 Phẩm Metteyya là phẩm thứ bốn mươi mốt.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

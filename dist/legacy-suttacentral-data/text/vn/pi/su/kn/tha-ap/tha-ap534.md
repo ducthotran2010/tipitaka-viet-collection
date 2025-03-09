@@ -6,7 +6,7 @@ TẬP HAI
 
 LIV. PHẨM KACCĀNA:
 
-# 532\. Ký Sự về Trưởng Lão Vakkali
+# 532. Ký Sự về Trưởng Lão Vakkali
 
 Trước đây một trăm ngàn kiếp, đã hiện khởi đấng Lãnh Đạo tên Padumuttara là bậc có danh xưng cao thượng, là bậc không thể đo lường.
 
@@ -43,7 +43,7 @@ Do tính chất đặc biệt của nghiệp ấy và do các nguyện lực c�
 
 Sau khi được sung sướng ở tất cả các nơi trong khi luân hồi ở cõi này cõi khác, tôi đã được sanh ra ở thành Sāvatthī trong một gia đình nọ.
 
-5711\. (Là đứa bé) mảnh mai như bơ tươi, yếu ớt như mầm non mới mọc, lờ đờ, nằm ngửa ra, (cha mẹ tôi) bị đe dọa vì nỗi hãi sợ từ loài quỷ sứ, với tâm ý khốn khổ, đã đặt tôi nằm xuống ở cạnh bàn chân của bậc Đại Ẩn Sĩ (nói rằng): “Bạch đấng Bảo Hộ, chúng con dâng Ngài đứa bé này. Bạch đấng Lãnh Đạo, xin Ngài hãy là nơi nương nhờ (cho nó).”
+5711. (Là đứa bé) mảnh mai như bơ tươi, yếu ớt như mầm non mới mọc, lờ đờ, nằm ngửa ra, (cha mẹ tôi) bị đe dọa vì nỗi hãi sợ từ loài quỷ sứ, với tâm ý khốn khổ, đã đặt tôi nằm xuống ở cạnh bàn chân của bậc Đại Ẩn Sĩ (nói rằng): “Bạch đấng Bảo Hộ, chúng con dâng Ngài đứa bé này. Bạch đấng Lãnh Đạo, xin Ngài hãy là nơi nương nhờ (cho nó).”
 
 Khi ấy, bậc Hiền Trí ấy, nơi nương nhờ của những ai bị kinh sợ, đã nhận lãnh tôi bằng bàn tay mềm mại dịu dàng, có màng lưới (ở các ngón tay), có dấu hiệu hình vỏ ốc (ở lòng bàn tay).
 
@@ -83,9 +83,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Vakkali đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Vakkali là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

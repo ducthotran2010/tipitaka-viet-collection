@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IV. PHẨM KUṆḌADHĀNA
 
-# 31\. Ký Sự về Trưởng Lão Kuṇḍadhāna
+# 31. Ký Sự về Trưởng Lão Kuṇḍadhāna
 
 Vào lúc đấng Tự Chủ, nhân vật cao cả thiền tịnh bảy ngày, với tâm tịnh tín, với ý vui mừng tôi đã hầu cận đức Phật tối thượng.
 
@@ -41,9 +41,3 @@ Tôi có sự tinh tấn, có khả năng tiến hành các phận sự là đi�
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Ký sự về trưởng lão Kuṇḍadhāna là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

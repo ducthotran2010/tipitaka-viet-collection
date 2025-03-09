@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IV. PHẨM KUṆḌADHĀNA
 
-# 40\. Ký Sự về Trưởng Lão Kapparukkhiya
+# 40. Ký Sự về Trưởng Lão Kapparukkhiya
 
 Ở phía trước ngôi bảo tháp tối thượng của đức Thế Tôn Siddhattha, tôi đã treo giăng những tấm vải nhiều màu sắc và đã thiết lập cây như ý.
 
@@ -28,9 +28,3 @@ Phần Tóm Lược:
 Vị Kuṇḍa, vị Sāgata, vị Kaccāna, vị Udāyi, vị Mogharāja, vị Adhimutta, vị dâng cúng củ tỏi, vị có sảnh đường dài, vị liên quan bánh xe Pháp, và vị có cây như ý là thứ mười, (tổng cộng) là một ngàn hai trăm câu kệ.
 
 Phẩm Kuṇḍadhāna là phẩm thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

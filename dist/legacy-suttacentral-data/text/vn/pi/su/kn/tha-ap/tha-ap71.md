@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VII. PHẨM SAKACINTANIYA
 
-# 69\. Ký Sự về Trưởng Lão Sumana
+# 69. Ký Sự về Trưởng Lão Sumana
 
 Lúc bấy giờ, tôi đã là người làm tràng hoa tên là Sumana. Tôi đã nhìn thấy đức Phật, bậc Vô Nhiễm, vị thọ nhận các vật hiến cúng của thế gian.
 
@@ -21,9 +21,3 @@ Do sự cúng dường bông hoa này và do các nguyện lực của tác ý, 
 Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Sumana đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

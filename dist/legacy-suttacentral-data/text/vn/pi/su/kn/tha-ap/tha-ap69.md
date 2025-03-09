@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VII. PHẨM SAKACINTANIYA
 
-# 67\. Ký Sự về Trưởng Lão Vatthadāyaka
+# 67. Ký Sự về Trưởng Lão Vatthadāyaka
 
 Lúc bấy giờ, tôi đã là loài chim có màu sắc đẹp đẽ, là vị thống lãnh loài nhân điểu. Tôi đã nhìn thấy đức Phật bậc Vô Nhiễm đang đi ở núi Gandhamādana.
 
@@ -27,9 +27,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Vatthadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Vatthadāyaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

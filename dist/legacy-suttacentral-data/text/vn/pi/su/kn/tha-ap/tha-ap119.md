@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XII. PHẨM MAHĀPARIVĀRA
 
-# 117\. Ký Sự về Trưởng Lão Buddhasaññaka
+# 117. Ký Sự về Trưởng Lão Buddhasaññaka
 
 Lúc bấy giờ, đấng Cao Cả của thế gian Vipassī đã buông bỏ sự duy trì tuổi thọ. Quả địa cầu là trái đất có nước bao quanh đã rúng động.
 
@@ -27,9 +27,3 @@ Trước đây mười bốn kiếp, tôi đã là vị vua có sự huy hoàng 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Buddhasaññakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

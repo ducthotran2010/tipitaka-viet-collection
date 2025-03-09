@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXIX. PHẨM PAṆṆADĀYAKA
 
-# 288\. Ký Sự về Trưởng Lão Sattāhapabbajita
+# 288. Ký Sự về Trưởng Lão Sattāhapabbajita
 
 Hội Chúng của đức Thế Tôn Vipassī là được tôn sùng kính trọng. Có điều bất hạnh đã xảy đến cho tôi là trước đây thân quyến đã có sự chia rẽ.
 
@@ -19,9 +19,3 @@ Trước đây sáu mươi bảy kiếp, bảy vị lãnh chúa được biết 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Sattāhapabbajitađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

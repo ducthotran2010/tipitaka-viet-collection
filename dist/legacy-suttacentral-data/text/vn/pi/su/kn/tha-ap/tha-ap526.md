@@ -6,7 +6,7 @@ TẬP HAI
 
 LIII. PHẨM TIṆADĀYAKA:
 
-# 524\. Ký Sự về Trưởng Lão Abbhañjanadāyaka
+# 524. Ký Sự về Trưởng Lão Abbhañjanadāyaka
 
 Vào lúc bấy giờ, tôi cư ngụ ở vườn hoa của đức vua ở trong thành phố Bandhumatī. Tôi đã là vị mặc y phục da thú có mang túi đựng nước.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Abbhañjanadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Abbhañjanadāyaka là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

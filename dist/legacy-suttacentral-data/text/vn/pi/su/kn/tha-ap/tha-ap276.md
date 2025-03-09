@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXVIII. PHẨM SUVAṆṆABIMBOHANA
 
-# 274\. Ký Sự về Trưởng Lão Abbhañjanadāyaka
+# 274. Ký Sự về Trưởng Lão Abbhañjanadāyaka
 
 Đức Thế Tôn Koṇḍañña là vị có tâm bình đẳng như hư không, có thiền chứng không bị chướng ngại, có tham ái đã được lìa bỏ như thế ấy.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Abbhañjanadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Abbhañjanadāyaka là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

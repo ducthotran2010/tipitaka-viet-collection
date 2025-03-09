@@ -6,7 +6,7 @@ TẬP HAI
 
 LI. PHẨM KAṆIKĀRA:
 
-# 502\. Ký Sự về Trưởng Lão Ekapattadāyaka
+# 502. Ký Sự về Trưởng Lão Ekapattadāyaka
 
 Tôi đã là người thợ làm đồ gốm ở thành phố Haṃsavatī. Tôi đã nhìn thấy đức Phật, bậc Vô Nhiễm, đấng đã vượt qua dòng nước lũ, không còn lậu hoặc.
 
@@ -35,9 +35,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ekapattadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ekapattadāyaka là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

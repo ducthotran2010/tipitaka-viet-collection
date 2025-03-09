@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XV. PHẨM CHATTA
 
-# 150\. Ký Sự về Trưởng Lão Pallaṅkadāyaka
+# 150. Ký Sự về Trưởng Lão Pallaṅkadāyaka
 
 Tôi đã dâng cúng chiếc ghế bành có mái che ở phía trên đến đức Thế Tôn Sumedha, bậc Trưởng Thượng của thế gian như thế ấy.
 
@@ -24,9 +24,3 @@ Phần Tóm Lược:
 Chiếc lọng che, cây cột (đèn), viền rào quanh, vị có nhóm tùy tùng, vị liên quan đến bông hoa umma, vị tô trét, vị dâng cúng đường đi, vị dâng cúng tấm ván gỗ, vị có vòng hoa đội đầu, vị dâng cúng chiếc ghế bành; (tổng cộng) có năm mươi sáu câu kệ đã được thuật lại.
 
 Phẩm Chatta là phẩm thứ mười lăm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

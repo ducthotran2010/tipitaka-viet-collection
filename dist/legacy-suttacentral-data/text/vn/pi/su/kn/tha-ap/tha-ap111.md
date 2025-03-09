@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XI. PHẨM BHIKKHĀDĀYĪ
 
-# 109\. Ký Sự về Trưởng Lão Biḷālidāyaka
+# 109. Ký Sự về Trưởng Lão Biḷālidāyaka
 
 Tôi sống trên tấm thảm bằng lá ở không xa núi Hi-mã-lạp. Khi ấy, tôi đạt được sự ham thích các loại cỏ và có thói quen nằm ngủ (ở thảm lá).
 
@@ -29,9 +29,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Biḷālidāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Biḷālidāyaka là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

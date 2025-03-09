@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIX. PHẨM PAṂSUKŪLA:
 
-# 490\. Ký Sự về Trưởng Lão Sālamaṇḍapiya
+# 490. Ký Sự về Trưởng Lão Sālamaṇḍapiya
 
 Vào lúc ấy, tôi đã đi sâu vào rừng cây sālā. Khu ẩn cư của tôi được xây dựng khéo léo, được phủ lên bởi những bông hoa sālā, tôi cư ngụ ở khu rừng.
 
@@ -80,9 +80,3 @@ Phẩm Saṃsukūla là phẩm thứ năm mươi mốt.
 sabbāsavā parikkhīṇā natthi dāni punabbhavo.  
 So ahaṃ vicarissāmi gāmā gāmaṃ purā puraṃ,  
 namassamāno sambuddhaṃ dhammassa ca sudhammataṃ—Ma.gaṇanā ekasatacatunavutīti paññāyati.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

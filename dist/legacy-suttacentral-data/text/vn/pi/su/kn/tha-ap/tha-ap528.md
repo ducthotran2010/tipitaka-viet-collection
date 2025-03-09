@@ -6,7 +6,7 @@ TẬP HAI
 
 LIII. PHẨM TIṆADĀYAKA:
 
-# 526\. Ký Sự về Trưởng Lão Daṇḍadāyaka
+# 526. Ký Sự về Trưởng Lão Daṇḍadāyaka
 
 Vào lúc bấy giờ, tôi đã đi vào khu rừng rậm và đã đốn cây tre. Sau khi thực hiện cây gậy chống, tôi đã dâng cúng đến Hội Chúng.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Ký sự về trưởng lão Daṇḍadāyaka là phần thứ sáu.
 
 (Tụng phẩm thứ hai mươi ba).
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

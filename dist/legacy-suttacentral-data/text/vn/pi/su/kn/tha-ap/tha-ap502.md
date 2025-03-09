@@ -6,7 +6,7 @@ TẬP HAI
 
 XL. PHẨM TIKIṄKAṆIPUPPHIYA:
 
-# 500\. Ký Sự về Trưởng Lão Piyālaphaladāyaka
+# 500. Ký Sự về Trưởng Lão Piyālaphaladāyaka
 
 Trong thời quá khứ, tôi đã là thợ săn thú rừng. Khi ấy, trong khi đi lang thang ở khu rừng, tôi đã nhìn thấy đức Phật, đấng Vô Nhiễm, bậc thông suốt về tất cả các pháp.
 
@@ -35,9 +35,3 @@ Phẩm Metteyya, phẩm Bhaddāli, và luôn cả phẩm Sakiṃsammajjaka, ph�
 Nhóm “Mười” từ phẩm Metteyya.
 
 Nhóm “Một Trăm” thứ năm được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

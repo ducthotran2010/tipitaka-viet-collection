@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIII. PHẨM SAKIṂSAMMAJJAKA:
 
-# 426\. Ký Sự về Trưởng Lão Ghatamaṇḍadāyaka
+# 426. Ký Sự về Trưởng Lão Ghatamaṇḍadāyaka
 
 Đã suy nghĩ tận tường, đức Thế Tôn, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu đã đi vào khu rừng lớn và đã bị hành hạ bởi bệnh gió. Sau khi nhìn thấy, tôi đã làm cho tâm được tịnh tín và đã đem lại bơ lỏng nguyên chất.
 
@@ -29,9 +29,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ghatamaṇḍadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ghatamaṇḍadāyaka là phần thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

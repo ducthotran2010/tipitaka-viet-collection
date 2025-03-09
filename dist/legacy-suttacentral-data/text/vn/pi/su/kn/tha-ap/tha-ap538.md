@@ -6,7 +6,7 @@ TẬP HAI
 
 LIV. PHẨM KACCĀNA:
 
-# 536\. Ký Sự về Trưởng Lão Bāhiya
+# 536. Ký Sự về Trưởng Lão Bāhiya
 
 Trước đây một trăm ngàn kiếp đã hiện khởi đấng Lãnh Đạo tên Padumuttara là vị có hào quang chói lọi, đứng đầu tam giới.
 
@@ -95,9 +95,3 @@ Và khi nào vị Bà-la-môn hiền trí đã tự thân biết được với 
 Đại đức trưởng lão Bāhiya đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Bāhiya là phần thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

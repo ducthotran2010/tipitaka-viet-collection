@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVII. PHẨM SUPĀRICARIYA
 
-# 162\. Ký Sự về Trưởng Lão Kaṇaverapupphiya
+# 162. Ký Sự về Trưởng Lão Kaṇaverapupphiya
 
 Đức Thế Tôn tên Siddhattha, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu, dẫn đầu các vị Thinh Văn, đã bước đi ở trong thành phố.
 
@@ -21,9 +21,3 @@ Trước đây tám mươi bảy kiếp, bốn vị (cùng) tên Mahiddhika đã
 Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Kaṇaverapupphiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

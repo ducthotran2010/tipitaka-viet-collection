@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVII. PHẨM SĀLAKUSUMIYA:
 
-# 462\. Ký Sự về Trưởng Lão Citakapūjaka
+# 462. Ký Sự về Trưởng Lão Citakapūjaka
 
 Khi đức Thế Tôn Sikhī, đấng quyến thuộc của thế gian đang được thiêu đốt, tôi đã dâng lên giàn hỏa thiêu của Ngài tám bông hoa campaka.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Citakapūjaka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Citakapūjaka là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

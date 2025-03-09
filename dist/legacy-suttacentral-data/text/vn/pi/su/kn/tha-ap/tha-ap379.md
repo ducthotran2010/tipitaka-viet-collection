@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXVIII. PHẨM BODHIVANDAKA
 
-# 377\. Ký Sự về Trưởng Lão Citakapūjaka
+# 377. Ký Sự về Trưởng Lão Citakapūjaka
 
 Khi đức Thế Tôn tên Padumuttara đã viên tịch Niết Bàn và đã được đưa lên giàn hỏa thiêu, tôi đã cúng dường bông hoa sālā.
 
@@ -19,9 +19,3 @@ Các phiền não của tôi đã được thiêu đốt, tất cả các hữu 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Citakapūjakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

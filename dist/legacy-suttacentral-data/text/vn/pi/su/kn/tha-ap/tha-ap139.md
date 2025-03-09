@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIV. PHẨM SOBHITA
 
-# 137\. Ký Sự về Trưởng Lão Atthasandassaka
+# 137. Ký Sự về Trưởng Lão Atthasandassaka
 
 Tôi đã nhìn thấy đấng Lãnh Đạo Thế Gian, bậc có lậu hoặc đã được đoạn tận, vị đã đạt năng lực, đang ngồi ở nơi khoảnh rừng rộng, được vây quanh bởi Hội Chúng tỳ khưu.
 
@@ -27,9 +27,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Atthasandassakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Atthasandassaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXII. PHẨM ĀRAKKHADĀYAKA
 
-# 312\. Ký Sự về Trưởng Lão Bhojanadāyaka
+# 312. Ký Sự về Trưởng Lão Bhojanadāyaka
 
 Đấng Chiến Thắng luôn luôn chiếu sáng tợ như cây sālā non trẻ đã được mọc lên tốt đẹp, tợ như cây sobhañjana đã vươn cao, tợ như tia sét ở trên bầu trời.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Bhojanadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Bhojanadāyaka là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

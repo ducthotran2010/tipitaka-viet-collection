@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VIII. PHẨM NĀGASAMĀLA
 
-# 80\. Ký Sự về Trưởng Lão Tipadumiya
+# 80. Ký Sự về Trưởng Lão Tipadumiya
 
 Đấng Chiến Thắng tên Padumuttara là bậc thông suốt về tất cả các pháp. Là bậc đã (tự mình) rèn luyện được tháp tùng bởi các vị đã được rèn luyện, đấng Chiến Thắng đã rời khỏi thành phố.
 
@@ -68,9 +68,3 @@ Phần Tóm Lược:
 Vị trưởng lão có tràng hoa, vị có sự suy tưởng về dấu chân, vị có sự suy tưởng (về đức Phật), vị dâng cúng củ sen, vị suy tưởng về một phần (vật thực), vị dâng cúng cỏ, (vị dâng cúng) kim khâu, vị có các bông hoa pāṭali, vị đứng chắp tay, vị có ba đóa sen hồng; (tổng cộng) có bảy mươi lăm câu kệ.
 
 Phẩm Nāgasamāla là phẩm thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

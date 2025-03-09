@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXI. PHẨM KAṆIKĀRAPUPPHIYA
 
-# 201\. Ký Sự về Trưởng Lão Kaṇikārapupphiya
+# 201. Ký Sự về Trưởng Lão Kaṇikārapupphiya
 
 Sau khi nhìn thấy cây kaṇikāra đã được trổ hoa, khi ấy tôi đã hái xuống (bông hoa) và đã dâng lên (đức Phật) Tissa, bậc đã vượt qua dòng lũ như thế ấy.
 
@@ -19,9 +19,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Kaṇikārapupphiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Kaṇikārapupphiya là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

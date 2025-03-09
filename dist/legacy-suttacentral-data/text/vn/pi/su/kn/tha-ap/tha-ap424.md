@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIII. PHẨM SAKIṂSAMMAJJAKA:
 
-# 422\. Ký Sự về Trưởng Lão Ekadussadāyaka
+# 422. Ký Sự về Trưởng Lão Ekadussadāyaka
 
 Tôi đã là người gánh cỏ ở thành phố Haṃsavatī. Tôi sinh sống bằng việc gánh cỏ. Nhờ thế, tôi nuôi dưỡng các đứa trẻ.
 
@@ -53,9 +53,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ekadussadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ekadussadāyaka là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

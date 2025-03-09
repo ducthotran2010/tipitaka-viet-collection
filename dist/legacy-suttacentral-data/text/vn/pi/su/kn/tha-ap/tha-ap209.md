@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXI. PHẨM KAṆIKĀRAPUPPHIYA
 
-# 207\. Ký Sự về Trưởng Lão Salalamāliya
+# 207. Ký Sự về Trưởng Lão Salalamāliya
 
 (Tôi đã nhìn thấy) bậc Điều Phục Nhân Siddhattha ngồi ở trong vùng đồi núi đang chói sáng như là cây kaṇikāra, đang làm cho tất cả các phương rực sáng.
 
@@ -19,9 +19,3 @@ Trước đây năm mươi mốt kiếp, tôi đã là (vị có tên) Jutindhar
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Salalamāliyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

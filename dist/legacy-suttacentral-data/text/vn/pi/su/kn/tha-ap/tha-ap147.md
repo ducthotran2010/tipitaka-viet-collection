@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XV. PHẨM CHATTA
 
-# 145\. Ký Sự về Trưởng Lão Ummāpupphiya
+# 145. Ký Sự về Trưởng Lão Ummāpupphiya
 
 Khi đức Thế Tôn Siddhattha, đấng Bảo Hộ Thế Gian, vị thọ nhận các vật hiến cúng đã Niết Bàn, đã có lễ hội ở ngôi đại bảo tháp.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Ummāpupphiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ummāpupphiya là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

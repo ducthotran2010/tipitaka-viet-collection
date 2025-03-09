@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 II. PHẨM SĪHĀSANADĀYAKA
 
-# 12\. Ký Sự về Trưởng Lão Ekatthambhika
+# 12. Ký Sự về Trưởng Lão Ekatthambhika
 
 Đức Thế Tôn Siddhattha đã có hội chúng cư sĩ đông đảo. Những người ấy đã đi đến nương nhờ vào đức Phật, họ đặt niềm tin vào đức Như Lai.
 
@@ -37,9 +37,3 @@ Kể từ khi tôi đã dâng cúng cây cột trụ trước đây chín mươi
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Ekatthambhikađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

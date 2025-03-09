@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIX. PHẨM KUṬAJAPUPPHIYA
 
-# 184\. Ký Sự về Trưởng Lão Pañcahatthiya
+# 184. Ký Sự về Trưởng Lão Pañcahatthiya
 
 Đức Thế Tôn tên Tissa, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu, đã bước đi ở trên đường lộ, được tháp tùng bởi các vị Thinh Văn.
 
@@ -21,9 +21,3 @@ Trước đây mười ba kiếp, năm vị được gọi tên là Usabha đã 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Pañcahatthiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

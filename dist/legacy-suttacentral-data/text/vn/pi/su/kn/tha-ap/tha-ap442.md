@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIV. PHẨM EKAVIHĀRĪ:
 
-# 440\. Ký Sự về Trưởng Lão Jambuphaliya
+# 440. Ký Sự về Trưởng Lão Jambuphaliya
 
 Đức Phật Padumuttara, vị đang nắm giữ danh vọng tối thượng, bậc Trưởng Thượng của thế gian như thế ấy đang đi đó đây để khất thực.
 
@@ -30,9 +30,3 @@ Phần Tóm Lược:
 Vị trưởng lão sống một mình, vị (thổi) tù và vỏ ốc, vị (tưởng đến) điều kỳ diệu, vị ngợi ca (đức Phật), vị có khúc mía, vị dâng bông hoa kalamba, vị dâng trái ambāṭaka, vị (dâng) trái cây harītaka, vị có chùm xoài, vị dâng trái mận đỏ là thứ mười. Và các câu kệ đã được tính đếm bởi các bậc trí là tám mươi sáu câu kệ.
 
 Phẩm Ekavihārī là phẩm thứ bốn mươi bốn.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

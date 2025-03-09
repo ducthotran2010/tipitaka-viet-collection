@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXII. PHẨM HATTHI
 
-# 219\. Ký Sự về Trưởng Lão Sappidāyaka
+# 219. Ký Sự về Trưởng Lão Sappidāyaka
 
 Ngồi ở nơi cao quý của tòa lâu đài, được trọng vọng bởi đám phụ nữ, tôi đã nhìn thấy vị Sa-môn bị lâm bệnh và đã thỉnh vào trong nhà.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Sappidāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sappidāyaka là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

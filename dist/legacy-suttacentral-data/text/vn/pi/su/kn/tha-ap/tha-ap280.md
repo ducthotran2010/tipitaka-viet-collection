@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXVIII. PHẨM SUVAṆṆABIMBOHANA
 
-# 278\. Ký Sự về Trưởng Lão Āluvadāyaka
+# 278. Ký Sự về Trưởng Lão Āluvadāyaka
 
 Ở ngọn núi Hi-mã-lạp, có con sông Mahāsindhu có dáng hình xinh đẹp. Ở tại nơi ấy, tôi đã nhìn thấy (đức Phật) Sudassana; Ngài là bậc có tham ái đã được lìa bỏ, có ánh sáng rực rỡ.
 
@@ -19,9 +19,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Āluvadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Āluvadāyaka là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

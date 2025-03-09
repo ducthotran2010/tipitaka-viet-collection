@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 II. PHẨM SĪHĀSANADĀYAKA
 
-# 18\. Ký Sự về Trưởng Lão Raṭṭhapāla
+# 18. Ký Sự về Trưởng Lão Raṭṭhapāla
 
 Con voi cao quý, có ngà như cán cày, là phương tiện di chuyển của đức vua đã được tôi dâng cúng đến đức Phật Padumuttara, bậc Trưởng Thượng của thế gian như thế ấy.
 
@@ -39,9 +39,3 @@ Tôi có sự tinh tấn, có khả năng tiến hành các phận sự là đi�
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Raṭṭhapāla đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

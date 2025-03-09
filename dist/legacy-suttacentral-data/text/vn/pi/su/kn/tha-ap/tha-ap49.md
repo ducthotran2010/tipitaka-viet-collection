@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 V. PHẨM UPĀLI
 
-# 47\. Ký Sự về Trưởng Lão Sayanadāyaka
+# 47. Ký Sự về Trưởng Lão Sayanadāyaka
 
 Chiếc giường cao quý được trải lên bằng các lớp vải đã được tôi dâng cúng đến đức Thế Tôn Siddhattha, vị có tâm từ ái như thế ấy.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Sayanadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sayanadāyaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

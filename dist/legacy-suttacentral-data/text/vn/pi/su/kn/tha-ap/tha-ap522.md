@@ -6,7 +6,7 @@ TẬP HAI
 
 LII. PHẨM PHALADĀYAKA:
 
-# 520\. Ký Sự về Trưởng Lão Padumadhāraka
+# 520. Ký Sự về Trưởng Lão Padumadhāraka
 
 Ở không xa núi Hi-mã-lạp, có ngọn núi tên là Romasa. Khi ấy, cũng có đức Phật tên là Sambhava đã sống ở ngoài trời.
 
@@ -28,9 +28,3 @@ Phần Tóm Lược:
 Trái cây kurañjiya, trái táo rừng, trái cây kosumbha, và bông hoa của cây ketaka, bông hoa nāga, bông hoa ajjuna, luôn cả vị có bông hoa kuṭaja, vị nhận biết âm vang, và vị trưởng lão là người dâng cúng tất cả trái cây, vị cầm giữ đóa hoa sen là tương tợ. Và ở đây có tám mươi câu kệ và có ba câu kệ được thêm vào đó.
 
 Phẩm Phaladāyaka là phẩm thứ năm mươi hai.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

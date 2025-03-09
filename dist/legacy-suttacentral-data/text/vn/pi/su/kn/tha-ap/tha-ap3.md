@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 I. PHẨM ĐỨC PHẬT
 
-# 1\. Ký Sự về Trưởng Lão Sāriputta
+# 1. Ký Sự về Trưởng Lão Sāriputta
 
 Giờ xin thỉnh các vị hãy lắng nghe ký sự về các vị trưởng lão:
 
@@ -196,7 +196,7 @@ Do trí tuệ trong sạch và tầm nhìn không bị che lấp của Ngài, nh
 
 Vào lúc bấy giờ, đức Thế Tôn Anomadassī, đấng Chiến Thắng có danh vọng lớn lao, sau khi xuất khỏi thiền định, đã quan sát phương hướng.
 
-234\. Vị Thinh Văn của bậc Hiền Trí Anomadassī tên là Nisabha được tháp tùng bởi một trăm ngàn vị có tâm an tịnh như thế ấy, là các bậc Vô Lậu, được trong sạch, có sáu thắng trí, có thiền chứng. Sau khi biết được tâm của đức Phật, vị ấy đã đi đến gần đấng Lãnh Đạo Thế Gian.
+234. Vị Thinh Văn của bậc Hiền Trí Anomadassī tên là Nisabha được tháp tùng bởi một trăm ngàn vị có tâm an tịnh như thế ấy, là các bậc Vô Lậu, được trong sạch, có sáu thắng trí, có thiền chứng. Sau khi biết được tâm của đức Phật, vị ấy đã đi đến gần đấng Lãnh Đạo Thế Gian.
 
 Tại nơi ấy, đứng ở trên không trung các vị ấy đã đi nhiễu quanh, tay chắp lên lễ bái, rồi đã đáp xuống gần bên đức Phật.
 
@@ -414,7 +414,7 @@ Bạch đấng Đại Hùng, tuy nhiên Ngài không là như vậy. Ngài thuy�
 
 Sau khi biết được tánh khí bộc lộ và tiềm ẩn, về sự mạnh và yếu của các quyền, sau khi hiểu rõ về tính chất có hay không có khả năng, Ngài thuyết Pháp tợ như là cơn mưa lớn (gào thét).
 
-343\. Đám đông có các quan điểm khác nhau, trong khi đang suy xét, có thể ngồi đến tận cùng thế giới vũ trụ. Nhằm cắt đứt sự nghi hoặc ấy, bậc Hiền Trí vị thiện xảo về sự so sánh đối chiếu, sau khi biết được tâm của tất cả, Ngài cắt đứt sự nghi hoặc của chúng sinh ngay trong khi đang giảng giải về một câu hỏi.
+343. Đám đông có các quan điểm khác nhau, trong khi đang suy xét, có thể ngồi đến tận cùng thế giới vũ trụ. Nhằm cắt đứt sự nghi hoặc ấy, bậc Hiền Trí vị thiện xảo về sự so sánh đối chiếu, sau khi biết được tâm của tất cả, Ngài cắt đứt sự nghi hoặc của chúng sinh ngay trong khi đang giảng giải về một câu hỏi.
 
 Trái đất là được tràn đầy bởi chính các vị như là Upatissa (Sāriputta). Chính tất cả các vị ấy, tay chắp lên, đã ngợi ca đấng Lãnh Đạo Thế Gian.
 
@@ -479,9 +479,3 @@ Bốn (tuệ) phân tích, tám giải thoát (bốn Đạo và bốn Quả), v�
 Đại đức trưởng lão Sāriputta đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sāriputta là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

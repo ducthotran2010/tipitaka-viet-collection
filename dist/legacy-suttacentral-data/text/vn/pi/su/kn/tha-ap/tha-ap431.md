@@ -6,13 +6,13 @@ TẬP HAI
 
 XLIII. PHẨM SAKIṂSAMMAJJAKA:
 
-# 429\. Ký Sự về Trưởng Lão Soṇṇakiṅkaṇiya
+# 429. Ký Sự về Trưởng Lão Soṇṇakiṅkaṇiya
 
 Vì niềm tin, tôi đã ra đi và đã xuất gia vào đời sống không gia đình. Thiên về nghiệp khổ hạnh, tôi đã là vị mang y phục bằng vỏ cây.
 
 Hơn nữa đức Thế Tôn Atthadassī, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu vào lúc bấy giờ đã hiện khởi, đang giúp cho nhiều người vượt qua.
 
-4603\. Và sức lực của tôi quả nhiên đã bị cạn kiệt bởi cơn bệnh trầm trọng. Tôi đã tưởng nhớ đến đức Phật tối thượng và đã tạo nên ngôi bảo tháp tối thượng ở trên bãi cát. Với tâm mừng rỡ, với ý phấn chấn, tôi đã dùng tay rải rắc các bông hoa kiṅkaṇībằng vàng.
+4603. Và sức lực của tôi quả nhiên đã bị cạn kiệt bởi cơn bệnh trầm trọng. Tôi đã tưởng nhớ đến đức Phật tối thượng và đã tạo nên ngôi bảo tháp tối thượng ở trên bãi cát. Với tâm mừng rỡ, với ý phấn chấn, tôi đã dùng tay rải rắc các bông hoa kiṅkaṇībằng vàng.
 
 Với tâm tịnh tín ấy đối với vị Atthadassī như thế ấy, tôi đã đi vòng quanh ngôi bảo tháp như là có đức Phật hiện diện.
 
@@ -43,9 +43,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Sovaṇṇakiṅkaṇiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sovaṇṇakiṅkaṇiya là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

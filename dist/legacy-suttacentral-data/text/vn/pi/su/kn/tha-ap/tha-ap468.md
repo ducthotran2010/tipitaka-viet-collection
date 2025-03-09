@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVII. PHẨM SĀLAKUSUMIYA:
 
-# 466\. Ký Sự về Trưởng Lão Avaṇṭaphaliya
+# 466. Ký Sự về Trưởng Lão Avaṇṭaphaliya
 
 Đức Thế Tôn, đấng Tự Chủ, bậc không bị đánh bại tên là Sataraṃsī. Có ước muốn độc cư, đấng Toàn Giác đã ra đi về việc khất thực.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Avaṇṭaphaliyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Avaṇṭaphaliya là phần thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

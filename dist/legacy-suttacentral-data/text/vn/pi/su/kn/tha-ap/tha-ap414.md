@@ -6,7 +6,7 @@ TẬP HAI
 
 XLII. PHẨM BHADDĀLI:
 
-# 412\. Ký Sự về Trưởng Lão Ekachattiya
+# 412. Ký Sự về Trưởng Lão Ekachattiya
 
 Ở bờ sông Candabhāgā có khu ẩn cư của tôi đã khéo được xây dựng, có gian nhà rộng bằng lá được rải cát vô cùng tinh khiết đã khéo được tạo lập.
 
@@ -105,9 +105,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ekachattiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ekachattiya là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

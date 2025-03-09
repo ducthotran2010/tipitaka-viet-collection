@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXX. PHẨM CITAKAPŪJAKA
 
-# 291\. Ký Sự về Trưởng Lão Citakapūjaka
+# 291. Ký Sự về Trưởng Lão Citakapūjaka
 
 Lúc bấy giờ, tôi đã là vị Bà-la-môn tên Ajita. Có ý định dâng tặng vật hiến cúng, tôi đã thu thập nhiều loại bông hoa.
 
@@ -19,9 +19,3 @@ Trước đây hai mươi bảy kiếp, bảy vị thống lãnh loài người 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Citakapūjakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

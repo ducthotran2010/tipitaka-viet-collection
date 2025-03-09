@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXII. PHẨM HATTHI
 
-# 215\. Ký Sự về Trưởng Lão Raṃsisaññaka
+# 215. Ký Sự về Trưởng Lão Raṃsisaññaka
 
 (Tôi đã nhìn thấy đức Phật) tợ như mặt trời đang mọc lên, tợ như mặt trời có tia sáng màu trắng, tợ như con hổ hùng tráng quý cao khéo được sanh ra, (đang ngồi) ở trong vùng đồi núi.
 
@@ -21,9 +21,3 @@ Vào kiếp thứ năm mươi bảy, tôi đã là người độc nhất thốn
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Raṃsisaññakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVII. PHẨM SUPĀRICARIYA
 
-# 165\. Ký Sự về Trưởng Lão Kaṇikāracchadaniya
+# 165. Ký Sự về Trưởng Lão Kaṇikāracchadaniya
 
 Đấng Toàn Giác Vessabhū, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu, bậc Hiền Trí đã đi sâu vào khu rừng lớn cho việc nghỉ ngơi giữa ngày.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Kaṇikāracchadaniyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Kaṇikāracchadaniya là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

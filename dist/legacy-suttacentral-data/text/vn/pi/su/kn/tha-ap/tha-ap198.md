@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XX. PHẨM TAMĀLAPUPPHIYA
 
-# 196\. Ký Sự về Trưởng Lão Kisalayapūjaka
+# 196. Ký Sự về Trưởng Lão Kisalayapūjaka
 
 Tôi đã có một vườn hoa ở thành phố Dvāravatī. Và có giếng nước ở ngay tại nơi ấy là nguồn cung cấp (nước) cho các loài thực vật.
 
@@ -23,9 +23,3 @@ Trước đây hai mươi bảy kiếp, tôi đã là vị Ekassara độc nhấ
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Kisalayapūjakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ TẬP HAI
 
 LIII. PHẨM TIṆADĀYAKA:
 
-# 523\. Ký Sự về Trưởng Lão Saraṇagamaniya
+# 523. Ký Sự về Trưởng Lão Saraṇagamaniya
 
 Vào lúc bấy giờ, có vị tỳ khưu và tôi là đạo sĩ lõa thể đã bước lên chiếc thuyền. Trong khi chiếc thuyền đang bị vỡ tan, vị tỳ khưu đã ban cho tôi sự nương nhờ (quy y).
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Saraṇagamaniyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Saraṇagamaniya là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

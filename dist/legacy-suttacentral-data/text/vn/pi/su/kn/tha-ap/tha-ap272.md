@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXVII. PHẨM ĀKĀSUKKHIPIYA
 
-# 270\. Ký Sự về Trưởng Lão Taraṇiya
+# 270. Ký Sự về Trưởng Lão Taraṇiya
 
 Bậc Toàn Giác Vipassī có màu da vàng chói là bậc xứng đáng sự cúng dường. Bậc Đạo Sư dẫn đầu Hội Chúng tỳ khưu đã đứng ở bờ sông.
 
@@ -22,9 +22,3 @@ Phần Tóm Lược:
 Vị có sự thảy lên (bông hoa), dầu thoa, vị có (bông hoa) aḍḍhacanda, vị dâng cúng cây đèn, vị dâng cúng củ biḷāli, con cá, vị tên Javahaṃsaka, vị dâng cúng bông hoa salala, loài quỷ dữ, vị đưa sang (sông) là mười. Và ở đây được ghi nhận là bốn mươi mốt câu kệ cả thảy.
 
 Phẩm Ākāsukkhipiya là phẩm thứ hai mươi bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

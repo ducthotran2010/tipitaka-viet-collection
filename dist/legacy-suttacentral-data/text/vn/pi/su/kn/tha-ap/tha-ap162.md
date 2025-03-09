@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVI. PHẨM BANDHUJĪVAKA
 
-# 160\. Ký Sự về Trưởng Lão Kumudadāyaka
+# 160. Ký Sự về Trưởng Lão Kumudadāyaka
 
 Ở không xa núi Hi-mã-lạp đã có hồ nước thiên nhiên rộng lớn, được che phủ bởi các bông sen đỏ và sen xanh, được tràn ngập bởi các bông sen trắng.
 
@@ -30,9 +30,3 @@ Phần Tóm Lược:
 Vị (có hoa) bandhujīvaka, vị có hoa màu nâu đỏ, (vị quét dọn) con đường đi, vị có hoa kakkāru, hoa mandārava, vị có hoa kadamba, vị có hoa tiṇasūla, vị có hoa nāga, hoa punnāga, vị có hoa komuda; (tổng cộng) có năm mươi sáu câu kệ đã được thuật lại.
 
 Phẩm Bandhujīvaka là phẩm thứ mười sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

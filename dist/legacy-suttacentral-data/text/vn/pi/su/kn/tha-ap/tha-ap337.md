@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXIV. PHẨM GANDHADHŪPIYA
 
-# 335\. Ký Sự về Trưởng Lão Phusitakampiya
+# 335. Ký Sự về Trưởng Lão Phusitakampiya
 
 Lúc bấy giờ, đấng Toàn Giác tên Vipassī, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu, được tùy tùng bởi các bậc Lậu Tận, đã cư ngụ tại tu viện của Hội Chúng.
 
@@ -39,9 +39,3 @@ Các cành cây, các lá cây, các nhánh cây, và luôn cả toàn bộ các
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Phusitakampiya đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

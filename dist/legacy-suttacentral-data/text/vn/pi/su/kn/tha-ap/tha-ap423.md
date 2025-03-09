@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIII. PHẨM SAKIṂSAMMAJJAKA:
 
-# 421\. Ký Sự về Trưởng Lão Sakiṃsammajjaka
+# 421. Ký Sự về Trưởng Lão Sakiṃsammajjaka
 
 Đối với đức Thế Tôn Vipassī, cây Pāṭalīlà (tên của) cội cây Bồ Đề tối thượng. Sau khi nhìn thấy cội cây cao cả ấy tôi đã khiến tâm được tịnh tín.
 
@@ -39,9 +39,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Sakiṃsammajjakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sakiṃsammajjaka là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

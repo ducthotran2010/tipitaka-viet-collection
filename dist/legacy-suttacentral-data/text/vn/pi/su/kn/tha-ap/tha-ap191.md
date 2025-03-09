@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIX. PHẨM KUṬAJAPUPPHIYA
 
-# 189\. Ký Sự về Trưởng Lão Ekacāriya
+# 189. Ký Sự về Trưởng Lão Ekacāriya
 
 Lúc bấy giờ, đã xảy âm thanh ầm ĩ ở chư Thiên ở cõi trời Đạo Lợi rằng: “Đức Phật Niết Bàn ở thế gian, và chúng ta vẫn còn tham ái.”
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Ekacāriyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ekacāriya là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

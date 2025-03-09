@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XII. PHẨM MAHĀPARIVĀRA
 
-# 118\. Ký Sự về Trưởng Lão Maggasaññaka
+# 118. Ký Sự về Trưởng Lão Maggasaññaka
 
 Bị lạc lối ở trong khu rừng bạt ngàn, các vị Thinh Văn có hạnh sống ở rừng của đức Phật Padumuttara đi quanh quẩn tợ như những người mù.
 
@@ -21,9 +21,3 @@ Trước đây năm trăm kiếp, mười hai vị tên Sacakkhu đã là các �
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Maggasaññakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIII. PHẨM SEREYYAKA
 
-# 130\. Ký Sự về Trưởng Lão Padumapūjaka
+# 130. Ký Sự về Trưởng Lão Padumapūjaka
 
 Ở không xa núi Hi-mã-lạp có ngọn núi tên Gotama được che phủ bởi nhiều loại cây cối khác nhau, là nơi trú ngụ của các nhóm chúng sanh vĩ đại.
 
@@ -34,9 +34,3 @@ Phần Tóm Lược:
 Vị Sereyyaka, vị có ngôi bảo tháp bằng bông hoa, vị (dâng cúng) cơm sữa, vị (rắc) nước thơm, vị ca ngợi, vị có chỗ ngồi, vị (dâng cúng) trái cây, vị suy tưởng, bông hoa có hương thơm, vị có hoa sen hồng; (tổng cộng) có 105 câu kệ đã được thuật lại bởi các vị nhìn thấy sự lợi ích.
 
 Phẩm Sereyyaka là phẩm thứ mười ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

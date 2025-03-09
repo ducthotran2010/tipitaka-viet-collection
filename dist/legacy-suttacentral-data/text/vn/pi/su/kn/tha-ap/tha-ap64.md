@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VII. PHẨM SAKACINTANIYA
 
-# 62\. Ký Sự về Trưởng Lão Avopupphiya
+# 62. Ký Sự về Trưởng Lão Avopupphiya
 
 Sau khi đi ra khỏi trú xá và bước lên ở con đường kinh hành, trong khi công bố về bốn Sự Thật, Ngài thuyết giảng về đạo lộ Bất Tử.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Avopupphiya đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Avopupphiya là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

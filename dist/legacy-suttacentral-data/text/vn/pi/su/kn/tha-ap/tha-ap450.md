@@ -6,7 +6,7 @@ TẬP HAI
 
 XLV. PHẨM VIBHĪṬAKA:
 
-# 448\. Ký Sự về Trưởng Lão Pādapīṭhiya
+# 448. Ký Sự về Trưởng Lão Pādapīṭhiya
 
 Đấng Toàn Giác Sumedha là đấng Bi Mẫn cao cả, bậc Hiền Trí. Sau khi đã giúp cho nhiều chúng sanh vượt qua, vị có danh vọng lớn lao ấy đã Niết Bàn.
 
@@ -33,9 +33,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Pādapīṭhiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Pādapīṭhiya là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

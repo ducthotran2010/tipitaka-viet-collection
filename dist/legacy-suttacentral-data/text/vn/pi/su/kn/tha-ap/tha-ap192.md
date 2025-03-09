@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIX. PHẨM KUṬAJAPUPPHIYA
 
-# 190\. Ký Sự về Trưởng Lão Tivaṇṭipupphiya
+# 190. Ký Sự về Trưởng Lão Tivaṇṭipupphiya
 
 Bị (phiền não) chế ngự, tất cả các vị ấy đã cùng nhau đi đến gặp tôi và tham thiền. Trong khi các vị ấy đang tham thiền, họ đã có sự bực bội khởi lên.
 
@@ -28,9 +28,3 @@ Phần Tóm Lược:
 Bông hoa kuṭaja, vị có bông hoa bandhujīva, bông hoa koṭumbara, bó bông hoa, hạt đậu tây, cội Bồ Đề, vị có một lần suy nghĩ, vị có bông hoa tikaṇṇi, vị có một lần hành xử, bông hoa tivaṇṭi; (tổng cộng) có sáu mươi hai câu kệ đã được thuật lại.
 
 Phẩm Kuṭajapupphiya là phẩm thứ mười chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

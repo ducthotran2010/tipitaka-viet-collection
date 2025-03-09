@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXIII. PHẨM ĀLAMBANADĀYAKA
 
-# 223\. Ký Sự về Trưởng Lão Dvirataniya
+# 223. Ký Sự về Trưởng Lão Dvirataniya
 
 Trong thời quá khứ, tôi đã là thợ săn thú rừng ở trong khu rừng hoang rậm. Tôi đã nhìn thấy đức Phật, đấng Vô Nhiễm, vị thọ nhận các vật hiến cúng.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Dvirataniyađã nói lên những lời kệ này như thế ấy.
 
 (Tụng phẩm thứ mười).
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

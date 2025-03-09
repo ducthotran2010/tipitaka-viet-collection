@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 III. PHẨM SUBHŪTI
 
-# 30\. Ký Sự về Trưởng Lão Khomadāyaka
+# 30. Ký Sự về Trưởng Lão Khomadāyaka
 
 Lúc bấy giờ, tôi đã là người thương buôn ở thành phố Bandhumatī. Chính nhờ thế, tôi cấp dưỡng người vợ và gieo trồng sự thành tựu về nhân lành.
 
@@ -26,9 +26,3 @@ Vị Subhūti, vị Upavāna, vị có sự nương nhờ, vị gìn giữ giớ
 Phẩm Subhūti là phẩm thứ ba.
 
 (Tụng phẩm thứ tư).
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

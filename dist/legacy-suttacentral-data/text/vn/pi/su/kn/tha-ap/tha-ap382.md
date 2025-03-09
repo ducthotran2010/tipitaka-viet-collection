@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXVIII. PHẨM BODHIVANDAKA
 
-# 380\. Ký Sự về Trưởng Lão Kāsumāriphaladāyaka
+# 380. Ký Sự về Trưởng Lão Kāsumāriphaladāyaka
 
 Tôi đã nhìn thấy đức Phật, đấng Vô Nhiễm, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu đang ngồi ở trong vùng đồi núi tợ như cây kaṇikāra đang cháy sáng.
 
@@ -26,9 +26,3 @@ Phần Tóm Lược:
 Cội cây Bồ Đề, bông hoa pāṭalī, vị có (ba) đóa sen xanh, bông hoa paṭṭi, các bông hoa thất diệp, nắm tay vật thơm, giàn hỏa thiêu, (chiếc quạt) lá cọ, vị có tràng hoa nhài, và luôn cả vị có trái cây kāsumāri; (tổng cộng) có năm mươi chín câu kệ.
 
 Phẩm Bodhivandaka là phẩm thứ ba mươi tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

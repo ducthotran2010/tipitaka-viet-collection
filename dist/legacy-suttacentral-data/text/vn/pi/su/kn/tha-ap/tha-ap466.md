@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVII. PHẨM SĀLAKUSUMIYA:
 
-# 464\. Ký Sự về Trưởng Lão Setudāyaka
+# 464. Ký Sự về Trưởng Lão Setudāyaka
 
 Khi đức Thế Tôn Vipassī đang đi kinh hành ở trước mặt, với tâm tịnh tín, với ý vui mừng, tôi đã cho thực hiện cây cầu.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Setudāyaka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Setudāyaka là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

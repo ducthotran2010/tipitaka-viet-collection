@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 III. PHẨM SUBHŪTI
 
-# 26\. Ký Sự về Trưởng Lão Dhūpadāyaka
+# 26. Ký Sự về Trưởng Lão Dhūpadāyaka
 
 Với tâm ý trong sạch, tôi đã dâng cúng khói hương ở liêu cốc của đức Thế Tôn Siddhattha, bậc Trưởng Thượng của thế gian như thế ấy.
 
@@ -19,9 +19,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Dhūpadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Dhūpadāyaka là phần thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

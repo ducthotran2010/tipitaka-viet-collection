@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 II. PHẨM SĪHĀSANADĀYAKA
 
-# 16\. Ký Sự về Trưởng Lão Rāhula
+# 16. Ký Sự về Trưởng Lão Rāhula
 
 Tôi đã lắp đặt gương soi ở tòa lâu đài bảy tầng của đức Thế Tôn Padumuttara là bậc Trưởng Thượng của thế gian như thế ấy.
 
@@ -47,9 +47,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Rāhula đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Rāhula là phần thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

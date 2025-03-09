@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XV. PHẨM CHATTA
 
-# 144\. Ký Sự về Trưởng Lão Saparivāriya
+# 144. Ký Sự về Trưởng Lão Saparivāriya
 
 Đấng Chiến Thắng tên Padumuttara, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu, bậc Toàn Giác, sau khi phát cháy như là khối lửa, đã viên tịch Niết Bàn.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Saparivāriyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Saparivāriya là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

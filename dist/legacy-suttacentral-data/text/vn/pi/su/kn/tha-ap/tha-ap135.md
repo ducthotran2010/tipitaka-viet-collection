@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIV. PHẨM SOBHITA
 
-# 133\. Ký Sự về Trưởng Lão Candanapūjaka
+# 133. Ký Sự về Trưởng Lão Candanapūjaka
 
 Lúc bấy giờ, tôi đã là loài kim-sỉ-điểu ở bờ sông Candabhāgā. Và tôi đã có thức ăn là bông hoa, tương tợ như vậy có y phục là bông hoa.
 
@@ -31,9 +31,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Ký sự về trưởng lão Candanapūjaka là phần thứ ba.
 
 (Tụng phẩm thứ tám).
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

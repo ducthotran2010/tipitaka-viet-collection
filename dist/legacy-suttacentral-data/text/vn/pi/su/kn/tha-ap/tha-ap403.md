@@ -6,7 +6,7 @@ TẬP HAI
 
 XLI. PHẨM METTEYYA:
 
-# 401\. Ký Sự về Trưởng Lão Tissametteyya
+# 401. Ký Sự về Trưởng Lão Tissametteyya
 
 Ở gần đỉnh của sườn núi, (tôi là) vị đạo sĩ khổ hạnh tên Sobhita (chỉ) ăn trái cây đã được rụng xuống và cư ngụ ở trong vùng đồi núi.
 
@@ -46,7 +46,7 @@ Bậc Thông Suốt Thế Gian Padumuttara, vị thọ nhận các vật hiến 
 
 Người ấy sẽ cai quản Thiên quốc hai mươi lăm lần, và sẽ trở thành đấng Chuyển Luân Vương một ngàn lần.
 
-3911\. Được gắn liền với nghiệp phước thiện, cơm ăn, nước uống, vải vóc, và chỗ nằm vô cùng giá trịbiết được ước muốn của người ấy ngay lập tức sẽ sanh lên cho người ấy là người đã có nghiệp (thiện) trong quá khứ. Và người này sẽ luôn luôn được vui vẻ, không có tật bệnh.
+3911. Được gắn liền với nghiệp phước thiện, cơm ăn, nước uống, vải vóc, và chỗ nằm vô cùng giá trịbiết được ước muốn của người ấy ngay lập tức sẽ sanh lên cho người ấy là người đã có nghiệp (thiện) trong quá khứ. Và người này sẽ luôn luôn được vui vẻ, không có tật bệnh.
 
 Chốn nào người ấy sanh lên, là bản thể Thiên nhân hay nhân loại, người ấy sẽ được sung sướng ở khắp mọi nơi rồi sẽ đi đến bản thể nhân loại.
 
@@ -65,9 +65,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Tissametteyya đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Tissametteyya là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

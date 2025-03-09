@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVI. PHẨM BANDHUJĪVAKA
 
-# 158\. Ký Sự về Trưởng Lão Nāgapupphiya
+# 158. Ký Sự về Trưởng Lão Nāgapupphiya
 
 (Tôi đã là) vị Bà-la-môn thông thạo về chú thuật tên Suvaccha sống ở trong vùng đồi núi, được tùy tùng bởi các người học trò của mình.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Nāgapupphiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Nāgapupphiya là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

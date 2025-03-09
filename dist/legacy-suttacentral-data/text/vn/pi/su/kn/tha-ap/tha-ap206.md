@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXI. PHẨM KAṆIKĀRAPUPPHIYA
 
-# 204\. Ký Sự về Trưởng Lão Taraṇiya
+# 204. Ký Sự về Trưởng Lão Taraṇiya
 
 Đức Thế Tôn Atthadassī, bậc Chúa Tể của loài người, đấng Nhân Ngưu dẫn dầu các bậc Thinh Văn đã đi đến bờ sông Gaṅgā.
 
@@ -23,9 +23,3 @@ xxxx. Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã 
 Đại đức trưởng lão Taraṇiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Taraṇiya là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

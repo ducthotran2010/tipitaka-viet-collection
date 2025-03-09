@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXII. PHẨM ĀRAKKHADĀYAKA
 
-# 316\. Ký Sự về Trưởng Lão Āsanatthavika
+# 316. Ký Sự về Trưởng Lão Āsanatthavika
 
 Ngôi bảo tháp của đấng quyến thuộc thế gian Sikhī tên là Uttama. Lúc bấy giờ, tôi đã mò mẫm lang thang ở trong khu rừng hoang vắng.
 
@@ -25,9 +25,3 @@ Trước đây hai mươi bảy kiếp, bảy vị (cùng) tên Atulya ấy đã
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Āsanatthavikađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVI. PHẨM BANDHUJĪVAKA
 
-# 157\. Ký Sự về Trưởng Lão Tiṇasūlaka
+# 157. Ký Sự về Trưởng Lão Tiṇasūlaka
 
 Ở không xa núi Hi-mã-lạp, có ngọn núi tên Bhūtagaṇa. Ở tại nơi ấy có đấng Chiến Thắng, bậc Tự Chủ, bậc tách ly khỏi thế gian cư ngụ đơn độc.
 
@@ -19,9 +19,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Tiṇasūlakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Tiṇasūlaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

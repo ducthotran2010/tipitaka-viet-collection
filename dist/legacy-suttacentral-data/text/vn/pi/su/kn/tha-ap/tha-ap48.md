@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 V. PHẨM UPĀLI
 
-# 46\. Ký Sự về Trưởng Lão Padumacchadaniya
+# 46. Ký Sự về Trưởng Lão Padumacchadaniya
 
 Khi đấng Bảo Hộ Thế Gian Vipassī nhân vật cao cả đã Niết Bàn, tôi đã cầm lấy đóa sen hồng khéo được nở rộ dâng lên giàn hỏa thiêu.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Padumacchadaniyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Padumacchadaniya là phần thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

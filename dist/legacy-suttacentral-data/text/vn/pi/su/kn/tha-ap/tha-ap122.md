@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XII. PHẨM MAHĀPARIVĀRA
 
-# 120\. Ký Sự về Trưởng Lão Jātipūjaka
+# 120. Ký Sự về Trưởng Lão Jātipūjaka
 
 Khi đấng Vipassī đang đản sanh, có nguồn ánh sáng bao la đã xuất hiện. Và quả địa cầu cùng với biển cả và núi non đã rúng động.
 
@@ -32,9 +32,3 @@ Phần Tóm Lược:
 Vị có tùy tùng, vị Sumaṅgala, vị nương nhờ, vị có chỗ ngồi, vị dâng bông hoa, vị cúng dường lễ hỏa táng, vị suy tưởng về đức Phật, vị chỉ đường, vị có sự phục vụ, vị với sự đản sanh; (tổng cộng) có chín mươi câu kệ đã được nói lên và đã được tính đếm bởi các bậc trí.
 
 Phẩm Mahāparivāra là phẩm thứ mười hai.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

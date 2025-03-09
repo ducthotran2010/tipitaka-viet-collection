@@ -6,7 +6,7 @@ TẬP HAI
 
 LIII. PHẨM TIṆADĀYAKA:
 
-# 521\. Ký Sự về Trưởng Lão Tiṇamuṭṭhidāyaka
+# 521. Ký Sự về Trưởng Lão Tiṇamuṭṭhidāyaka
 
 Ở không xa núi Hi-mã-lạp, có ngọn núi tên là Lambaka. Ở tại nơi ấy, đấng Toàn Giác Upatissa đã đi kinh hành ở ngoài trời.
 
@@ -35,9 +35,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Tiṇamuṭṭhidāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Tiṇamuṭṭhidāyaka là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

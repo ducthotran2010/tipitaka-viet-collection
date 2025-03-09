@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IV. PHẨM KUṆḌADHĀNA
 
-# 38\. Ký Sự về Trưởng Lão Āyāgadāyaka
+# 38. Ký Sự về Trưởng Lão Āyāgadāyaka
 
 Khi đấng Bảo Hộ Thế Gian Sikhī, bậc cao quý trong số các vị đang thuyết giảng, đã Niết Bàn, tôi đã trở nên mừng rỡ, với tâm mừng rỡ tôi đã đảnh lễ ngôi bảo tháp tối thượng.
 
@@ -27,9 +27,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Āyāgadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Āyāgadāyaka là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

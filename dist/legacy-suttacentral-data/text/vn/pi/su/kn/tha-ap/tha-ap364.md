@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXVII. PHẨM MANDĀRAVAPUPPHIYA
 
-# 362\. Ký Sự về Trưởng Lão Kakkārupupphiya
+# 362. Ký Sự về Trưởng Lão Kakkārupupphiya
 
 Sau khi từ cõi trời Dạ Ma đi đến vị Gotama vinh quang và quý trọng ở cõi người, tôi đã cầm lấy bông hoa kakkāru và đã dâng lên đức Phật.
 
@@ -15,9 +15,3 @@ Sau khi từ cõi trời Dạ Ma đi đến vị Gotama vinh quang và quý tr�
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Kakkārupupphiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

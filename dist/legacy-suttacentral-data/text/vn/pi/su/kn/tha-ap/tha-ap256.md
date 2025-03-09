@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXVI. PHẨM THOMAKA
 
-# 254\. Ký Sự về Trưởng Lão Ticampakapupphiya
+# 254. Ký Sự về Trưởng Lão Ticampakapupphiya
 
 Ở không xa núi Hi-mã-lạp, có ngọn núi tên là Vikata. Ở trung tâm của ngọn núi ấy, có vị Sa-môn, có các giác quan đã được tu tập, cư ngụ.
 
@@ -17,9 +17,3 @@ Sau khi nhìn thấy sự an tịnh của vị ấy, với tâm ý trong sạch 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Ticampakapupphiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

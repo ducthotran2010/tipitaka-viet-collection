@@ -6,7 +6,7 @@ TẬP HAI
 
 XLV. PHẨM VIBHĪṬAKA:
 
-# 449\. Ký Sự về Trưởng Lão Vedikāraka
+# 449. Ký Sự về Trưởng Lão Vedikāraka
 
 Sau khi thực hiện viền rào đã được làm khéo léo ở cội cây Bồ Đề tối thượng của đức Phật Padumuttara, tôi đã làm cho tâm của mình được tịnh tín.
 
@@ -27,9 +27,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Vedikārakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Vedikāraka là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

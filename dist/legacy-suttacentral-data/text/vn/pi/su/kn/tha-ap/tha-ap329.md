@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXIII. PHẨM UMMĀPUPPHIYA
 
-# 327\. Ký Sự về Trưởng Lão Nigguṇḍipupphiya
+# 327. Ký Sự về Trưởng Lão Nigguṇḍipupphiya
 
 Khi vị Thiên nhân mệnh chung từ tập thể chư Thiên do sự chấm dứt của tuổi thọ, chư Thiên đang tùy hỷ thường thốt lên ba lời nói rằng:
 
@@ -61,9 +61,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Nigguṇḍipupphiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Nigguṇḍipupphiya là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

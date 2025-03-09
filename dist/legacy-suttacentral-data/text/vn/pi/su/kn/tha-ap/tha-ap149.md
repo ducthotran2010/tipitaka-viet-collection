@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XV. PHẨM CHATTA
 
-# 147\. Ký Sự về Trưởng Lão Maggadāyaka
+# 147. Ký Sự về Trưởng Lão Maggadāyaka
 
 Bậc Hữu Nhãn vượt qua con sông nhỏ rồi đi vào khu rừng. Tôi đã nhìn thấy bậc Toàn Giác Siddhattha có ba mươi hai hảo tướng ấy.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Maggadāyaka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Maggadāyaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIII. PHẨM SEREYYAKA
 
-# 122\. Ký Sự về Trưởng Lão Pupphathūpiya
+# 122. Ký Sự về Trưởng Lão Pupphathūpiya
 
 Ở không xa núi Hi-mã-lạp có ngọn núi tên là Kukkuṭa. Ở trung tâm của ngọn núi ấy có vị Bà-la-môn thông thạo về chú thuật sinh sống.
 
@@ -39,9 +39,3 @@ Sau khi thực hiện ngôi bảo tháp bằng các bông hoa dành cho đức T
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Pupphathūpiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

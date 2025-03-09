@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVI. PHẨM BANDHUJĪVAKA
 
-# 159\. Ký Sự về Trưởng Lão Punnāgapupphiya
+# 159. Ký Sự về Trưởng Lão Punnāgapupphiya
 
 Sau khi đã đi sâu vào khu rừng rậm, tôi sinh sống, là người thợ săn. Sau khi nhìn thấy cây punnāga đã được trổ hoa, tôi đã tưởng nhớ đến đức Phật tối thượng.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Punnāgapupphiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Punnāgapupphiya là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

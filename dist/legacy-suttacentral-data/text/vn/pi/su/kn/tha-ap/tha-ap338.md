@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXIV. PHẨM GANDHADHŪPIYA
 
-# 336\. Ký Sự về Trưởng Lão Pabhaṅkara
+# 336. Ký Sự về Trưởng Lão Pabhaṅkara
 
 Ngôi bảo tháp của đức Thế Tôn Padumuttara, bậc Trưởng Thượng của thế gian như thế ấy, đã ngự ở trong khu rừng đông đúc thú dữ.
 
@@ -51,9 +51,3 @@ Kể từ khi tôi đã thực hiện việc làm ấy trước đây một tră
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Pabhaṅkara đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

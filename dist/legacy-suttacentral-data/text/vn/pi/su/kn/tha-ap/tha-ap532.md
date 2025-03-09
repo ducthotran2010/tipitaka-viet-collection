@@ -6,7 +6,7 @@ TẬP HAI
 
 LIII. PHẨM TIṆADĀYAKA:
 
-# 530\. Ký Sự về Trưởng Lão Sugandha
+# 530. Ký Sự về Trưởng Lão Sugandha
 
 Ở vào kiếp Bhadda này, trong số các vị đang thuyết giảng đã hiện khởi đấng cao quý tên Kassapa, thuộc dòng dõi, có danh tiếng vĩ đại, là thân quyến của đấng Phạm Thiên (dòng dõi Bà-la-môn).
 
@@ -108,9 +108,3 @@ Phần Tóm Lược:
 Vị dâng cúng cỏ, vị dâng cúng chiếc giường, luôn cả vị nương nhờ, vị dâng dầu thoa, (vị dâng cúng) tấm vải đẹp, vị dâng cúng cây gậy, tương tợ y như thế là vị cúng dường bông hoa nela, vị quét cội Bồ Đề, vị dâng cúng trái cây āmaṇḍa, vị Bà-la-môn có hương thơm là thứ mười. Và ở đây, được tính đếm toàn bộ là một trăm với hai mươi ba câu kệ.
 
 Phẩm Tiṇadāyaka là phẩm thứ năm mươi ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

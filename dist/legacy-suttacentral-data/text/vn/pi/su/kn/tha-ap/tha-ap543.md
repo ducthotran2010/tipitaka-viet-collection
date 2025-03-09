@@ -6,7 +6,7 @@ TẬP HAI
 
 LV. PHẨM BHADDIYA:
 
-# 541\. Ký Sự về Trưởng Lão Lakuṇṭakabhaddiya
+# 541. Ký Sự về Trưởng Lão Lakuṇṭakabhaddiya
 
 Trước đây một trăm ngàn kiếp, vị Lãnh Đạo, đấng Chiến Thắng tên Padumuttara, bậc Hữu Nhãn về tất cả các pháp đã hiện khởi.
 
@@ -36,7 +36,7 @@ Khi ấy, tôi đã đi đến khu vườn của đức vua và đã gắp lấy
 
 Khi ấy, biết được tâm của tôi, bậc Đại Bi Mẫn, đấng Chiến Thắng, bậc Lãnh Đạo đã nhận lấy bình bát từ tay của vị thị giả.
 
-6040\. Với tâm hớn hở, tôi đã dâng cúng chùm xoài đến bậc Đại Hiền Trí. Sau khi đặt vào bình bát, tôi đã chắp hai cánh lại đồng thời hót lên với tiếng hót ngọt ngào, quyến rũ, êm tai, vui vẻ nhằm mục đích cúng dường đức Phật. Rồi tôi đã bay về tổ và nằm xuống.
+6040. Với tâm hớn hở, tôi đã dâng cúng chùm xoài đến bậc Đại Hiền Trí. Sau khi đặt vào bình bát, tôi đã chắp hai cánh lại đồng thời hót lên với tiếng hót ngọt ngào, quyến rũ, êm tai, vui vẻ nhằm mục đích cúng dường đức Phật. Rồi tôi đã bay về tổ và nằm xuống.
 
 Khi ấy, tôi đã có tâm hoan hỷ, có thiên hướng yêu mến đức Phật. Có con chim ưng với tâm ý xấu xa đã đi đến và đã giết chết tôi.
 
@@ -75,9 +75,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Lakuṇṭakabhaddiya đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Lakuṇṭakabhaddiya là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

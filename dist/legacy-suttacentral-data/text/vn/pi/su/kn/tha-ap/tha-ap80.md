@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VIII. PHẨM NĀGASAMĀLA
 
-# 78\. Ký Sự về Trưởng Lão Pāṭalipupphiya
+# 78. Ký Sự về Trưởng Lão Pāṭalipupphiya
 
 Lúc bấy giờ, tôi đã là con trai nhà triệu phú, mảnh mai, khéo được nuôi dưỡng. Tôi đã đặt bông hoa pāṭali vào lòng và đã mang theo bông hoa ấy.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―(như trên)― tôi đã thực hành lời dạy
 Đại đức trưởng lão Pāṭalipupphiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Pāṭalipupphiya là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

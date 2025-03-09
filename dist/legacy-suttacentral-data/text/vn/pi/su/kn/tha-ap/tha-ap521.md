@@ -6,7 +6,7 @@ TẬP HAI
 
 LII. PHẨM PHALADĀYAKA:
 
-# 519\. Ký Sự về Trưởng Lão Sabbaphaladāyaka
+# 519. Ký Sự về Trưởng Lão Sabbaphaladāyaka
 
 Lúc bấy giờ, tôi là vị Bà-la-môn tên Varuṇa thông suốt về chú thuật. Tôi đã lìa bỏ mười người con trai và đã đi sâu vào khu rừng.
 
@@ -65,9 +65,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Sabbaphaladāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sabbaphaladāyaka là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

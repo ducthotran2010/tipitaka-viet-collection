@@ -6,7 +6,7 @@ TẬP HAI
 
 LI. PHẨM KAṆIKĀRA:
 
-# 507\. Ký Sự về Trưởng Lão Ajeliphaladāyaka
+# 507. Ký Sự về Trưởng Lão Ajeliphaladāyaka
 
 Vào lúc bấy giờ, bậc Toàn Giác, đấng Hiền Trí tên Ajjuna, vị hội đủ về hạnh kiểm và thiện xảo về định đã cư ngụ tại núi Hy-mã-lạp.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ajeliphaladāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ajeliphaladāyaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

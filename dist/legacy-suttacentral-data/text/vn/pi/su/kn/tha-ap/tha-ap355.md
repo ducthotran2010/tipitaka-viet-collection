@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXVI. PHẨM SADDASAÑÑAKA
 
-# 353\. Ký Sự về Trưởng Lão Kiṃsukapūjaka
+# 353. Ký Sự về Trưởng Lão Kiṃsukapūjaka
 
 Sau khi nhìn thấy cây kiṃsuka đã được trổ hoa, tôi đã chắp tay lên. Sau khi suy tưởng về đức Phật Siddhattha, tôi đã cúng dường ở không trung.
 
@@ -17,9 +17,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Kiṃsukapūjakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Kiṃsukapūjaka là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXIX. PHẨM AVAṆṬAPHALA
 
-# 390\. Ký Sự tên Pubbakammapilotika
+# 390. Ký Sự tên Pubbakammapilotika
 
 Ở trong khu rừng có nhiều loại hương thơm ở gần hồ nước Anotatta, ở trên mặt phẳng của tảng núi đá đáng yêu được lấp lánh bởi nhiều loại châu ngọc.
 
@@ -86,9 +86,3 @@ Trái cây avaṇṭa, luôn cả trái bánh mì, trái sung, và trái pilakkh
 Phẩm Avaṇṭaphala là phẩm thứ ba mươi chín.
 
 (Tụng phẩm thứ mười bốn).
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

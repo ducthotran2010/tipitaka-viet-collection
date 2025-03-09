@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XL. PHẨM PIḶINDIVACCHA
 
-# 394\. Ký Sự về Trưởng Lão Madhudāyaka
+# 394. Ký Sự về Trưởng Lão Madhudāyaka
 
 Khu ẩn cư của tôi đã được xây dựng khéo léo ở bờ sông Sindhu. Tại nơi ấy, tôi chỉ dạy các học trò về truyền thống cùng với tướng mạo.
 
@@ -51,9 +51,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Madhudāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Madhudāyaka là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

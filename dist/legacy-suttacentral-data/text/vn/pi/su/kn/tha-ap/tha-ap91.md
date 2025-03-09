@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IX. PHẨM TIMIRAPUPPHIYA
 
-# 89\. Ký Sự về Trưởng Lão Bodhisiñcaka
+# 89. Ký Sự về Trưởng Lão Bodhisiñcaka
 
 Đã có lễ hội ở cội Đại Bồ Đề của đức Thế Tôn Vipassī. Trong khi đang đi đến về việc xuất gia, tôi đã đi đến gần lễ hội.
 
@@ -19,9 +19,3 @@ Tôi đã cầm lấy nước bông hoa và đã rưới xuống cội Bồ Đ�
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Bodhisiñcakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

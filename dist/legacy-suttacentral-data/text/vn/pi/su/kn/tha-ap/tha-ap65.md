@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VII. PHẨM SAKACINTANIYA
 
-# 63\. Ký Sự về Trưởng Lão Paccāgamaniya
+# 63. Ký Sự về Trưởng Lão Paccāgamaniya
 
 Lúc bấy giờ, tôi đã là loài ngỗng đỏ ở bờ sông Sindhu. Và tôi đã khéo ngăn ngừa các điều ác, có thức ăn thuần là loài thảo mộc ở trong nước.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Paccāgamaniyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Paccāgamaniya là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

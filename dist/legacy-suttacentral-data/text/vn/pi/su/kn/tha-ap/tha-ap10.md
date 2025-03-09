@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 I. PHẨM ĐỨC PHẬT
 
-# 8\. Ký Sự về Trưởng Lão Piṇḍolabhāradvāja
+# 8. Ký Sự về Trưởng Lão Piṇḍolabhāradvāja
 
 Lúc bấy giờ, đấng Chiến Thắng tên Padumuttara, bậc Tự Chủ, nhân vật cao cả đã cư ngụ tại Cittakūṭa (đỉnh núi Citta) ở phía trước núi Hi-mã-lạp.
 
@@ -41,9 +41,3 @@ Tại chỗ ngụ hẻo lánh ở trong rừng đầy dẫy ác thú, (vị ấy
 Đại đức trưởng lão Piṇḍolabhāradvāja đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Piṇḍolabhāradvāja là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

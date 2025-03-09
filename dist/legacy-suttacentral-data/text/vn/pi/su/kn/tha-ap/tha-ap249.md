@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXV. PHẨM TUVARADĀYAKA
 
-# 247\. Ký Sự về Trưởng Lão Dhātupūjaka
+# 247. Ký Sự về Trưởng Lão Dhātupūjaka
 
 Khi đấng Bảo Hộ Thế Gian, bậc Tối Thượng Nhân Siddhattha Niết Bàn, tôi đã nhận được một phần xá-lợi của bậc Chúa Tể của loài người như thế ấy.
 
@@ -17,9 +17,3 @@ Kể từ khi tôi đã cúng dường xá-lợi trước đây chín mươi b�
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Dhātupūjakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

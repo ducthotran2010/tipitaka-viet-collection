@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIII. PHẨM SEREYYAKA
 
-# 127\. Ký Sự về Trưởng Lão Phaladāyaka
+# 127. Ký Sự về Trưởng Lão Phaladāyaka
 
 Là vị giảng huấn, thông thạo về chú thuật, thông suốt về ba tập Vệ-đà, tôi sống tại khu ẩn cư ở không xa núi Hi-mã-lạp.
 
@@ -27,9 +27,3 @@ Trước đây bảy trăm kiếp, tôi đã là đức vua Sumaṅgala, là đ�
 Bốn (tuệ) phân tích, ―(như trên)― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Phaladāyakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

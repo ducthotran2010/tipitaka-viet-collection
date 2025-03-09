@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VII. PHẨM SAKACINTANIYA
 
-# 70\. Ký Sự về Trưởng Lão Pupphacaṅgoṭiya
+# 70. Ký Sự về Trưởng Lão Pupphacaṅgoṭiya
 
 (Đức Phật Sikhī) tợ như loài sư tử có dáng vóc không bị hãi sợ, tợ như con sư tử đã được sanh ra cao quý, tợ như con hổ hùng tráng quý cao, tợ như con chim thuộc loài nhân điểu cao cả.
 
@@ -28,9 +28,3 @@ Phần Tóm Lược:
 Vị có sự suy nghĩ của mình, vị Avopupphī, cùng với vị có sự quay trở lại, vị có sự tạo niềm tin cho người khác, vị dâng cúng củ sen, vị có sự suy nghĩ khôn khéo, vị cúng dường tấm vải, vị dâng cúng xoài, vị Sumana, và luôn cả vị có cái rương bông hoa. (Tổng cộng) có bảy mươi mốt câu kệ đã được nói lên, đã được tính đếm bởi các vị nhìn thấy sự lợi ích.
 
 Phẩm Sakacintaniya là phẩm thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -125,9 +125,3 @@ Sau khi đã ra đi (đạt được quả vị giác ngộ), những kệ ngôn
 Vì lòng thương tưởng thế gian, đấng Sư Tử, bậc Tự Chủ (Gotama), đã thực hiện, đã giảng giải những kệ ngôn này của chư Phật Độc Giác ấy nhằm mục đích làm tăng trưởng sự chấn động tâm, sự không quyến luyến, và sự khôn ngoan vượt bực (của các bậc thiện trí).
 
 Ký Sự về Phật Độc Giác được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

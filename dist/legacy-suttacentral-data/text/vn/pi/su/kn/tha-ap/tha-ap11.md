@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 I. PHẨM ĐỨC PHẬT
 
-# 9\. Ký Sự về Trưởng Lão Khadiravaniyarevata
+# 9. Ký Sự về Trưởng Lão Khadiravaniyarevata
 
 Sông Gaṅgā có tên là Bhāgīrathī, được phát xuất từ núi Hi-mã-lạp. Tôi đã là người chèo thuyền ở bến tàu hiểm trở, và ở bờ này tôi chèo qua (bờ kia).
 
@@ -43,9 +43,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Khadiravaniya Revata đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Khadiravaniya Revata là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

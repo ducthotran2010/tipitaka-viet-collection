@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVIII. PHẨM NAḶAMĀLĪ:
 
-# 473\. Ký Sự về Trưởng Lão Ukkāsatika
+# 473. Ký Sự về Trưởng Lão Ukkāsatika
 
 Lúc bấy giờ, đức Thế Tôn tên là Kosika đã cư ngụ tại núi Cittakūṭa. Đức Phật, bậc Hiền Trí là vị chứng thiền, thỏa thích với thiền, vui thích với sự độc cư.
 
@@ -43,9 +43,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ukkāsatikađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ukkāsatika là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

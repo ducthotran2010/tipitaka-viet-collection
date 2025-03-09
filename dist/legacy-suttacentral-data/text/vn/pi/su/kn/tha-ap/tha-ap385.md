@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXIX. PHẨM AVAṆṬAPHALA
 
-# 383\. Ký Sự về Trưởng Lão Udumbaraphaladāyaka
+# 383. Ký Sự về Trưởng Lão Udumbaraphaladāyaka
 
 Đấng Tối Thượng Nhân đã cư ngụ ở bờ sông Vinatā. Tôi đã nhìn thấy đức Phật, bậc Vô Nhiễm, đấng có sự chăm chú, vô cùng định tĩnh.
 
@@ -21,9 +21,3 @@ Các phiền não của tôi đã được thiêu đốt, tất cả các hữu 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Udumbaraphaladāyakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XII. PHẨM MAHĀPARIVĀRA
 
-# 115\. Ký Sự về Trưởng Lão Suvaṇṇapupphiya
+# 115. Ký Sự về Trưởng Lão Suvaṇṇapupphiya
 
 Đức Thế Tôn tên Vipassī, bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu, đang ngồi thuyết giảng đạo lộ Bất Tử cho tập thể dân chúng.
 
@@ -27,9 +27,3 @@ Trước đây bốn mươi ba kiếp, đã có mười sáu vị vua tên Nemis
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Suvaṇṇapupphiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XL. PHẨM PIḶINDIVACCHA
 
-# 397\. Ký Sự về Trưởng Lão Girimānanda
+# 397. Ký Sự về Trưởng Lão Girimānanda
 
 Người vợ của tôi đã qua đời. Con trai tôi (đã chết) được đưa đến bãi tha ma. Mẹ, cha, và anh trai (của tôi đang) được thiêu chung một giàn hỏa thiêu.
 
@@ -69,9 +69,3 @@ Quả vậy, tôi đã thành công mỹ mãn, đã thành tựu tam minh, đã 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Girimānanda đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IV. PHẨM KUṆḌADHĀNA
 
-# 34\. Ký Sự về Trưởng Lão Kāḷudāyī
+# 34. Ký Sự về Trưởng Lão Kāḷudāyī
 
 Lúc bấy giờ, đức Phật Padumuttara, bậc Trưởng Thượng của thế gian như thế ấy đang đi du hành đường xa.
 
@@ -43,9 +43,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Kāḷudāyī đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Kāḷudāyī là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

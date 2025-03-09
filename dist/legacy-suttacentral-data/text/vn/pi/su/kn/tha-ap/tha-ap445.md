@@ -6,7 +6,7 @@ TẬP HAI
 
 XLV. PHẨM VIBHĪṬAKA:
 
-# 443\. Ký Sự về Trưởng Lão Billaphaliya
+# 443. Ký Sự về Trưởng Lão Billaphaliya
 
 Khu ẩn cư của tôi đã khéo được xây dựng ở bờ sông Candabhāgā, được rải rác với những cây billa, được mọc lên với nhiều giống cây khác loại.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Billaphaliyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Billaphaliya là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

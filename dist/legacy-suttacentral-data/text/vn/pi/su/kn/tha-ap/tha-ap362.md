@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXVI. PHẨM SADDASAÑÑAKA
 
-# 360\. Ký Sự về Trưởng Lão Piṇḍapātika
+# 360. Ký Sự về Trưởng Lão Piṇḍapātika
 
 Lúc bấy giờ, bậc Toàn Giác tên Tissa đã cư ngụ ở trong khu rừng lớn. Sau khi Ngài đã từ chính cõi trời Đẩu Suất về lại nơi đây, tôi đã dâng cúng vật thực.
 
@@ -22,9 +22,3 @@ Phần Tóm Lược:
 Vị có sự suy tưởng về âm thanh, vị trồng lúa mạch, các bông hoa kiṃsuka, và bông hoa koraṇḍa, thanh đòn ngang, món cháo xoài, vị có chiếc hộp xinh đẹp, vị dâng cúng chiếc giường, sự nương nhờ, và món vật thực; (tổng cộng) có bốn mươi câu kệ.
 
 Phẩm Saddasaññaka là phẩm thứ ba mươi sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

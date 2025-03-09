@@ -6,7 +6,7 @@ TẬP HAI
 
 LV. PHẨM BHADDIYA:
 
-# 545\. Ký Sự về Trưởng Lão Nandaka
+# 545. Ký Sự về Trưởng Lão Nandaka
 
 Trước đây một trăm ngàn kiếp, vị Lãnh Đạo, đấng Chiến Thắng tên Padumuttara, bậc Hữu Nhãn về tất cả các pháp đã hiện khởi.
 
@@ -40,7 +40,7 @@ Sau khi nhìn thấy đấng Thiện Thệ ở lối đi vào thành phố, tôi
 
 Trong thời gian không bao lâu tôi đã thành tựu phẩm vị A-la-hán. Sau đó, có sự luân hồi đã được vượt qua, tôi đã được chỉ dạy bởi đấng Toàn Tri.
 
-6184\. Theo sự yêu cầu, tôi đã thực hiện việc thuyết giảng Giáo Pháp cho các tỳ khưu ni. Được chỉ dạy bởi tôi, tất cả năm trăm vị ni ấy không thiếu người nào đã trở thành các bậc Vô Lậu. Khi ấy, được hoan hỷ bậc có sự lợi ích lớn lao đã thiết lập tôi vào vị thế tối thắng trong số các vị giáo giới các tỳ khưu ni.
+6184. Theo sự yêu cầu, tôi đã thực hiện việc thuyết giảng Giáo Pháp cho các tỳ khưu ni. Được chỉ dạy bởi tôi, tất cả năm trăm vị ni ấy không thiếu người nào đã trở thành các bậc Vô Lậu. Khi ấy, được hoan hỷ bậc có sự lợi ích lớn lao đã thiết lập tôi vào vị thế tối thắng trong số các vị giáo giới các tỳ khưu ni.
 
 Việc làm đã được thực hiện ở một trăm ngàn kiếp đã cho tôi nhìn thấy quả báu tại đây. Như là tốc độ của mũi tên khéo được bắn ra, tôi đã thiêu đốt các phiền não (của tôi).
 
@@ -53,9 +53,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Nandaka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Nandaka là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

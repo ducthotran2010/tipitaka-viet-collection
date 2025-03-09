@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 II. PHẨM SĪHĀSANADĀYAKA
 
-# 19\. Ký Sự về Trưởng Lão Sopāka
+# 19. Ký Sự về Trưởng Lão Sopāka
 
 Trong khi tôi đang dọn dẹp cái hang ở khu rừng tại ngọn núi cao nhất, đức Thế Tôn tên Siddhattha đã đi đến gặp tôi.
 
@@ -35,9 +35,3 @@ Bốn (tuệ) phân tích, ―(như trên)― tôi đã thực hành lời dạy
 Đại đức trưởng lão Sopāka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sopāka là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

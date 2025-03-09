@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VIII. PHẨM NĀGASAMĀLA
 
-# 77\. Ký Sự về Trưởng Lão Sūcidāyaka
+# 77. Ký Sự về Trưởng Lão Sūcidāyaka
 
 (Trước đây) ba mươi ngàn kiếp, (đã hiện khởi) bậc Toàn Giác, đấng Lãnh Đạo Thế Gian tên Sumedha có ba mươi hai hảo tướng.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―(như trên)― tôi đã thực hành lời dạy
 Đại đức trưởng lão Sūcidāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sūcidāyaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

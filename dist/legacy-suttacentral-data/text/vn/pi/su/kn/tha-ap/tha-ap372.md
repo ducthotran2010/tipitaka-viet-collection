@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXVII. PHẨM MANDĀRAVAPUPPHIYA
 
-# 370\. Ký Sự về Trưởng Lão Salalapupphiya
+# 370. Ký Sự về Trưởng Lão Salalapupphiya
 
 Lúc bấy giờ, tôi đã là loài kim-sỉ-điểu ở bờ sông Candabhāgā. Tại nơi ấy, tôi đã nhìn thấy vị Trời của chư Thiên, đấng Nhân Ngưu, đang đi kinh hành.
 
@@ -28,9 +28,3 @@ Phần Tóm Lược:
 Bông hoa mandārava, bông hoa kakkāru, củ sen, bông hoa kesara, bông hoa aṅkola, vị có bông hoa kadamba, bông hoa uddāla, một bông hoa campaka, bông hoa timira, và cả bông hoa salala nữa; (tổng cộng) có bốn mươi câu kệ.
 
 Phẩm Mandāravapupphiya là phẩm thứ ba mươi bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIII. PHẨM SAKIṂSAMMAJJAKA:
 
-# 427\. Ký Sự về Trưởng Lão Ekadhammasavaṇiya
+# 427. Ký Sự về Trưởng Lão Ekadhammasavaṇiya
 
 Đấng Chiến Thắng tên Padumuttara, bậc thông suốt về tất cả các pháp, trong khi công bố về bốn Sự Thật đã giúp cho nhiều người vượt qua.
 
@@ -49,9 +49,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ekadhammasavaṇiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ekadhammasavaṇiya là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

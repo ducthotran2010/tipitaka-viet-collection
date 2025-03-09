@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XV. PHẨM CHATTA
 
-# 146\. Ký Sự về Trưởng Lão Anulepadāyaka
+# 146. Ký Sự về Trưởng Lão Anulepadāyaka
 
 Tôi đã thực hiện vòng rào chắn ở cội Bồ Đề của bậc Hiền Trí Anomadassī. Tôi đã dâng cúng khối vôi bột và đã làm công việc tô trét.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Anulepadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Anulepadāyaka là phần thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

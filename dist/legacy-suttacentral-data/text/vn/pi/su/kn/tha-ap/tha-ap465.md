@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVII. PHẨM SĀLAKUSUMIYA:
 
-# 463\. Ký Sự về Trưởng Lão Citakanibbāpaka
+# 463. Ký Sự về Trưởng Lão Citakanibbāpaka
 
 Khi nhục thân của bậc Đại Ẩn Sĩ Vessabhū đang được đốt cháy, tôi đã cầm lấy nước thơm và đã làm nguội giàn hỏa thiêu.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Citakanibbāpakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Citakanibbāpaka là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVIII. PHẨM KUMUDA
 
-# 174\. Ký Sự về Trưởng Lão Udapānadāyaka
+# 174. Ký Sự về Trưởng Lão Udapānadāyaka
 
 Tôi đã thực hiện cái giếng dành cho đức Thế Tôn Vipassī. Và khi ấy, sau khi dâng cúng đồ ăn khất thực, tôi đã dâng (cái giếng) đến Ngài.
 
@@ -17,9 +17,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Udapānadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Udapānadāyaka là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXIX. PHẨM AVAṆṬAPHALA
 
-# 389\. Ký Sự về Trưởng Lão Soṇakoṭivīsa
+# 389. Ký Sự về Trưởng Lão Soṇakoṭivīsa
 
 Vào thời kỳ Giáo Pháp của (đức Phật) Vipassī, một hang động đã được tôi xây dựng dành cho Hội Chúng bốn phương ở tại kinh thành Bandhumā.
 
@@ -39,9 +39,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Tại hồ nước lớn Anotatta, ở trước Hội Chúng tỳ khưu, bậc trưởng lão Soṇa Koṭivisa khi được hỏi câu hỏi đã trả lời.
 
 Đại đức trưởng lão Soṇa Koṭivisa đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

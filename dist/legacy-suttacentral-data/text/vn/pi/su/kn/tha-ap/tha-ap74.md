@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VIII. PHẨM NĀGASAMĀLA
 
-# 72\. Ký Sự về Trưởng Lão Padasaññaka
+# 72. Ký Sự về Trưởng Lão Padasaññaka
 
 Sau khi nhìn thấy vết chân đã bước qua của đấng quyến thuộc mặt trời Tissa, tôi đã trở nên mừng rỡ. Với tâm mừng rỡ tôi đã làm cho tâm được tịnh tín ở bàn chân của Ngài.
 
@@ -17,9 +17,3 @@ Trước đây vào kiếp thứ bảy, (tôi đã là) vị Sát-đế-lỵ tê
 Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Padasaññakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

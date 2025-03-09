@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXIII. PHẨM ĀLAMBANADĀYAKA
 
-# 228\. Ký Sự về Trưởng Lão Miñjavaṭaṃsakiya
+# 228. Ký Sự về Trưởng Lão Miñjavaṭaṃsakiya
 
 Khi đấng Bảo Hộ Thế Gian Sikhī, bậc cao quý trong số các vị đang thuyết giảng, đã Niết Bàn, tôi đã thực hiện việc cúng dường cội Bồ Đề với những vòng hoa đội đầu được xếp đặt các nơi.
 
@@ -19,9 +19,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Miñjavaṭaṃsakiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Miñjavaṭaṃsakiya là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ TẬP HAI
 
 LIV. PHẨM KACCĀNA:
 
-# 533\. Ký Sự về Trưởng Lão Mahākappina
+# 533. Ký Sự về Trưởng Lão Mahākappina
 
 Đấng Chiến Thắng tên Padumuttara, bậc thông suốt về tất cả các pháp đã nổi bật ở trái đất và bầu trời, tương tợ như mặt trời vào mùa thu.
 
@@ -66,7 +66,7 @@ Nếu Hội Chúng là đã vượt qua khu rừng rậm, là Phước Điền v
 
 Liền với khi sự chân thật cao quý đã được thực hiện, nước đã được lìa khỏi con đường. Do đó, tôi đã vượt qua bờ sông đáng yêu một cách thoải mái.
 
-5759\. Khi ấy, tôi đã nhìn thấy đức Phật đang ngồi phía trước các vị Thinh Văn tợ như mặt trời đang mọc lên, tợ như ngọn núi vàng đang chói sáng, tợ như cây đèn đã được thắp sáng, tợ như mặt trăng được tháp tùng bởi các vì sao, trông như là vị Chúa Trời đang đổ xuống đám mưa những lời thuyết giảng.
+5759. Khi ấy, tôi đã nhìn thấy đức Phật đang ngồi phía trước các vị Thinh Văn tợ như mặt trời đang mọc lên, tợ như ngọn núi vàng đang chói sáng, tợ như cây đèn đã được thắp sáng, tợ như mặt trăng được tháp tùng bởi các vì sao, trông như là vị Chúa Trời đang đổ xuống đám mưa những lời thuyết giảng.
 
 Tôi đã cùng với các vị cận thần đảnh lễ rồi đã tiến vào ở một bên. Sau đó, biết được thiên hướng của chúng tôi, đức Phật đã thuyết giảng Giáo Pháp.
 
@@ -93,9 +93,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Mahākappina đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Mahākappina là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

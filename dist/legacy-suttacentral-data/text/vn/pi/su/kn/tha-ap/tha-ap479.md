@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVIII. PHẨM NAḶAMĀLĪ:
 
-# 477\. Ký Sự về Trưởng Lão Giripunnāgiya
+# 477. Ký Sự về Trưởng Lão Giripunnāgiya
 
 Lúc bấy giờ, bậc Toàn Giác tên Sobhita đã cư ngụ tại núi Cittakūṭa. Tôi đã hái bông hoa nguyệt quế mọc ở núi và đã cúng dường đến đấng Tự Chủ.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Giripunnāgiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Giripunnāgiya là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

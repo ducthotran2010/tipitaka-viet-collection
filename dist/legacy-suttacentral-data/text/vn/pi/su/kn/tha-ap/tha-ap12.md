@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 I. PHẨM ĐỨC PHẬT
 
-# 10\. Ký Sự về Trưởng Lão Ānanda
+# 10. Ký Sự về Trưởng Lão Ānanda
 
 Sau khi đi ra khỏi cổng tu viện, bậc Đại Hiền Trí Padumuttara trong lúc đổ mưa cơn mưa Bất Tử đã giúp cho đám đông dân chúng đạt đến Niết Bàn.
 
@@ -58,9 +58,3 @@ Phần Tóm Lược:
 Phật (Toàn Giác), Phật Độc Giác, vị Sāriputta, vị Koḷita, vị Kassapa, vị Anuruddha, vị trưởng lão Puṇṇa, vị Upāli, vị Aññāsikoṇḍañña, vị Piṇḍola, vị Revata, và bậc trí tuệ Ānanda; toàn bộ sáu trăm năm mươi câu kệ đã được gộp chung lại.
 
 Phẩm Đức Phật là phẩm thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

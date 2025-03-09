@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIII. PHẨM SAKIṂSAMMAJJAKA:
 
-# 425\. Ký Sự về Trưởng Lão Koraṇḍapupphiya
+# 425. Ký Sự về Trưởng Lão Koraṇḍapupphiya
 
 Trước đây, tôi đã là người thợ rừng có sự quan tâm (phụng dưỡng) đến cha và mẹ. Tôi sinh sống nhờ vào việc giết thú rừng, tôi không biết đến điều tốt lành.
 
@@ -31,9 +31,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Koraṇḍapupphiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Koraṇḍapupphiya là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

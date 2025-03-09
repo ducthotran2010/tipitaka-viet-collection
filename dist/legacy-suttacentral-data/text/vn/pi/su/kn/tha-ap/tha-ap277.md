@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXVIII. PHẨM SUVAṆṆABIMBOHANA
 
-# 275\. Ký Sự về Trưởng Lão Ekañjaliya
+# 275. Ký Sự về Trưởng Lão Ekañjaliya
 
 Tôi đã dâng cúng khu vực sinh sống (cô tịch) đến vị Sa-môn bậc Đại Ẩn Sĩ đang cư ngụ tại cội cây sung, nơi tấm thảm lá cây đã được xác định.
 
@@ -19,9 +19,3 @@ Trước đây mười bốn kiếp, tôi đã là bậc thống lãnh loài ng�
 Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Ekañjaliyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

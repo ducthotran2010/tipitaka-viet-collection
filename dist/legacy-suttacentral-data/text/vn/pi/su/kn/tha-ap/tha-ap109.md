@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XI. PHẨM BHIKKHĀDĀYĪ
 
-# 107\. Ký Sự về Trưởng Lão Naḷamāliya
+# 107. Ký Sự về Trưởng Lão Naḷamāliya
 
 Đức Phật Padumuttara, đấng Trưởng Thượng của thế gian như thế ấy, bậc an tịnh như thế ấy đã ngồi xuống ở tấm thảm cỏ.
 
@@ -31,9 +31,3 @@ Do sự dâng cúng chiếc quạt này và do tính chất đầy đủ của v
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Naḷamāliyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

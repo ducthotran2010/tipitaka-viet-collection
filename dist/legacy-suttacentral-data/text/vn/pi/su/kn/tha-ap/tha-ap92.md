@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IX. PHẨM TIMIRAPUPPHIYA
 
-# 90\. Ký Sự về Trưởng Lão Padumapupphiya
+# 90. Ký Sự về Trưởng Lão Padumapupphiya
 
 Tôi đã lội vào nước ở hồ sen, trong khi đang ngắt các đóa sen hồng tôi đã nhìn thấy đấng Toàn Giác Phussa có ba mươi hai hảo tướng.
 
@@ -28,9 +28,3 @@ Phần Tóm Lược:
 Vị có bông hoa timira, và vị có bông hoa naṅgalī, vị nằm chắp tay, bông hoa adha, hai vị có sự suy tưởng về hào quang, vị dâng cúng trái cây, vị có sự suy tưởng về âm thanh, và vị rưới nước (bông hoa), vị có đóa sen hồng; (tổng cộng) có năm mươi sáu câu kệ đã được thuật lại.
 
 Phẩm Timirapupphiya là phẩm thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 V. PHẨM UPĀLI
 
-# 45\. Ký Sự về Trưởng Lão Pañcahatthiya
+# 45. Ký Sự về Trưởng Lão Pañcahatthiya
 
 Bậc Toàn Giác tên Sumedha đi ở khu phố chợ, có mắt nhìn xuống, có lời nói cân nhắc, có niệm, có giác quan thu thúc.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Pañcahatthiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Pañcahatthiya là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

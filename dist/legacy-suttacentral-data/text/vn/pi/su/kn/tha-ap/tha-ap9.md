@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 I. PHẨM ĐỨC PHẬT
 
-# 7\. Ký Sự về Trưởng Lão Aññākoṇḍañña
+# 7. Ký Sự về Trưởng Lão Aññākoṇḍañña
 
 (Đây là) lần đầu tiên tôi đã nhìn thấy đấng Toàn Giác Padumuttara, bậc Trưởng Thượng của thế gian, đấng Hướng Đạo, vị đã đạt đến nền tảng của bậc Giác Ngộ.
 
@@ -45,9 +45,3 @@ Bây giờ, tôi đây đã đạt đến vị thế Bất Tử, thanh tịnh, v
 Đại đức trưởng lão Aññākoṇḍaññađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Aññākoṇḍañña là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

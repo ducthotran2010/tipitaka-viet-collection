@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXVIII. PHẨM SUVAṆṆABIMBOHANA
 
-# 272\. Ký Sự về Trưởng Lão Tilamuṭṭhidāyaka
+# 272. Ký Sự về Trưởng Lão Tilamuṭṭhidāyaka
 
 Biết được ý định của tôi, bậc Đạo Sư, đấng Lãnh Đạo cao cả của thế gian, đã đi đến bằng thần thông với thân được tạo thành bởi ý.
 
@@ -19,9 +19,3 @@ Trước đây mười sáu kiếp, (tôi đã là) vị Sát-đế-lỵ tên Na
 Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Tilamuṭṭhidāyakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

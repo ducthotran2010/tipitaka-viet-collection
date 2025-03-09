@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXV. PHẨM EKAPADUMIYA
 
-# 343\. Ký Sự về Trưởng Lão Dhajadāyaka
+# 343. Ký Sự về Trưởng Lão Dhajadāyaka
 
 Đấng Đạo Sư tên Tissa đã là bậc Trưởng Thượng của thế gian, đấng Nhân Ngưu. Sau khi nhìn thấy sự đoạn tận mầm mống tái sanh (sự Viên Tịch Niết Bàn) của Ngài, tôi đã treo lên lá cờ.
 
@@ -23,9 +23,3 @@ Và giờ đây, trong lúc mong muốn tôi có thể che đậy (mặt đất)
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Dhajadāyakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

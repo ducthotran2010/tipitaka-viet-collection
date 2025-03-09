@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXIII. PHẨM UMMĀPUPPHIYA
 
-# 330\. Ký Sự về Trưởng Lão Saparivārachattadāyaka
+# 330. Ký Sự về Trưởng Lão Saparivārachattadāyaka
 
 Đấng Hiểu Biết Thế Gian Padumuttara, vị thọ nhận các vật hiến cúng, làm mưa cơn mưa Giáo Pháp, tợ như nước mưa tuôn ở bầu trời.
 
@@ -64,9 +64,3 @@ Phần Tóm Lược:
 Bông hoa ummā, (vị cúng dường) cát, nụ cười, vật tế lễ, vật báo hiệu, vị ngợi ca (về sự cúng dường vật thực), vị có bông hoa nigguṇḍī, bông hoa nhài, vị có chiếc lọng che bằng bông hoa, vị có chiếc lọng che và các vật phụ thuộc, (tổng cộng) có hơn một trăm lẻ bảy câu kệ.
 
 Phẩm Ummāpupphiya là phẩm thứ ba mươi ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

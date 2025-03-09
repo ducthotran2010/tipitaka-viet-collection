@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIII. PHẨM SEREYYAKA
 
-# 129\. Ký Sự về Trưởng Lão Gandhapupphiya
+# 129. Ký Sự về Trưởng Lão Gandhapupphiya
 
 Bậc Toàn Giác Vipassī có màu da vàng chói, bậc xứng đáng sự cúng dường, dẫn đầu các vị Thinh Văn, đã rời khỏi tu viện.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Gandhapupphiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Gandhapupphiya là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

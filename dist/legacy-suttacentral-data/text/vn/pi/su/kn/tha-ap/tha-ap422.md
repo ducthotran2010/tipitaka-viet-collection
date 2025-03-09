@@ -6,7 +6,7 @@ TẬP HAI
 
 XLII. PHẨM BHADDĀLI:
 
-# 420\. Ký Sự về Trưởng Lão Mañcadāyaka
+# 420. Ký Sự về Trưởng Lão Mañcadāyaka
 
 Khi đấng Bi Mẫn, bậc Lãnh Đạo Thế Gian Siddhattha đã viên tịch Niết Bàn, khi Phật Ngôn đã được phổ biến, được tôn kính bởi chư Thiên cùng nhân loại.
 
@@ -42,9 +42,3 @@ Phần Tóm Lược:
 Vị Bhaddāli, vị (dâng) một chiếc lọng, vị Tiṇasūla, vị dâng cúng thịt, vị (dâng) chồi non cây nāga, vị có ngọn đèn, vị có (bông hoa) ở bên hông, vị dâng cúng cháo, vị có gói cơm, vị dâng cúng chiếc giường. Và các câu kệ được tính đếm ở đây là hai trăm câu kệ và một câu kệ được thêm vào đó.
 
 Phẩm Bhaddāli là phẩm thứ bốn mươi hai.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVI. PHẨM BANDHUJĪVAKA
 
-# 152\. Ký Sự về Trưởng Lão Tambapupphiya
+# 152. Ký Sự về Trưởng Lão Tambapupphiya
 
 Là người bị bận rộn trong việc quán xuyến công việc của người khác, tôi đã làm điều lầm lỗi. Bị xâm chiếm bởi nỗi lo sợ và hốt hoảng, tôi đã trốn chạy đến cuối khu rừng.
 
@@ -27,9 +27,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Tambapupphiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Tambapupphiya là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

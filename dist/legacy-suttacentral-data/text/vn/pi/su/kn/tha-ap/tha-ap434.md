@@ -6,7 +6,7 @@ TẬP HAI
 
 XLIV. PHẨM EKAVIHĀRĪ:
 
-# 432\. Ký Sự về Trưởng Lão Ekasaṃkhiya
+# 432. Ký Sự về Trưởng Lão Ekasaṃkhiya
 
 Đã có lễ hội ở cội Đại Bồ Đề của đức Thế Tôn Vipassī. Đám đông dân chúng đã cùng nhau đi đến và cúng dường cội Bồ Đề tối thượng.
 
@@ -37,9 +37,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ekasaṅkhiya đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ekasaṅkhiya là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ TẬP HAI
 
 XLI. PHẨM METTEYYA:
 
-# 407\. Ký Sự về Trưởng Lão Hemaka
+# 407. Ký Sự về Trưởng Lão Hemaka
 
 Vào lúc bấy giờ, có vị đạo sĩ khổ hạnh tên là Anoma đã tạo lập khu ẩn cư được xây dựng khéo léo ở gần chóp đỉnh của sườn núi và đã sống ở gian nhà rộng bằng lá.
 
@@ -95,9 +95,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Ký sự về trưởng lão Hemaka là phần thứ bảy.
 
 (Tụng phẩm thứ mười bảy).
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

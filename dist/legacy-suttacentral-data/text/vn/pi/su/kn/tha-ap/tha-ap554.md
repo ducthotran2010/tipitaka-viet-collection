@@ -6,7 +6,7 @@ TẬP HAI
 
 LVI. PHẨM YASA:
 
-# 552\. Ký Sự về Trưởng Lão Nadīkassapa
+# 552. Ký Sự về Trưởng Lão Nadīkassapa
 
 Nhân dịp đức Thế Tôn Padumuttara bậc Trưởng Thượng của thế gian như thế ấy đang hành hạnh khất thực, tôi đã cầm lấy trái cây đầu mùa danh tiếng hạng nhất và đã dâng cúng đến bậc Đạo Sư.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Nadīkassapa đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Nadīkassapa là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

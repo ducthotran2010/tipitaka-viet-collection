@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVI. PHẨM JAGATIDĀYAKA:
 
-# 453\. Ký Sự về Trưởng Lão Sīhāsanavījaka
+# 453. Ký Sự về Trưởng Lão Sīhāsanavījaka
 
 Tôi đã đảnh lễ cội cây Bồ Đề của đức Thế Tôn Tissa. Tôi đã lấy ra cây quạt và đã hầu quạt bảo tọa sư tử ở tại nơi ấy.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Sīhāsanavījakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sīhāsanavījaka là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

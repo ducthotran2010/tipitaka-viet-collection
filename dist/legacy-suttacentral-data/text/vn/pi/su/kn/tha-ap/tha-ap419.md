@@ -6,7 +6,7 @@ TẬP HAI
 
 XLII. PHẨM BHADDĀLI:
 
-# 417\. Ký Sự về Trưởng Lão Ucchaṅgapupphiya
+# 417. Ký Sự về Trưởng Lão Ucchaṅgapupphiya
 
 Tôi đã là người làm tràng hoa ở thành phố Bandhumatī. Sau khi chất đầy ở bên hông, tôi đã đi đến khu phố chợ.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ucchaṅgapupphiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ucchaṅgapupphiya là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 X. PHẨM SUDHAPIṆḌIYA
 
-# 100\. Ký Sự về Trưởng Lão Buddhupaṭṭhāka
+# 100. Ký Sự về Trưởng Lão Buddhupaṭṭhāka
 
 Tôi đã là người thổi tù và vỏ ốc (thông báo) của đức Thế Tôn Vipassī. Tôi thường xuyên gắn bó với việc phục vụ đến đấng Thiện Thệ, bậc Đại Ẩn Sĩ.
 
@@ -31,9 +31,3 @@ Giờ là phần tóm lược của các phẩm:
 Phẩm Buddha là phẩm thứ nhất, phẩm bảo tọa sư tử, phẩm Subhūti, phẩm Kuṇḍadhāna, phẩm Upāli, phẩm vị có cây quạt, phẩm vị đã tự mình suy nghĩ, phẩm Nāgasamāla, phẩm (bông hoa) timira, với phẩm (vị dâng) vữa vôi; mười phẩm ấy có một ngàn bốn trăm câu kệ và thêm năm mươi lăm câu nữa.
 
 Nhóm “Mười” từ phẩm Buddha.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

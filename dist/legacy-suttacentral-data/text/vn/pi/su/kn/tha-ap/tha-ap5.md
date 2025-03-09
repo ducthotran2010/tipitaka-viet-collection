@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 I. PHẨM ĐỨC PHẬT
 
-# 3\. Ký Sự về Trưởng Lão Mahākassapa
+# 3. Ký Sự về Trưởng Lão Mahākassapa
 
 Khi đấng Bảo Hộ Thế Gian Niết Bàn, tôi thể hiện sự cúng dường đến đức Thế Tôn Padumuttara, bậc Đạo Sư, đấng Trưởng Thượng của thế gian như thế ấy.
 
@@ -55,9 +55,3 @@ Tại nơi ấy, tôi đã ăn, tôi đã uống, và đã trở về lại bả
 Đại đức trưởng lão Mahākassapa đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Mahākassapa là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXIII. PHẨM UMMĀPUPPHIYA
 
-# 328\. Ký Sự về Trưởng Lão Sumanāveliya
+# 328. Ký Sự về Trưởng Lão Sumanāveliya
 
 Sau khi cùng nhau đi đến, tất cả dân chúng tiến hành việc cúng dường trọng thể đến đức Thế Tôn Vessabhū, bậc Trưởng Thượng của thế gian như thế ấy.
 
@@ -31,9 +31,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Sumanāveliyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sumanāveliya là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

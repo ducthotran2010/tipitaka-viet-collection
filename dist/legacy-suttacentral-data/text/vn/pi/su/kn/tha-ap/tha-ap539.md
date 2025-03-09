@@ -6,7 +6,7 @@ TẬP HAI
 
 LIV. PHẨM KACCĀNA:
 
-# 537\. Ký Sự về Trưởng Lão Koṭṭhita
+# 537. Ký Sự về Trưởng Lão Koṭṭhita
 
 Trước đây một trăm ngàn kiếp, đấng Chiến Thắng tên Padumuttara, bậc Hiền Trí, đấng hiểu biết về toàn bộ thế giới, bậc Hữu Nhãn đã hiện khởi.
 
@@ -22,7 +22,7 @@ Cho đến khi ấy, tuổi thọ được biết là một trăm ngàn năm. Tr
 
 Khi ấy, tôi là người Bà-la-môn ở tại Haṃsavatī, thông suốt các bộ Vệ Đà. Tôi đã đi đến bậc Ưu Tú cao cả của chúng sanh và đã lắng nghe việc thuyết giảng Giáo Pháp.
 
-5891\. Khi ấy, đấng Anh Hùng ấy đã thiết lập vào vị thế tối thắng đối với vị Thinh Văn có hành xứ về sự hiểu biết đã được rạch ròi và là vị rành rẽ về ý nghĩa, về pháp, về ngôn từ, và về phép biện giải. Nghe được điều ấy, tôi đã trở nên hoan hỷ. Khi ấy, tôi đã cung cấp vật thực đến đấng Chiến Thắng cao quý cùng các vị Thinh Văn trong bảy ngày.
+5891. Khi ấy, đấng Anh Hùng ấy đã thiết lập vào vị thế tối thắng đối với vị Thinh Văn có hành xứ về sự hiểu biết đã được rạch ròi và là vị rành rẽ về ý nghĩa, về pháp, về ngôn từ, và về phép biện giải. Nghe được điều ấy, tôi đã trở nên hoan hỷ. Khi ấy, tôi đã cung cấp vật thực đến đấng Chiến Thắng cao quý cùng các vị Thinh Văn trong bảy ngày.
 
 Sau khi khoác lên bậc Đại Đương của giác ngộ cùng với các đệ tử bằng các tấm vải, tôi đã quỳ xuống ở cạnh bàn chân (Ngài) và đã phát nguyện vị thế ấy.
 
@@ -69,9 +69,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Mahākoṭṭhita đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Mahākoṭṭhita là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

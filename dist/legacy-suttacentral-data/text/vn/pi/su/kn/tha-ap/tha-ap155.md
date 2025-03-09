@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XVI. PHẨM BANDHUJĪVAKA
 
-# 153\. Ký Sự về Trưởng Lão Vīthisammajjaka
+# 153. Ký Sự về Trưởng Lão Vīthisammajjaka
 
 Đấng Lãnh Đạo Thế Gian đang đi ra tợ như mặt trời đang mọc, như là mặt trời có tia sáng màu vàng, như là mặt trăng vào ngày rằm.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Vīthisammajjakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Vīthisammajjaka là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

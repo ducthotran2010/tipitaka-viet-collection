@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXIV. PHẨM GANDHADHŪPIYA
 
-# 340\. Ký Sự về Trưởng Lão Ukkhittapadumiya
+# 340. Ký Sự về Trưởng Lão Ukkhittapadumiya
 
 Tôi đã là người làm tràng hoa ở thành phố Haṃsavatī. Tôi đã lội xuống hồ sen và đã hái những đóa hoa sen.
 
@@ -42,9 +42,3 @@ Phần Tóm Lược:
 Nhang thơm, (vị cúng dường) nước, bông hoa punnāga, vị có tấm vải độc nhất, giọt nước (thơm), vị Pabhaṅkara, vị dâng cúng cái lều (cỏ), vị có tấm áo choàng, vị có sự lắng nghe, vị có một đóa sen hồng; các câu kệ được gộp chung lại ở phẩm này là một trăm câu kệ và bốn mươi bốn câu nữa.
 
 Phẩm Gandhadhūpiya là phẩm thứ ba mươi bốn.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

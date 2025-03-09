@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 V. PHẨM UPĀLI
 
-# 49\. Ký Sự về Trưởng Lão Subhadda
+# 49. Ký Sự về Trưởng Lão Subhadda
 
 Đấng Hiểu Biết Thế Gian Padumuttara vị thọ nhận các vật hiến cúng có danh vọng lớn lao đã tiếp độ đám đông dân chúng rồi Niết Bàn.
 
@@ -58,12 +58,6 @@ Giờ đây, đúng ngày hôm nay là sự xuất gia, đúng ngày hôm nay l�
 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
-Đại đức trưởng lão Subhadda đã nói lên những lời kệ này như thế ấy.\]
+Đại đức trưởng lão Subhadda đã nói lên những lời kệ này như thế ấy.]
 
 Ký sự về trưởng lão Subhadda là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

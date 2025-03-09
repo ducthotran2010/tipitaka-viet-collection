@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXVII. PHẨM ĀKĀSUKKHIPIYA
 
-# 269\. Ký Sự về Trưởng Lão Upāgatāsaya
+# 269. Ký Sự về Trưởng Lão Upāgatāsaya
 
 Ở trung tâm của núi Hi-mã-lạp có cái hồ nước đã khéo được tạo lập. Tôi đã là loài quỷ dữ ở tại nơi ấy, có bản chất quấy rối, là kẻ gây nên nỗi hãi sợ.
 
@@ -19,9 +19,3 @@ Khi bậc Đại Hùng, vị Trời của chư Thiên, đấng Nhân Ngưu đã 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Upāgatāsayađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ TẬP HAI
 
 XLI. PHẨM METTEYYA:
 
-# 409\. Ký Sự về Trưởng Lão Jatukaṇṇi
+# 409. Ký Sự về Trưởng Lão Jatukaṇṇi
 
 Khi ấy, tôi đã là người con trai của nhà triệu phú ở thành phố Hamsavatī. Tôi được cung ứng và được vây quanh bởi các loại dục lạc.
 
@@ -62,7 +62,7 @@ Những người đã được tôi đề cập đến là những nhóm ngườ
 
 Trong khi họ đang nói những lời vui vẻ, trong khi những cái trống lớn được vỗ vang lên, trong khi họ đang thổi những chiếc tù và vỏ ốc, tôi sướng vui ở tại ngôi nhà của chính mình.
 
-4193\. Vào thời điểm ấy, đức Thế Tôn, đấng Lãnh Đạo Padumuttara, bậc Hữu Nhãn ấy, được tháp tùng bởi một trăm ngàn vị tỳ khưu là các bậc Lậu Tận có năng lực, đã ngự đến ở trên đường, trong lúc đang tỏa sáng tất cả các phương tợ như cây đèn chiếu sáng.
+4193. Vào thời điểm ấy, đức Thế Tôn, đấng Lãnh Đạo Padumuttara, bậc Hữu Nhãn ấy, được tháp tùng bởi một trăm ngàn vị tỳ khưu là các bậc Lậu Tận có năng lực, đã ngự đến ở trên đường, trong lúc đang tỏa sáng tất cả các phương tợ như cây đèn chiếu sáng.
 
 Tất cả các chiếc trống lớn được vỗ lên trong khi bậc Lãnh Đạo Thế Gian đang đi. Hào quang của Ngài tỏa ra tợ như ánh mặt trời đã mọc lên cao.
 
@@ -117,9 +117,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Jatukaṇṇi đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Jatukaṇṇi là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXIX. PHẨM PAṆṆADĀYAKA
 
-# 282\. Ký Sự về Trưởng Lão Phaladāyaka
+# 282. Ký Sự về Trưởng Lão Phaladāyaka
 
 (Đức Phật Siddhattha) ấy có sự an tịnh sánh bằng núi Sineru, tợ như vật nâng đỡ trái đất, sau khi xuất khỏi thiền định đã đi đến gần tôi về việc khất thực.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Phaladāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Phaladāyaka là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

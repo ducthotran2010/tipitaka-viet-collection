@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 III. PHẨM SUBHŪTI
 
-# 23\. Ký Sự về Trưởng Lão Saraṇagamaniya
+# 23. Ký Sự về Trưởng Lão Saraṇagamaniya
 
 Lúc bấy giờ, tôi đã là người hầu hạ mẹ ở thành phố Candavatī. Mẹ và cha của tôi bị mù, tôi phụng dưỡng họ.
 
@@ -67,9 +67,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Tisaraṇagamaniya đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Tisaraṇagamaniya là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

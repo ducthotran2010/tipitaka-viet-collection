@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XL. PHẨM PIḶINDIVACCHA
 
-# 392\. Ký Sự về Trưởng Lão Sela
+# 392. Ký Sự về Trưởng Lão Sela
 
 Tôi đã là vị chủ quản đường lộ ở thành phố Haṃsavatī. Tôi đã tập hợp thân quyến của tôi lại và đã nói lời nói này:
 
@@ -60,7 +60,7 @@ Và tôi đã trở thành đấng Chuyển Luân Vương một ngàn lần. Cá
 
 Tôi đã là người con trai của vị ấy, có sự tích lũy tám mươi koṭi (tám trăm triệu). Tên của tôi là Sela. Tôi đạt đến sự toàn hảo về sáu chi phần (của vị Bà-la-môn).
 
-3608\. Trong khi dẫn đầu những người học trò của mình đi bách bộ đó đây, tôi đã nhìn thấy vị đạo sĩ khổ hạnh tên Keṇiya, mang búi tóc và giỏ vật dụng, có vật cúng hiến đã được chuẩn bị, và tôi đã nói lời nói này: “Có phải ông đã thỉnh mời cô dâu, hoặc chú rể, hay là đức vua?”
+3608. Trong khi dẫn đầu những người học trò của mình đi bách bộ đó đây, tôi đã nhìn thấy vị đạo sĩ khổ hạnh tên Keṇiya, mang búi tóc và giỏ vật dụng, có vật cúng hiến đã được chuẩn bị, và tôi đã nói lời nói này: “Có phải ông đã thỉnh mời cô dâu, hoặc chú rể, hay là đức vua?”
 
 “Tôi có ý định dâng tặng vật hiến cúng đến vị Bà-la-môn đã được công nhận là vị Trời. Tôi không thỉnh mời đức vua, vật hiến cúng của tôi không có.
 
@@ -199,9 +199,3 @@ Các phiền não của tôi đã được thiêu đốt, tất cả các hữu 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Sela đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

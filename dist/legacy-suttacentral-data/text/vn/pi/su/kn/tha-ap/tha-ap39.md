@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IV. PHẨM KUṆḌADHĀNA
 
-# 37\. Ký Sự về Trưởng Lão Lasuṇadāyaka
+# 37. Ký Sự về Trưởng Lão Lasuṇadāyaka
 
 Lúc bấy giờ, tôi đã là vị đạo sĩ khổ hạnh ở không xa núi Hi-mã-lạp. Tôi sống bằng củ tỏi, củ tỏi là thực phẩm của tôi.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Lasuṇadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Lasuṇadāyaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ TẬP HAI
 
 LVI. PHẨM YASA:
 
-# 551\. Ký Sự về Trưởng Lão Yasa
+# 551. Ký Sự về Trưởng Lão Yasa
 
 Chỗ cư ngụ của tôi đã được hóa hiện ra ở gần biển cả, có hồ nước đã khéo được hóa hiện ra, được líu lo bởi loài ngỗng đỏ.
 
@@ -67,9 +67,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Yasa đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Yasa là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

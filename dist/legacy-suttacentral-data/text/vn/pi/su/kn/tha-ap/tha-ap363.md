@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXVII. PHẨM MANDĀRAVAPUPPHIYA
 
-# 361\. Ký Sự về Trưởng Lão Mandāravapupphiya
+# 361. Ký Sự về Trưởng Lão Mandāravapupphiya
 
 Sau khi từ cõi trời Đạo Lợi đi đến nơi đây, người thanh niên tên Maṅgala đã cầm lấy bông hoa mandārava dành cho bậc Đại Ẩn Sĩ Vipassī.
 
@@ -17,9 +17,3 @@ Tôi đã đặt ở trên đỉnh đầu của (đức Phật) đang ngồi nh�
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Mandāravapupphiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

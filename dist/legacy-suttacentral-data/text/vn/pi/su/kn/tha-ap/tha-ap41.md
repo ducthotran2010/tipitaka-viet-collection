@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IV. PHẨM KUṆḌADHĀNA
 
-# 39\. Ký Sự về Trưởng Lão Dhammacakkika
+# 39. Ký Sự về Trưởng Lão Dhammacakkika
 
 Phía trước bảo tọa sư tử của đức Thế Tôn Siddhattha, tôi đã thiết lập bánh xe Pháp đã được làm khéo léo, đã được ngợi khen bởi các bậc trí thức.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Dhammacakkikađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Dhammacakkika là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ TẬP HAI
 
 LI. PHẨM KAṆIKĀRA:
 
-# 508\. Ký Sự về Trưởng Lão Amodaphaliya
+# 508. Ký Sự về Trưởng Lão Amodaphaliya
 
 Trong lúc đấng Toàn Giác, bậc có màu sắc màu vàng chói, vị thọ nhận các vật hiến cúng, đang tiến bước ở trên đường, tôi đã dâng cúng trái cây amoda.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Amodaphaliyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Amodaphaliya là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

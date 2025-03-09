@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VII. PHẨM SAKACINTANIYA
 
-# 66\. Ký Sự về Trưởng Lão Sucintita
+# 66. Ký Sự về Trưởng Lão Sucintita
 
 Tôi đã là người (thợ săn) lai vãng ở các khu vực hiểm trở của những ngọn núi. Tợ như con sư tử đã được sanh ra tốt đẹp, tôi giết các bầy thú rừng và sống ở trong vùng đồi núi.
 
@@ -29,9 +29,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Sucintitađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sucintita là phần thứ sáu.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

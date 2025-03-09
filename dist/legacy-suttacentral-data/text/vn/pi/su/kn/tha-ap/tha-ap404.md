@@ -6,7 +6,7 @@ TẬP HAI
 
 XLI. PHẨM METTEYYA:
 
-# 402\. Ký Sự về Trưởng Lão Puṇṇaka
+# 402. Ký Sự về Trưởng Lão Puṇṇaka
 
 Ở gần đỉnh của sườn núi, có đấng Tự Chủ, bậc không bị đánh bại, cư ngụ ở trong vùng đồi núi. Đức Phật đáng kính bị lâm bệnh.
 
@@ -43,9 +43,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Puṇṇaka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Puṇṇaka là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXVI. PHẨM THOMAKA
 
-# 251\. Ký Sự về Trưởng Lão Thomaka
+# 251. Ký Sự về Trưởng Lão Thomaka
 
 Trong khi đang trú ở thế giới chư Thiên, tôi được hoan hỷ sau khi lắng nghe Giáo Pháp của bậc Đại Ẩn Sĩ Vipassī, và tôi đã nói nên lời nói này:
 
@@ -17,9 +17,3 @@ Kể từ khi tôi đã nói lên lời nói ấy trước đây chín mươi m�
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Thomakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

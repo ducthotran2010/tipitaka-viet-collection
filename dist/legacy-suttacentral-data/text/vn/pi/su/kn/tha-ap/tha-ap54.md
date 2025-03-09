@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VI. PHẨM VĪJANĪ
 
-# 52\. Ký Sự về Trưởng Lão Sataraṃsika
+# 52. Ký Sự về Trưởng Lão Sataraṃsika
 
 Sau khi trèo lên tảng đá cao, đấng Tối Thượng Nhân đã ngồi xuống. Tôi là vị Bà-la-môn thông thạo về chú thuật (cư ngụ) ở không xa ngọn núi.
 
@@ -35,9 +35,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Sataraṃsiya đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sataraṃsika là phần thứ nhì.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ TẬP HAI
 
 XLI. PHẨM METTEYYA:
 
-# 408\. Ký Sự về Trưởng Lão Todeyya
+# 408. Ký Sự về Trưởng Lão Todeyya
 
 Lúc bấy giờ, ở kinh thành Ketumatī có đức vua tên Vijaya, là vị anh hùng, được hội đủ sức lực, đã cư ngụ ở tại thành phố.
 
@@ -38,9 +38,9 @@ Khi ấy, trong lúc trằn trọc ở trên giường, tôi (như là) nằm �
 
 Được gì cho tôi với các người con trai, với các người vợ, và với toàn bộ vương quốc? Hay là ta nên xuất gia, ta nên làm trong sạch đạo lộ tái sanh?”
 
-4129\. Không mong mỏi việc lai vãng ở chiến trường, vào địa vị, tôi đã từ bỏ sáu mươi ngàn con voi loài long tượng được trang hoàng với tất cả các loại trang sức, có chuông vàng, có trang phục yên cương bằng vàng, được cỡi bởi các vị trưởng làng có các bàn tay cầm giáo và móc câu. Bị nóng nảy bởi hành động của chính mình, tôi đã ra đi vào đời sống không gia đình.
+4129. Không mong mỏi việc lai vãng ở chiến trường, vào địa vị, tôi đã từ bỏ sáu mươi ngàn con voi loài long tượng được trang hoàng với tất cả các loại trang sức, có chuông vàng, có trang phục yên cương bằng vàng, được cỡi bởi các vị trưởng làng có các bàn tay cầm giáo và móc câu. Bị nóng nảy bởi hành động của chính mình, tôi đã ra đi vào đời sống không gia đình.
 
-4131\. (Tôi đã từ bỏ) sáu mươi ngàn con ngựa dòng Sindhu thuần chủng, là phương tiện vận chuyển nhanh chóng, được trang hoàng với tất cả các loại trang sức, được cỡi bởi các vị trưởng làng có các bàn tay cầm cung mang áo giáp. Sau khi buông bỏ tất cả các thứ ấy, tôi đã ra đi vào đời sống không gia đình.
+4131. (Tôi đã từ bỏ) sáu mươi ngàn con ngựa dòng Sindhu thuần chủng, là phương tiện vận chuyển nhanh chóng, được trang hoàng với tất cả các loại trang sức, được cỡi bởi các vị trưởng làng có các bàn tay cầm cung mang áo giáp. Sau khi buông bỏ tất cả các thứ ấy, tôi đã ra đi vào đời sống không gia đình.
 
 (Tôi đã từ bỏ) sáu mươi ngàn cỗ xe được trang hoàng với tất cả các loại trang sức, có các mảnh da báo và cả da hổ được bày biện, có các ngọn cờ được giương cao. Sau khi bảo đem đi tất cả các thứ ấy, tôi đã xuất gia vào đời sống không gia đình.
 
@@ -111,9 +111,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Todeyya đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Todeyya là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

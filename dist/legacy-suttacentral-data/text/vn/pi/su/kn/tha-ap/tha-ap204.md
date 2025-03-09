@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXI. PHẨM KAṆIKĀRAPUPPHIYA
 
-# 202\. Ký Sự về Trưởng Lão Minelapupphiya
+# 202. Ký Sự về Trưởng Lão Minelapupphiya
 
 Đức Thế Tôn Sikhī hùng tráng có màu da vàng chói, có trăm ánh hào quang, có sự huy hoàng, có tâm từ ái, đã bước lên con đường kinh hành.
 
@@ -19,9 +19,3 @@ Vào kiếp (thứ) hai mươi chín, (tôi đã là) vị tên Sumedhayasa, là
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Minelapupphiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

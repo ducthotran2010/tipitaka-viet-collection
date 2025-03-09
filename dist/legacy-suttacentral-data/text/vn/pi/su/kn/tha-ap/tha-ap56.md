@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 VI. PHẨM VĪJANĪ
 
-# 54\. Ký Sự về Trưởng Lão Gandhodakiya
+# 54. Ký Sự về Trưởng Lão Gandhodakiya
 
 Đã có lễ hội ở cội Đại Bồ Đề của đức Phật Padumuttara. Tôi đã mang theo cái bầu nước đã được trang hoàng và tôi đã dâng cúng nước có hương thơm.
 
@@ -27,9 +27,3 @@ Bốn (tuệ) phân tích, ―(như trên)― tôi đã thực hành lời dạy
 Đại đức trưởng lão Gandhodakiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Gandhodakiya là phần thứ tư.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

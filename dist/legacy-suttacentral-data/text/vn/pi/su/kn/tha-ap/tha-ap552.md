@@ -6,7 +6,7 @@ TẬP HAI
 
 LV. PHẨM BHADDIYA:
 
-# 550\. Ký Sự về Trưởng Lão Cūḷasugandha
+# 550. Ký Sự về Trưởng Lão Cūḷasugandha
 
 Ở vào kiếp Bhadda này, trong số các vị đang thuyết giảng đã hiện khởi đấng cao quý tên Kassapa có danh tiếng vĩ đại, là thân quyến của đấng Phạm Thiên (dòng dõi Bà-la-môn).
 
@@ -93,9 +93,3 @@ Vị Bhaddiya, vị trưởng lão Revata, và vị Sīvali có lợi lộc lớ
 
 Giờ là phần tóm lược của các phẩm:  
 Phẩm tên Kaṇikāra, phẩm về vị dâng cúng trái cây, phẩm về vị dâng cúng cỏ, phẩm Kaccāna, và phẩm Bhaddiya. Và các câu kệ này đã được tính đếm ở đây là chín trăm và tám mươi bốn. Có năm trăm năm mươi ký sự đã được giảng giải. Cùng với các câu kệ tóm lược, đây là sáu ngàn hai trăm câu kệ và mười tám câu thêm vào đó nữa.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVI. PHẨM JAGATIDĀYAKA:
 
-# 455\. Ký Sự về Trưởng Lão Akkamanadāyaka
+# 455. Ký Sự về Trưởng Lão Akkamanadāyaka
 
 Tôi đã dâng cúng tấm lót chân đến đấng Hiền Trí Kakusandha, vị Bà-la-môn toàn hảo, trong lúc Ngài đang tiến hành việc nghỉ ngơi giữa ngày.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Akkamanadāyakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Akkamanadāyaka là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

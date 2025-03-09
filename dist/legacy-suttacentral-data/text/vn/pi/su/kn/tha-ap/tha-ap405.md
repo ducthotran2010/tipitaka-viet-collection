@@ -6,7 +6,7 @@ TẬP HAI
 
 XLI. PHẨM METTEYYA:
 
-# 403\. Ký Sự về Trưởng Lão Mettagū
+# 403. Ký Sự về Trưởng Lão Mettagū
 
 Ở không xa núi Hi-mã-lạp, có ngọn núi tên là Asoka. Tại nơi ấy, khu ẩn cư của tôi đã được hóa hiện ra bởi vị trời Vissakamma.
 
@@ -65,9 +65,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Mettagūđã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Mettagū là phần thứ ba.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

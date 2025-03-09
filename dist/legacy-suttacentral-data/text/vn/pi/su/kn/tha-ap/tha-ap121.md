@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XII. PHẨM MAHĀPARIVĀRA
 
-# 119\. Ký Sự về Trưởng Lão Paccupaṭṭhānasaññaka
+# 119. Ký Sự về Trưởng Lão Paccupaṭṭhānasaññaka
 
 Lúc bấy giờ, ngay sau khi đấng Thiện Thệ Atthadassī tịch diệt, tôi đã sanh vào dòng giống Dạ-xoa, và tôi đã đạt được danh tiếng.
 
@@ -16,7 +16,7 @@ Vị Thinh Văn tên Sāgara đã biết được ý định của tôi. Có ý 
 
 “Điều gì khiến ngươi sầu muộn? Này người khôn ngoan, chớ lo ngại, ngươi hãy thực hành Giáo Pháp. Sự thành tựu về hạt giống (giác ngộ) đã được đức Phật ban phát cho tất cả.
 
-1753\. Người cúng dường bậc Toàn Giác đấng Lãnh Đạo Thế Gian (khi Ngài) đang còn tại tiền, và người cúng dường xá-lợi của Ngài khi Ngài đã tịch diệt dầu chỉ nhỏ bằng hạt mù-tạt, khi niềm tịnh tín ở trong tâm là tương đương thì phước báu đạt được lớn lao là tương đương; vì thế ngươi hãy cho xây dựng ngôi bảo tháp rồi hãy cúng dường các xá-lợi của đấng Chiến Thắng.”
+1753. Người cúng dường bậc Toàn Giác đấng Lãnh Đạo Thế Gian (khi Ngài) đang còn tại tiền, và người cúng dường xá-lợi của Ngài khi Ngài đã tịch diệt dầu chỉ nhỏ bằng hạt mù-tạt, khi niềm tịnh tín ở trong tâm là tương đương thì phước báu đạt được lớn lao là tương đương; vì thế ngươi hãy cho xây dựng ngôi bảo tháp rồi hãy cúng dường các xá-lợi của đấng Chiến Thắng.”
 
 Sau khi lắng nghe lời nói của vị Sāgara, tôi đã cho thực hiện ngôi bảo tháp của đức Phật. Tôi đã phục vụ ngôi bảo tháp tối thượng của bậc Hiền Trí năm năm.
 
@@ -27,9 +27,3 @@ Và trước đây bảy trăm kiếp, bốn vị (cùng) tên Bhūripañña đ�
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Paccupaṭṭhānasaññakađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXII. PHẨM HATTHI
 
-# 218\. Ký Sự về Trưởng Lão Akkantasaññaka
+# 218. Ký Sự về Trưởng Lão Akkantasaññaka
 
 Sau khi cầm lấy tấm vải choàng thô xấu, tôi đã (đi đến) thành phố của vị thầy tế độ. Và tôi học tập về chú thuật làm bẻ gãy mũi tên.
 
@@ -25,9 +25,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Akkantasaññaka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Akkantasaññaka là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

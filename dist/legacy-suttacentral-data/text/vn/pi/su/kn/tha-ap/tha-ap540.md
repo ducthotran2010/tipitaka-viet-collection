@@ -6,7 +6,7 @@ TẬP HAI
 
 LIV. PHẨM KACCĀNA:
 
-# 538\. Ký Sự về Trưởng Lão Uruvelakassapa
+# 538. Ký Sự về Trưởng Lão Uruvelakassapa
 
 Trước đây một trăm ngàn kiếp, đấng Chiến Thắng tên Padumuttara, bậc Hiền Trí, đấng hiểu biết về toàn bộ thế giới, bậc Hữu Nhãn đã hiện khởi.
 
@@ -66,7 +66,7 @@ Mệnh chung từ nơi ấy, tất cả chúng tôi đã đi đến cõi trời 
 
 Giống như người làm trò ảo thuật ở sân khấu biểu diễn nhiều hình thức, tương tợ như thế trong khi xoay vần ở hiện hữu tôi đã là vị chúa tể xứ Videha.
 
-5943\. Có thiên hướng tà kiến theo lời nói của đạo sĩ lõa thể tên Guṇa, tôi đã bước lên đạo lộ đi địa ngục. Tôi đã không chấp nhận lời khuyên nhủ của người con gái của tôi là Rujā. Trong khi được chỉ dạy theo nhiều cách thức bởi đấng Phạm Thiên Nārada, tôi đã từ bỏ tà kiến ác xấu.
+5943. Có thiên hướng tà kiến theo lời nói của đạo sĩ lõa thể tên Guṇa, tôi đã bước lên đạo lộ đi địa ngục. Tôi đã không chấp nhận lời khuyên nhủ của người con gái của tôi là Rujā. Trong khi được chỉ dạy theo nhiều cách thức bởi đấng Phạm Thiên Nārada, tôi đã từ bỏ tà kiến ác xấu.
 
 Sau khi đã làm tròn đủ mười đường lối về nghiệp (thiện) một cách đặc biệt, tôi đã từ bỏ xác thân và đã đi đến cõi trời như là (đi đến) nhà của chính mình.
 
@@ -84,7 +84,7 @@ Người (em trai) nhỏ nhất có hai trăm, người em trai giữa có ba tr
 
 Cùng nhóm tùy tùng một ngàn người, tôi đã trở thành vị tỳ khưu theo lối “được gọi đến.” Cùng với tất cả các vị ấy, tôi đã thành tựu phẩm vị A-la-hán.
 
-5954\. Các vị ấy và luôn cả nhiều người đệ tử khác đã tháp tùng theo tôi. Và tôi có khả năng để chỉ dạy. Do đó trong sự hiện diện của đại chúng, bậc Ẩn Sĩ tối thượng đã thiết lập tôi vào vị thế tối thắng. Ôi việc tôn kính đã được thực hiện ở đức Phật đã có quả báu sanh lên cho tôi!
+5954. Các vị ấy và luôn cả nhiều người đệ tử khác đã tháp tùng theo tôi. Và tôi có khả năng để chỉ dạy. Do đó trong sự hiện diện của đại chúng, bậc Ẩn Sĩ tối thượng đã thiết lập tôi vào vị thế tối thắng. Ôi việc tôn kính đã được thực hiện ở đức Phật đã có quả báu sanh lên cho tôi!
 
 Các phiền não của tôi đã được thiêu đốt, tất cả các hữu đã được xóa sạch. Sau khi cắt đứt sự trói buộc như là con voi đực (đã được cởi trói), tôi sống không còn lậu hoặc.
 
@@ -95,9 +95,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Uruvelakassapa đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Uruvelakassapa là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

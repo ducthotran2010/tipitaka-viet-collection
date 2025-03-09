@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XIII. PHẨM SEREYYAKA
 
-# 125\. Ký Sự về Trưởng Lão Sammukhāthavika
+# 125. Ký Sự về Trưởng Lão Sammukhāthavika
 
 Trong khi trấn an dân chúng, tôi đã giải thích về điềm báo hiệu khi vị Vipassī đang đản sanh rằng: “Đức Phật sẽ hiện khởi ở thế gian.
 
@@ -59,9 +59,3 @@ Bốn (tuệ) phân tích, ―(như trên)― tôi đã thực hành lời dạy
 Đại đức trưởng lão Sammukhāthavikađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Sammukhāthavika là phần thứ năm.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

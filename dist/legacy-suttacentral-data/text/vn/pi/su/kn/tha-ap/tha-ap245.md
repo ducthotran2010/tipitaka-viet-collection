@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXV. PHẨM TUVARADĀYAKA
 
-# 243\. Ký Sự về Trưởng Lão Naḷinakesariya
+# 243. Ký Sự về Trưởng Lão Naḷinakesariya
 
 Tôi là con gà nước sống ở giữa hồ nước thiên nhiên. Khi ấy, tôi đã nhìn thấy vị Trời của chư Thiên đang di chuyển ở trên không trung.
 
@@ -19,9 +19,3 @@ Với tâm ý trong sạch, tôi đã dùng mỏ ngắt đóa hoa sen (có tua n
 Bốn (tuệ) phân tích, ―(như trên)― tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Naḷinakesariyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

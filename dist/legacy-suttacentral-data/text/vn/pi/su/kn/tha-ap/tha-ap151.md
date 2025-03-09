@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XV. PHẨM CHATTA
 
-# 149\. Ký Sự về Trưởng Lão Vaṭaṃsakiya
+# 149. Ký Sự về Trưởng Lão Vaṭaṃsakiya
 
 Đấng Tự Chủ bậc không bị đánh bại tên Sumedha, trong khi thực hành hạnh độc cư, đã đi sâu vào khu rừng lớn.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Vaṭaṃsakiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Vaṭaṃsakiya là phần thứ chín.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,7 +6,7 @@ TẬP HAI
 
 LIV. PHẨM KACCĀNA:
 
-# 535\. Ký Sự về Trưởng Lão Kumārakassapa
+# 535. Ký Sự về Trưởng Lão Kumārakassapa
 
 Trước đây một trăm ngàn kiếp, đấng Lãnh Đạo, bậc Anh Hùng tên Padumuttara, vị hữu ích của tất cả thế gian đã hiện khởi.
 
@@ -14,7 +14,7 @@ Lúc bấy giờ, tôi đã là vị Bà-la-môn được nổi tiếng, thông 
 
 Ngài đang công bố về bốn Sự Thật, đang giác ngộ chúng sanh luôn cả chư Thiên, đang tán dương vị đứng đầu trong số các vị thuyết giảng hay ở nơi đám đông dân chúng.
 
-5817\. Khi ấy, có tâm hoan hỷ tôi đã thỉnh mời đức Như Lai và đã trang hoàng mái che bằng những tấm vải có nhiều màu khắc khác nhau, được sáng chói bởi nhiều loại châu báu. Tại nơi ấy, tôi đã chăm lo bữa ăn đến Ngài là bậc cùng với Hội Chúng. Tôi đã cung cấp bữa ăn có hương vị tối thắng đa dạng trong bảy ngày.
+5817. Khi ấy, có tâm hoan hỷ tôi đã thỉnh mời đức Như Lai và đã trang hoàng mái che bằng những tấm vải có nhiều màu khắc khác nhau, được sáng chói bởi nhiều loại châu báu. Tại nơi ấy, tôi đã chăm lo bữa ăn đến Ngài là bậc cùng với Hội Chúng. Tôi đã cung cấp bữa ăn có hương vị tối thắng đa dạng trong bảy ngày.
 
 Sau khi cúng dường Ngài cùng các vị Thinh Văn bằng những bông hoa có nhiều màu sắc khác nhau, tôi đã quỳ xuống ở cạnh bàn chân (Ngài) và đã phát nguyện vị thế ấy.
 
@@ -67,9 +67,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Ký sự về trưởng lão Kumārakassapa là phần thứ năm.
 
 (Tụng phẩm thứ hai mươi bốn).
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

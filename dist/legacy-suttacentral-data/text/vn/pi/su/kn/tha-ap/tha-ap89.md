@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IX. PHẨM TIMIRAPUPPHIYA
 
-# 87\. Ký Sự về Trưởng Lão Phaladāyaka
+# 87. Ký Sự về Trưởng Lão Phaladāyaka
 
 Tôi là vị mặc tấm da dê sần sùi ở núi Hi-mã-lạp. Sau khi nhìn thấy đấng Chiến Thắng cao quý Phussa, có trái cây ở bàn tay tôi đã dâng cúng trái cây.
 
@@ -19,9 +19,3 @@ Bốn (tuệ) phân tích, ―nt― tôi đã thực hành lời dạy của đ�
 Đại đức trưởng lão Phaladāyaka đã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Phaladāyaka là phần thứ bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

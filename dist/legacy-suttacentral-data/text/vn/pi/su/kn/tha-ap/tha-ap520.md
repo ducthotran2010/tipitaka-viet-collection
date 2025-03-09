@@ -6,9 +6,9 @@ TẬP HAI
 
 LII. PHẨM PHALADĀYAKA:
 
-# 518\. Ký Sự về Trưởng Lão Ghosasaññaka
+# 518. Ký Sự về Trưởng Lão Ghosasaññaka
 
-5501\. Trong thời quá khứ, tôi đã là thợ săn thú rừng ở khu rừng hoang rậm. Tôi đã nhìn thấy đức Phật, đấng Vô Nhiễm, đứng đầu hội chúng chư Thiên đang công bố về bốn Sự Thật, đang thuyết giảng về vị thế Bất Tử. Tôi đã lắng nghe Giáo Pháp ngọt ngào của đức Sikhī là đấng quyến thuộc của thế gian.
+5501. Trong thời quá khứ, tôi đã là thợ săn thú rừng ở khu rừng hoang rậm. Tôi đã nhìn thấy đức Phật, đấng Vô Nhiễm, đứng đầu hội chúng chư Thiên đang công bố về bốn Sự Thật, đang thuyết giảng về vị thế Bất Tử. Tôi đã lắng nghe Giáo Pháp ngọt ngào của đức Sikhī là đấng quyến thuộc của thế gian.
 
 Tôi đã làm cho tâm được tịnh tín ở âm vang (của đức Phật), ở nhân vật không người sánh bằng. Tại nơi ấy, sau khi làm cho tâm được tịnh tín tôi đã vượt qua cảnh giới khó thể vượt qua.
 
@@ -23,9 +23,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ghosasaññakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ghosasaññaka là phần thứ tám.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

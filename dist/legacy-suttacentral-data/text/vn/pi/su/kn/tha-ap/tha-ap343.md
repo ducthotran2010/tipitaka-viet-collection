@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXV. PHẨM EKAPADUMIYA
 
-# 341\. Ký Sự về Trưởng Lão Ekapadumiya
+# 341. Ký Sự về Trưởng Lão Ekapadumiya
 
 Đấng Chiến Thắng tên Padumuttara, bậc thông suốt về tất cả các pháp, trong khi giảng giải ở cõi này cõi khác, Ngài đã giúp cho nhiều người vượt qua.
 
@@ -31,9 +31,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Ekapadumiyađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Ekapadumiya là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

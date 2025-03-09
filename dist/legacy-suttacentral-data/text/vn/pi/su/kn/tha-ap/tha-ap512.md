@@ -6,7 +6,7 @@ TẬP HAI
 
 LI. PHẨM KAṆIKĀRA:
 
-# 510\. Ký Sự về Trưởng Lão Nāḷikeradāyaka
+# 510. Ký Sự về Trưởng Lão Nāḷikeradāyaka
 
 Vào lúc bấy giờ, là người phụ việc tu viện ở thành phố Bandhumatī, tôi đã nhìn thấy đức Phật, bậc Vô Nhiễm đang di chuyển ở trên không trung.
 
@@ -34,9 +34,3 @@ Phần Tóm Lược:
 Bông hoa kaṇikāra, một bình bát, vị có trái cây kāsumāri, trái cây avaṭalà tương tợ, và trái cây vāra, trái chanh, trái cây ajeli, luôn cả trái cây amoda, trái cây thốt nốt, và trái dừa là tương tợ. Các câu kệ đã được tính đếm ở đây là một trăm câu kệ, không có hơn kém.
 
 Phẩm Kaṇikāra là phẩm thứ năm mươi mốt.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

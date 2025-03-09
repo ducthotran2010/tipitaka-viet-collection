@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XL. PHẨM PIḶINDIVACCHA
 
-# 396\. Ký Sự về Trưởng Lão Bakkula
+# 396. Ký Sự về Trưởng Lão Bakkula
 
 Ở không xa núi Hi-mã-lạp có ngọn núi tên là Sobhita. Khu ẩn cư của tôi đã được xây dựng khéo léo, đã được tạo lập bởi những người học trò của tôi.
 
@@ -75,9 +75,3 @@ Quả vậy, tôi đã thành công mỹ mãn, đã thành tựu tam minh, đã 
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Bakkula đã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

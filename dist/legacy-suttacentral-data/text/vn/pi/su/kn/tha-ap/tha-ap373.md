@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 XXXVIII. PHẨM BODHIVANDAKA
 
-# 371\. Ký Sự về Trưởng Lão Bodhivandaka
+# 371. Ký Sự về Trưởng Lão Bodhivandaka
 
 Sau khi nhìn thấy cây pāṭalī, một loài thảo mộc mọc ở trên trái đất, được xanh tươi, tôi đã đắp y một bên vai, chắp tay lên, và đã đảnh lễ cây pāṭalī.
 
@@ -21,9 +21,3 @@ Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã đư�
 Đại đức trưởng lão Bodhivandakađã nói lên những lời kệ này như thế ấy.
 
 Ký sự về trưởng lão Bodhivandaka là phần thứ nhất.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

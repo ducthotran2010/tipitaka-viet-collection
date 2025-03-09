@@ -6,7 +6,7 @@ PHẦN THỨ NHẤT
 
 IX. PHẨM TIMIRAPUPPHIYA
 
-# 84\. Ký Sự về Trưởng Lão Adhopupphiya
+# 84. Ký Sự về Trưởng Lão Adhopupphiya
 
 Vị tỳ khưu tên Abhibhū ấy có đại thần lực, có tam minh, là vị Thinh Văn hàng đầu của (đức Thế Tôn) Sikhī. Vị ấy đã đi đến núi Hi-mã-lạp.
 
@@ -25,9 +25,3 @@ Con trăn có bộ dạng ghê rợn có sức mạnh khủng khiếp đã hành
 Bốn (tuệ) phân tích, tám giải thoát, và sáu thắng trí đã được (tôi) đắc chứng; tôi đã thực hành lời dạy của đức Phật.
 
 Đại đức trưởng lão Adhopupphiyađã nói lên những lời kệ này như thế ấy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

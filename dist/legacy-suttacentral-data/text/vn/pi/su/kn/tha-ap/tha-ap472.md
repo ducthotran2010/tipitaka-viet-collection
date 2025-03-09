@@ -6,7 +6,7 @@ TẬP HAI
 
 XLVII. PHẨM SĀLAKUSUMIYA:
 
-# 470\. Ký Sự về Trưởng Lão Nimittavyākaraṇiya
+# 470. Ký Sự về Trưởng Lão Nimittavyākaraṇiya
 
 Khi ấy, tôi đã đi sâu vào núi Hi-mã-lạp rồi đọc tụng chú thuật. Năm mươi bốn ngàn người đệ tử đã phục vụ tôi.
 
@@ -44,9 +44,3 @@ Phần Tóm Lược:
 Vị trưởng lão liên quan đến bông hoa sālā, luôn cả vị cúng dường (giàn hỏa thiêu), và vị làm nguội (giàn hỏa thiêu), vị dâng cúng cây cầu, vị có cây quạt, (vị dâng lên) trái avaṇṭa, vị dâng lên trái mít, (vị dâng lên) trái sung, vị ca ngợi, và vị Bà-la-môn liên quan việc giải thích. Có bảy mươi hai câu kệ đã được tính đếm bởi các bậc trí.
 
 Phẩm Sālakusumiya là phẩm thứ bốn mươi bảy.
-
-Translated by Bhikkhu Indacanda, 2008. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.
