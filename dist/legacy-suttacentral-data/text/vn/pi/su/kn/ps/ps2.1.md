@@ -8,7 +8,7 @@ Kính lễ đức Thế Tôn, bậc A-la-hán, đấng Chánh Biến Tri!
 
 Tôi đã được nghe như vầy: Một thời, đại đức Ānanda ngụ tại Kosambī, tu viện Ghosita. Chính ở tại nơi ấy, đại đức Ānanda đã bảo các vị tỳ khưu rằng: “Này các đại đức tỳ khưu.” “Thưa đại đức.” Các vị tỳ khưu ấy đã đáp lại đại đức Ānanda. Đại đức Ānanda đã nói điều này:
 
-\- Này các đại đức, bất cứ vị tỳ khưu hoặc tỳ khưu ni nào tuyên bố về phẩm vị A-la-hán ở sự hiện diện của tôi, tất cả đều do bốn đạo lộ hoặc do một đạo lộ nào đó của bốn đạo lộ này. Do bốn (đạo lộ) gì?
+- Này các đại đức, bất cứ vị tỳ khưu hoặc tỳ khưu ni nào tuyên bố về phẩm vị A-la-hán ở sự hiện diện của tôi, tất cả đều do bốn đạo lộ hoặc do một đạo lộ nào đó của bốn đạo lộ này. Do bốn (đạo lộ) gì?
 
 Này các đại đức, ở đây vị tỳ khưu tu tập minh sát có chỉ tịnh đi trước. Trong khi vị ấy tu tập minh sát có chỉ tịnh đi trước, đạo lộ được hình thành (cho vị ấy). Vị ấy rèn luyện, tu tập, làm cho sung mãn đạo lộ ấy. Trong khi vị ấy rèn luyện, tu tập, làm cho sung mãn đạo lộ ấy, các sự ràng buộc được dứt bỏ, các ngủ ngầm được chấm dứt (đối với vị ấy).
 
@@ -147,9 +147,3 @@ _không tản, tâm vô nhiễm tu tâm không đình chỉ_.
 _thâu hẹp và khuấy động vì tản mạn của tâm_.
 
 Phần Giảng về sự Kết Hợp Chung được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

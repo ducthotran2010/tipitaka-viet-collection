@@ -6,7 +6,7 @@ C. PHẨM TUỆ
 
 Tôi đã được nghe như vầy: Một thời đức Thế Tôn ngự tại tu viện của ông Anāthapiṇḍika, trong khu rừng (của thái tử) Jeta, ở thành Sāvatthī. Chính ở tại nơi ấy, đức Thế Tôn đã bảo các vị tỳ khưu rằng: “Này các tỳ khưu.” “Thưa ngài,” các vị tỳ khưu ấy đã đáp lại đức Thế Tôn. Đức Thế Tôn đã nói điều này:
 
-\- Này các tỳ khưu, quả thật vị tỳ khưu ấy, trong lúc đang xem xét bất cứ hành nào là thường, sẽ có được sự nhẫn nại phù hợp; sự kiện này không được biết đến. Không có được sự nhẫn nại phù hợp, (vị ấy) sẽ đạt đến sự xác định về tính chất đúng đắn; sự kiện này không được biết đến. Không đạt đến sự xác định về tính chất đúng đắn, (vị ấy) sẽ tác chứng Quả Nhập Lưu, hoặc Quả Nhất Lai, hoặc Quả Bất Lai, hoặc Quả A-la-hán; sự kiện này không được biết đến.
+- Này các tỳ khưu, quả thật vị tỳ khưu ấy, trong lúc đang xem xét bất cứ hành nào là thường, sẽ có được sự nhẫn nại phù hợp; sự kiện này không được biết đến. Không có được sự nhẫn nại phù hợp, (vị ấy) sẽ đạt đến sự xác định về tính chất đúng đắn; sự kiện này không được biết đến. Không đạt đến sự xác định về tính chất đúng đắn, (vị ấy) sẽ tác chứng Quả Nhập Lưu, hoặc Quả Nhất Lai, hoặc Quả Bất Lai, hoặc Quả A-la-hán; sự kiện này không được biết đến.
 
 Này các tỳ khưu, quả thật vị tỳ khưu ấy, trong lúc đang xem xét tất cả các hành là vô thường, sẽ có được sự nhẫn nại phù hợp; sự kiện này được biết đến. Có được sự nhẫn nại phù hợp, (vị ấy) sẽ đạt đến sự xác định về tính chất đúng đắn; sự kiện này được biết đến. Đạt đến sự xác định về tính chất đúng đắn, (vị ấy) sẽ tác chứng Quả Nhập Lưu, hoặc Quả Nhất Lai, hoặc Quả Bất Lai, hoặc Quả A-la-hán; sự kiện này được biết đến.
 
@@ -197,9 +197,3 @@ Trong khi nhận thấy năm uẩn là pháp phiền não, (vị ấy) thành đ
 Hai lăm quán xét về vô ngã, năm mươi quán xét về vô thường, và có đến một trăm hai lăm nói về các khổ não.
 
 Phần Giảng về Minh Sát được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

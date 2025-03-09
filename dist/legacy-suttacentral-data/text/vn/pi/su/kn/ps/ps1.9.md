@@ -29,9 +29,3 @@ Vào sát-na Đạo A-la-hán, chánh kiến theo ý nghĩa nhận thức: …(n
 Theo ý nghĩa pháp chủ đạo, quyền là Đạo; theo ý nghĩa không dao động, lực là Đạo; theo ý nghĩa dẫn xuất (ra khỏi luân hồi), giác chi là Đạo; theo ý nghĩa chủng tử, chi phần của Đạo là Đạo; theo ý nghĩa thiết lập, sự thiết lập niệm là Đạo; theo ý nghĩa nỗ lực, chánh cần là Đạo; theo ý nghĩa thành tựu, nền tảng của thần thông là Đạo; theo ý nghĩa của thực thể, các chân lý là Đạo; theo ý nghĩa không tàn mạn, chỉ tịnh là Đạo; theo ý nghĩa quán xét, minh sát là Đạo; theo ý nghĩa nhất vị, chỉ tịnh và minh sát là Đạo; theo ý nghĩa không vượt trội, sự kết hợp chung là Đạo; theo ý nghĩa thu thúc, giới thanh tịnh là Đạo; theo ý nghĩa không tản mạn, tâm thanh tịnh là Đạo; theo ý nghĩa nhận thức, kiến thanh tịnh là Đạo; theo ý nghĩa thấu triệt, minh là Đạo; theo ý nghĩa buông bỏ, sự giải thoát là Đạo; theo ý nghĩa đoạn trừ, trí về sự đoạn tận là Đạo; ước muốn theo ý nghĩa nguồn cội là Đạo; tác ý theo ý nghĩa nguồn sanh khởi là Đạo; xúc theo ý nghĩa liên kết là Đạo; thọ theo ý nghĩa hội tụ là Đạo; định theo ý nghĩa dẫn đầu là Đạo; niệm theo ý nghĩa là pháp chủ đạo là Đạo; tuệ theo ý nghĩa cao thượng trong các pháp thiện là Đạo; sự giải thoát theo ý nghĩa cốt lỏi là Đạo; Niết Bàn liên quan đến bất tử theo ý nghĩa kết thúc là Đạo.
 
 Phần giảng về Đạo được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

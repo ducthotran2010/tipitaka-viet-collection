@@ -4,7 +4,7 @@ A. PHẨM CHÍNH YẾU
 
 # 1.5. GIẢNG VỀ GIẢI THOÁT
 
-\[Duyên khởi ở Sāvatthī\]
+[Duyên khởi ở Sāvatthī]
 
 Này các tỳ khưu, đây là ba giải thoát. Ba là gì? Không tánh giải thoát, vô tướng giải thoát, vô nguyện giải thoát. Này các tỳ khưu, đây là ba giải thoát.
 
@@ -423,9 +423,3 @@ Sự tịnh lặng của giải thoát là gì? Sự thành tựu hoặc nghiệ
 Tụng phẩm thứ ba.
 
 Phần giảng về Giải Thoát được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,9 +6,9 @@ B. PHẨM KẾT HỢP CHUNG
 
 Tôi đã được nghe như vầy: Một thời, đức Thế Tôn ngự tại Sāvatthī, Jetavana, tu viện của ông Anāthapiṇḍika. Khi ấy, đại đức Ānanda đã đi đến gặp đức Thế Tôn, sau khi đến đã đảnh lễ đức Thế Tôn rồi ngồi xuống ở một bên. Khi đã ngồi xuống một bên, đại đức Ānanda đã bạch với đức Thế Tôn điều này:
 
-\- Bạch ngài, được nói rằng: ‘Thế giới là _không_, thế giới là _không_.’ Bạch ngài, cho đến như thế nào được nói rằng: ‘Thế giới là _không_’?
+- Bạch ngài, được nói rằng: ‘Thế giới là _không_, thế giới là _không_.’ Bạch ngài, cho đến như thế nào được nói rằng: ‘Thế giới là _không_’?
 
-\- Này Ānanda, bởi vì là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã, do đó được nói rằng: ‘Thế giới là _không_.’ Và này Ānanda, cái gì là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã? Này Ānanda, mắt là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Các sắc là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Nhãn thức là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Nhãn xúc là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Cảm thọ nào được sanh lên do duyên nhãn xúc dầu là lạc, hoặc là khổ, hoặc là không khổ không lạc, cảm thọ ấy cũng là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã.
+- Này Ānanda, bởi vì là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã, do đó được nói rằng: ‘Thế giới là _không_.’ Và này Ānanda, cái gì là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã? Này Ānanda, mắt là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Các sắc là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Nhãn thức là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Nhãn xúc là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Cảm thọ nào được sanh lên do duyên nhãn xúc dầu là lạc, hoặc là khổ, hoặc là không khổ không lạc, cảm thọ ấy cũng là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã.
 
 Tai là _không_ … Các thinh là _không_ … Mũi là _không_ … Các khí là _không_ … Lưỡi là _không_ … Các vị là _không_ … Thân là _không_ … Các xúc là _không_ … Ý là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Các pháp là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Ý thức là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Ý xúc là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Cảm thọ nào được sanh lên do duyên ý xúc dầu là lạc, hoặc là khổ, hoặc là không khổ không lạc, cảm thọ ấy cũng là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã. Này Ānanda, bởi vì là _không_ đối với tự ngã hoặc đối với vật thuộc về tự ngã, do đó được nói rằng: ‘Thế giới là _không_.’
 
@@ -85,9 +85,3 @@ tâm từ, ly tham ái là phần giảng thứ năm,
 tối thượng ở thế gian, lực, và không (là mười)
 
 Phần quý báu của các Bộ Kinh đã được thành lập này là phẩm thứ nhì, cao quý, tuyệt vời, không gì sánh được.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

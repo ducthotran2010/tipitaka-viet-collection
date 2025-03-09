@@ -50,7 +50,7 @@ Có thể ba chân lý được tổng hợp với một chân lý, một chân 
 
 **Có thể:** Có thể là (có ý nghĩa) thế nào? (Nếu) chân lý về Khổ là bất thiện và chân lý về nhân sanh (Khổ) là bất thiện; như vậy theo ý nghĩa của bất thiện, hai chân lý được tổng hợp với một chân lý, một chân lý được tổng hợp với hai chân lý. (Nếu) chân lý về Khổ là thiện và chân lý về Đạo là thiện; như vậy theo ý nghĩa của thiện, hai chân lý được tổng hợp với một chân lý, một chân lý được tổng hợp với hai chân lý. (Nếu) chân lý về Khổ là vô ký và chân lý về sự diệt tận (Khổ) là vô ký; như vậy theo ý nghĩa của vô ký, hai chân lý được tổng hợp với một chân lý, một chân lý được tổng hợp với hai chân lý. Như vậy, có thể ba chân lý được tổng hợp với một chân lý, một chân lý được tổng hợp với ba chân lý về phương diện nền tảng theo thứ lớp.
 
-\[Duyên khởi ở Sāvatthī\]
+[Duyên khởi ở Sāvatthī]
 
 Này các tỳ khưu, trước lúc Toàn Giác, khi hãy còn là Bồ Tát chưa thành Chánh Đẳng Giác, điều này đã khởi đến ta: Đối với sắc, điều gì là khoái lạc, điều gì là tai hại, điều gì là xuất ly? Đối với thọ, điều gì là khoái lạc, điều gì là tai hại, điều gì là xuất ly? Đối với tưởng, điều gì là khoái lạc, điều gì là tai hại, điều gì là xuất ly? Đối với các hành, điều gì là khoái lạc, điều gì là tai hại, điều gì là xuất ly? Đối với thức, điều gì là khoái lạc, điều gì là tai hại, điều gì là xuất ly?
 
@@ -93,9 +93,3 @@ Lão tử là chân lý về Khổ, sanh là chân lý về nhân sanh, sự xu�
 Lão tử là chân lý về Khổ, sanh có thể là chân lý về Khổ, có thể là chân lý về nhân sanh, sự xuất ly cả hai là chân lý về sự diệt tận, nhận biết về sự diệt tận là chân lý của Đạo. Sanh là chân lý về Khổ, hữu có thể là chân lý về Khổ, có thể là chân lý về nhân sanh, sự xuất ly cả hai là chân lý về sự diệt tận, nhận biết về sự diệt tận là chân lý của Đạo …(như trên)… Các hành là chân lý về Khổ, vô minh có thể là chân lý về Khổ, có thể là chân lý về nhân sanh, sự xuất ly cả hai là chân lý về sự diệt tận, nhận biết về sự diệt tận là chân lý của Đạo.
 
 Phần Giảng về Chân Lý được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

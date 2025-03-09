@@ -15,9 +15,3 @@ Có nghiệp sai trái (qk) … Có nghiệp không sai trái (qk) … Có nghi�
 quả khổ (vl), có nghiệp kết quả khổ (qk) không có kết quả của nghiệp kết quả khổ (vl). Có nghiệp kết quả khổ (ht) có kết quả của nghiệp kết quả khổ (ht), có nghiệp kết quả khổ (ht) không có kết quả của nghiệp kết quả khổ (ht), có nghiệp kết quả khổ (ht) có kết quả của nghiệp kết quả khổ (vl), có nghiệp kết quả khổ (ht) không có kết quả của nghiệp kết quả khổ (vl). Có nghiệp kết quả khổ (vl) có kết quả của nghiệp kết quả khổ (vl), có nghiệp kết quả khổ (vl) không có kết quả của nghiệp kết quả khổ (vl).
 
 Phần Giảng về Nghiệp được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

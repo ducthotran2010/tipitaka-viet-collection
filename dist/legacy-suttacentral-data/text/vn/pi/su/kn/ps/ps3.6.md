@@ -33,9 +33,3 @@ Và này các tỳ khưu, phép kỳ diệu về giáo hóa là gì? Này các t
 ‘Thoát ly được thành tựu’ là thần thông. ‘Phản kháng lại ước muốn trong các dục’ là phép kỳ diệu. Thành tựu và phép kỳ diệu được gọi là phép kỳ diệu về thần thông. ‘Không sân độc được thành tựu’ là thần thông. ‘Phản kháng lại sân độc’ là phép kỳ diệu. Thành tựu và phép kỳ diệu được gọi là phép kỳ diệu về thần thông. ‘Sự nghĩ tưởng về ánh sáng được thành tựu’ là thần thông. ‘Phản kháng lại sự lờ đờ buồn ngủ’ là phép kỳ diệu. Thành tựu và phép kỳ diệu được gọi là phép kỳ diệu về thần thông. …(như trên)… ‘Đạo A-la-hán được thành tựu’ là thần thông. ‘Phản kháng lại toàn bộ phiền não’ là phép kỳ diệu. Thành tựu và phép kỳ diệu được gọi là phép kỳ diệu về thần thông.
 
 Phần Giảng về Phép Kỳ Diệu được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

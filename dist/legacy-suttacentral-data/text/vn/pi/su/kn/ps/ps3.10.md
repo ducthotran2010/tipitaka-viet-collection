@@ -48,9 +48,3 @@ phép kỳ diệu, đứng đầu, thiết lập niệm, minh sát,
 tiêu đề nữa là mười thuộc phẩm Tuệ, thứ ba.
 
 Tác Phẩm Phân Tích Đạo được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

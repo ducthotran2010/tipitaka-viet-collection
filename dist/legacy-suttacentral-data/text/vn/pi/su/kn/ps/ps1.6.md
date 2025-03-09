@@ -53,9 +53,3 @@ Vào sát-na tục sinh, 26 pháp này là các đồng sanh duyên, là các h�
 Đối với các gia tộc giàu sang dòng Sát-đế-lỵ, đối với các gia tộc giàu sang dòng Bà-la-môn, đối với các gia tộc giàu sang của gia chủ, đối với chư thiên dục giới, khi không liên kết với trí thì sự sanh lên là do duyên của sáu nhân nào? Vào sát-na đổng lực của nghiệp thiện, hai nhân thiện là các đồng sanh duyên của sở hữu tư đã được sanh lên vào sát-na ấy; vì thế được gọi là: “_Do duyên các căn thiện, các hành (sanh khởi)_.” …(nt)… Đối với các gia tộc giàu sang dòng Sát-đế-lỵ, đối với các gia tộc giàu sang dòng Bà-la-môn, đối với các gia tộc giàu sang của gia chủ, đối với chư thiên dục giới, khi không liên kết với trí thì sự sanh lên là do duyên của sáu nhân này.
 
 Phần giảng về Cõi Tái Sanh được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -4,7 +4,7 @@ A. PHẨM CHÍNH YẾU
 
 # 1.1. GIẢNG VỀ TRÍ
 
-## 1\. Trí về yếu tố tạo thành điều đã được nghe
+## 1. Trí về yếu tố tạo thành điều đã được nghe
 
 ### (1)
 
@@ -202,7 +202,7 @@ Dứt tụng phẩm thứ nhất.
 
 Ý nghĩa đưa tâm (đến cảnh) của tầm cần được biết rõ, ý nghĩa khắn khít (vào cảnh) của tứ cần được biết rõ, ý nghĩa lan tỏa của hỷ cần được biết rõ, ý nghĩa tràn ngập của lạc cần được biết rõ, ý nghĩa chuyên nhất của tâm (định) cần được biết rõ.
 
-Ý nghĩa của sự hướng tâm cần được biết rõ, ý nghĩa của sự nhận biết (của thức) cần được biết rõ, ý nghĩa của sự nhận biết (của tuệ) cần được biết rõ, ý nghĩa của sự nhận biết (của tưởng) cần được biết rõ, \[ý nghĩa của nhất cảnh cần được biết rõ,\] ý nghĩa của sự độc nhất cần được biết rõ, ý nghĩa đã được biết của sự biết rõ cần được biết rõ, ý nghĩa quyết đoán của sự biết toàn diện cần được biết rõ, ý nghĩa buông bỏ của sự dứt bỏ cần được biết rõ, ý nghĩa nhất vị của sự tu tập cần được biết rõ, ý nghĩa chạm đến của sự tác chứng cần được biết rõ, ý nghĩa tập hợp của các uẩn cần được biết rõ, ý nghĩa bản thể của các giới cần được biết rõ, ý nghĩa vị thế của các xứ cần được biết rõ, ý nghĩa tạo tác của các pháp hữu vi cần được biết rõ, ý nghĩa không tạo tác của Niết Bàn cần được biết rõ.
+Ý nghĩa của sự hướng tâm cần được biết rõ, ý nghĩa của sự nhận biết (của thức) cần được biết rõ, ý nghĩa của sự nhận biết (của tuệ) cần được biết rõ, ý nghĩa của sự nhận biết (của tưởng) cần được biết rõ, [ý nghĩa của nhất cảnh cần được biết rõ,] ý nghĩa của sự độc nhất cần được biết rõ, ý nghĩa đã được biết của sự biết rõ cần được biết rõ, ý nghĩa quyết đoán của sự biết toàn diện cần được biết rõ, ý nghĩa buông bỏ của sự dứt bỏ cần được biết rõ, ý nghĩa nhất vị của sự tu tập cần được biết rõ, ý nghĩa chạm đến của sự tác chứng cần được biết rõ, ý nghĩa tập hợp của các uẩn cần được biết rõ, ý nghĩa bản thể của các giới cần được biết rõ, ý nghĩa vị thế của các xứ cần được biết rõ, ý nghĩa tạo tác của các pháp hữu vi cần được biết rõ, ý nghĩa không tạo tác của Niết Bàn cần được biết rõ.
 
 Ý nghĩa của tâm cần được biết rõ, ý nghĩa không gián đoạn của tâm cần được biết rõ, ý nghĩa thoát ra của tâm …, ý nghĩa ly khai của tâm …, ý nghĩa chủng tử của tâm …, ý nghĩa về duyên của tâm …, ý nghĩa vật nương của tâm …, ý nghĩa lãnh vực của tâm …, ý nghĩa cảnh (đối tượng) của tâm …, ý nghĩa hành xứ của tâm …, ý nghĩa hành vi của tâm …, ý nghĩa (cảnh) đã đạt đến của tâm …, ý nghĩa quả quyết của tâm …, ý nghĩa dẫn xuất (ra khỏi cảnh) của tâm cần được biết rõ, ý nghĩa xuất ly của tâm cần được biết rõ.
 
@@ -658,7 +658,7 @@ Phần giải thích về ‘Bốn Chân Lý.’
 
 **‘Trí về yếu tố tạo thành điều đã được nghe.’**
 
-## 2\. Trí về yếu tố tạo thành giới
+## 2. Trí về yếu tố tạo thành giới
 
 Sau khi đã nghe, tuệ về sự thu thúc là trí về yếu tố tạo thành giới là (có ý nghĩa) thế nào?
 
@@ -748,7 +748,7 @@ Trong khi hướng tâm đến ba sự học tập này, vị ấy học tập. 
 
 Phần giải thích ‘Trí về yếu tố tạo thành giới.’
 
-## 3\. Trí về yếu tố tạo thành việc tu tập định
+## 3. Trí về yếu tố tạo thành việc tu tập định
 
 Sau khi đã thu thúc, tuệ về sự tập trung là trí về yếu tố tạo thành việc tu tập định là (có ý nghĩa) thế nào?
 
@@ -780,7 +780,7 @@ Hơn nữa, còn có hai mươi lăm ý nghĩa về định của định: đị
 
 Phần giải thích ‘Trí về yếu tố tạo thành việc tu tập định.’
 
-## 4\. Trí về sự hiện diện của các Pháp
+## 4. Trí về sự hiện diện của các Pháp
 
 Tuệ về việc nắm giữ duyên là trí về sự hiện diện của các pháp là (có ý nghĩa) thế nào?
 
@@ -816,7 +816,7 @@ Như thế (hành giả) biết, thấy, nhận biết, thấu triệt bốn ph�
 
 Phần giải thích ‘Trí về sự hiện diện của các pháp.’
 
-## 5\. Trí về sự thấu hiểu
+## 5. Trí về sự thấu hiểu
 
 Sau khi đã tổng hợp các pháp trong (ba thời) quá khứ hiện tại vị lai, tuệ về sự xác định là trí về sự thấu hiểu là (có ý nghĩa) thế nào?
 
@@ -840,7 +840,7 @@ Sau khi đã tổng hợp rằng: ‘Ngay cả trong thời quá khứ xa xăm, 
 
 Phần giải thích ‘Trí về sự thấu hiểu’ là phần thứ năm.
 
-## 6\. Trí về sự sanh diệt
+## 6. Trí về sự sanh diệt
 
 Tuệ về việc quán xét sự chuyển biến của các pháp đang hiện hữu là trí quán xét sự sanh diệt là (có ý nghĩa) thế nào?
 
@@ -882,7 +882,7 @@ Sắc uẩn có sự sanh khởi là vật thực. Ba uẩn thọ, tưởng, hà
 
 Phần giải thích ‘Trí về sự sanh diệt.’
 
-## 7\. Trí quán xét về sự tan rã
+## 7. Trí quán xét về sự tan rã
 
 Sau khi đã phân biệt rõ đối tượng, tuệ về việc quán xét sự tan rã là trí về minh sát là (có ý nghĩa) thế nào?
 
@@ -898,19 +898,19 @@ Với thọ là đối tượng, …(như trên)… Với tưởng là đối t�
 
 Trong khi quán xét là vô thường, (hành giả) dứt bỏ thường tưởng; trong khi quán xét là khổ não, (hành giả) dứt bỏ lạc tưởng; trong khi quán xét là vô ngã, (hành giả) dứt bỏ ngã tưởng; trong khi nhàm chán, (hành giả) dứt bỏ sự vui thích; trong khi ly tham ái, (hành giả) dứt bỏ tham ái; trong khi làm cho diệt tận, (hành giả) dứt bỏ sự sanh khởi; trong khi từ bỏ, (hành giả) dứt bỏ sự nắm giữ.
 
-1\. _Do tiếp cận sự việc_, → _và ly khai bằng tưởng,_
+1. _Do tiếp cận sự việc_, → _và ly khai bằng tưởng,_
 
 _với lực do hướng tâm, phân rõ là minh sát_.
 
-2\. _Với sự tiếp nối cảnh, xác định chung cả hai,_
+2. _Với sự tiếp nối cảnh, xác định chung cả hai,_
 
 _quyết đoán về diệt tận, minh sát tướng hoại diệt_.
 
-3\. _Do phân biệt rõ cảnh, quán xét sự tan rã,_
+3. _Do phân biệt rõ cảnh, quán xét sự tan rã,_
 
 _và thiết lập không tánh, thắng tuệ là minh sát_.
 
-4\. _Thiện xảo ba quán xét_, _và về bốn minh sát,_
+4. _Thiện xảo ba quán xét_, _và về bốn minh sát,_
 
 _thiện xảo ba thiết lập_, _không động vì tà kiến_.
 
@@ -918,7 +918,7 @@ _thiện xảo ba thiết lập_, _không động vì tà kiến_.
 
 Phần giải thích ‘Trí quán xét về sự tan rã.’
 
-## 8\. Trí về điều tai hại
+## 8. Trí về điều tai hại
 
 Tuệ về sự thiết lập của kinh hãi là trí về điều tai hại là (có ý nghĩa) thế nào?
 
@@ -946,15 +946,15 @@ Trí về trạng thái bình yên rằng: ‘Sự không tái sanh là Niết B
 
 Trí về trạng thái bình yên rằng: ‘Sự tái sanh là pháp hữu vi, sự không tái sanh là Niết Bàn.’ Trí về trạng thái bình yên rằng: ‘Sự vận hành là pháp hữu vi, sự không vận hành là Niết Bàn.’ …(như trên)… Trí về trạng thái bình yên rằng: ‘Sự thất vọng là pháp hữu vi, sự không thất vọng là Niết Bàn.’
 
-1\. _Vị nhận thức tái sanh_, → _vận hành, tướng, tích nghiệp,_
+1. _Vị nhận thức tái sanh_, → _vận hành, tướng, tích nghiệp,_
 
 _mầm tái sanh là ‘khổ,’ trí này là tai hại_.
 
-2\. _Không sanh, không vận hành, không tướng, không tích nghiệp,_
+2. _Không sanh, không vận hành, không tướng, không tích nghiệp,_
 
 _không mầm sanh là ‘lạc,’ trí này là bình yên_.
 
-3\. _Đây trí về tai hại, sanh lên ở năm chốn_,\*
+3. _Đây trí về tai hại, sanh lên ở năm chốn_,\*
 
 _bình yên về năm nơi_,\* _vị nhận ra mười trí_.\*
 
@@ -964,7 +964,7 @@ _Người thiện xảo hai trí_,\* _không động vì tà kiến_.
 
 Phần giải thích ‘Trí về điều tai hại.’
 
-## 9\. Trí về các trạng thái xả đối với các pháp hữu vi
+## 9. Trí về các trạng thái xả đối với các pháp hữu vi
 
 Tuệ về sự mong muốn giải thoát, về sự phân biệt rõ, và về sự bình thản là trí về các trạng thái xả đối với các pháp hữu vi là (có ý nghĩa) thế nào?
 
@@ -1016,17 +1016,17 @@ Mười trạng thái xả đối với các pháp hữu vi sanh lên do năng l
 
 Có bao nhiêu trạng thái xả đối với các pháp hữu vi là thiện? Có bao nhiêu là bất thiện? Có bao nhiêu là vô ký? Có mười lăm trạng thái xả đối với các pháp hữu vi là thiện. Có ba trạng thái xả đối với các pháp hữu vi là vô ký. Không có trạng thái xả đối với các pháp hữu vi là bất thiện.
 
-1\. _Tuệ phân biệt, bình thản_, → _tám hành xứ của tâm:_
+1. _Tuệ phân biệt, bình thản_, → _tám hành xứ của tâm:_
 
 hai thuộc về phàm nhân, hữu học ba hành xứ,
 
 _vị lìa ái có ba, tâm ly khai với chúng_.
 
-2\. _Tám do duyên của định_, → _mười hành xứ của trí,_
+2. _Tám do duyên của định_, → _mười hành xứ của trí,_
 
 _mười tám xả các hành là duyên ba giải thoát_.\*
 
-3\. _Mười tám biểu hiện này, vị có tuệ hiểu rõ,_
+3. _Mười tám biểu hiện này, vị có tuệ hiểu rõ,_
 
 _thiện xảo trong xả hành, không động vì tà kiến_.
 
@@ -1034,7 +1034,7 @@ _thiện xảo trong xả hành, không động vì tà kiến_.
 
 **‘Trí về các trạng thái xả đối với các pháp hữu vi.’**
 
-## 10\. Trí chuyển tộc
+## 10. Trí chuyển tộc
 
 Tuệ về sự thoát ra và ly khai ngoại phần là trí chuyển tộc là (có ý nghĩa) thế nào?
 
@@ -1064,21 +1064,21 @@ Mười sự chuyển tộc được sanh lên do năng lực của minh sát l�
 
 Có bao nhiêu sự chuyển tộc là thiện? Có bao nhiêu là bất thiện? Có bao nhiêu là vô ký? Có mười lăm sự chuyển tộc là thiện. Có ba sự chuyển tộc là vô ký. Không có sự chuyển tộc là bất thiện.
 
-1\. _Vật chất, không vật chất_, → _có nguyện và vô nguyện,_
+1. _Vật chất, không vật chất_, → _có nguyện và vô nguyện,_
 
 _ràng buộc, không ràng buộc, thoát được và không thoát_.
 
-2\. _Tám do duyên của định, mười hành xứ của trí,_
+2. _Tám do duyên của định, mười hành xứ của trí,_
 
 _mười tám sự chuyển tộc là duyên ba giải thoát_.
 
-3\. _Mười tám biểu hiện này, vị có tuệ hiểu rõ,_
+3. _Mười tám biểu hiện này, vị có tuệ hiểu rõ,_
 
 _khéo ly khai, thoát khỏi, không động vì tà kiến_.
 
 Điều ấy, theo ý nghĩa đã được biết (thì gọi) là trí, theo ý nghĩa nhận biết (thì gọi) là tuệ. Vì thế, được nói rằng: “_Tuệ về sự thoát ra và ly khai ngoại phần là trí chuyển tộc_.”
 
-## 11\. Trí về Đạo
+## 11. Trí về Đạo
 
 Tuệ về sự thoát ra và ly khai cả hai (nội ngoại phần) là trí về Đạo là (có ý nghĩa) thế nào?
 
@@ -1104,19 +1104,19 @@ Vào sát-na Đạo Bất Lai: Chánh kiến, theo ý nghĩa nhận thức, …(
 
 Vào sát-na Đạo A-la-hán: Chánh kiến, theo ý nghĩa nhận thức, …(như trên)… Chánh định, theo ý nghĩa không tản mạn, thoát ra khỏi ái sắc, ái vô sắc, ngã mạn, phóng dật, vô minh, thoát ra khỏi ngã mạn ngủ ngầm, ái hữu ngủ ngầm, vô minh ngủ ngầm, thoát ra khỏi các phiền não xu hướng theo điều ấy và (ra khỏi) các uẩn, thoát ra khỏi tất cả các hiện tướng ngoại phần; vì thế, được nói rằng: “_Tuệ về sự thoát ra và ly khai cả hai (nội ngoại phần) là trí về Đạo_.”
 
-1\. _Sanh thiêu đốt vô sanh_, → _vì thế gọi tham thiền,_
+1. _Sanh thiêu đốt vô sanh_, → _vì thế gọi tham thiền,_
 
 _thiện xảo thiền, giải thoát, không động vì tà kiến_.
 
-2\. _Như thế định rồi quán, cũng vậy quán ở định,_
+2. _Như thế định rồi quán, cũng vậy quán ở định,_
 
 _khi ấy quán và chỉ hành bình đẳng tương hợp_.
 
-3\. _Thấy ‘Các hành là khổ, diệt tận là an lạc,’_
+3. _Thấy ‘Các hành là khổ, diệt tận là an lạc,’_
 
 _tuệ thoát khỏi cả hai đạt được Đạo Bất Tử_.
 
-4\. _Vị biết hành giải thoát, rành rẽ dị và đồng,_
+4. _Vị biết hành giải thoát, rành rẽ dị và đồng,_
 
 _thiện xảo về hai trí, không động vì tà kiến_.
 
@@ -1124,7 +1124,7 @@ _thiện xảo về hai trí, không động vì tà kiến_.
 
 Phần giải thích ‘Trí về Đạo.’
 
-## 12\. Trí về Quả
+## 12. Trí về Quả
 
 Tuệ về sự tịnh lặng của việc thực hành là trí về Quả là (có ý nghĩa) thế nào?
 
@@ -1152,7 +1152,7 @@ Vào sát-na Đạo A-la-hán: Chánh kiến, theo ý nghĩa nhận thức, …(
 
 Điều ấy, theo ý nghĩa đã được biết (thì gọi) là trí, theo ý nghĩa nhận biết (thì gọi) là tuệ. Vì thế, được nói rằng: “_Tuệ về sự tịnh lặng của việc thực hành là trí về Quả_.”
 
-## 13\. Trí về Giải Thoát
+## 13. Trí về Giải Thoát
 
 Tuệ về việc quán xét phiền não đã được cắt lìa là trí về giải thoát là (có ý nghĩa) thế nào?
 
@@ -1168,7 +1168,7 @@ Nhờ vào Đạo A-la-hán, ái sắc, ái vô sắc, ngã mạn, phóng dật,
 
 Phần giải thích ‘Trí về giải thoát.’
 
-## 14\. Trí về việc quán xét lại
+## 14. Trí về việc quán xét lại
 
 Tuệ về việc nhìn thấy các pháp đã được sanh khởi vào khi ấy là trí về việc quán xét lại là (có ý nghĩa) thế nào?
 
@@ -1194,7 +1194,7 @@ Vào sát-na Quả A-la-hán: Chánh kiến, theo ý nghĩa nhận thức, đã 
 
 Phần giải thích ‘Trí về việc quán xét lại.’
 
-## 15\. Trí về tính chất khác biệt của các vật nương
+## 15. Trí về tính chất khác biệt của các vật nương
 
 Tuệ về việc xác định nội phần là trí về tính chất khác biệt của các vật nương là (có ý nghĩa) thế nào?
 
@@ -1222,7 +1222,7 @@ Xác định ý thuộc nội phần là (có ý nghĩa) thế nào? Xác địn
 
 **‘Trí về tính chất khác biệt của các vật nương.’**
 
-## 16\. Trí về tính chất khác biệt của các hành xứ
+## 16. Trí về tính chất khác biệt của các hành xứ
 
 Tuệ về việc xác định ngoại phần là trí về tính chất khác biệt của các hành xứ là (có ý nghĩa) thế nào?
 
@@ -1250,7 +1250,7 @@ Xác định các pháp thuộc ngoại phần là (có ý nghĩa) thế nào? X
 
 **‘Trí về tính chất khác biệt của các hành xứ.’**
 
-## 17\. Trí về tính chất khác biệt của các hành vi
+## 17. Trí về tính chất khác biệt của các hành vi
 
 Tuệ về việc xác định hành vi là trí về tính chất khác biệt của các hành vi là (có ý nghĩa) thế nào?
 
@@ -1296,7 +1296,7 @@ Như thế, hành vi của thức là loại khác, hành vi của vô trí là 
 
 **‘Trí về tính chất khác biệt của các hành vi.’**
 
-## 18\. Trí về tính chất khác biệt của các lãnh vực
+## 18. Trí về tính chất khác biệt của các lãnh vực
 
 Tuệ về việc xác định bốn pháp là trí về tính chất khác biệt của các lãnh vực là (có ý nghĩa) thế nào? Có bốn lãnh vực: lãnh vực dục giới, lãnh vực sắc giới, lãnh vực vô sắc giới, lãnh vực không bị lệ thuộc.
 
@@ -1314,7 +1314,7 @@ Còn có bốn lãnh vực khác nữa là bốn sự thiết lập niệm, bố
 
 **‘Trí về tính chất khác biệt của các lãnh vực.’**
 
-## 19\. Trí về tính chất khác biệt của các pháp
+## 19. Trí về tính chất khác biệt của các pháp
 
 Tuệ về việc xác định chín pháp là trí về tính chất khác biệt của các pháp là (có ý nghĩa) thế nào?
 
@@ -1422,7 +1422,7 @@ Vô tướng là sự an trú khác, vô nguyện là sự an trú khác, không
 
 Phần giải thích ‘Ba loại Trí.’
 
-## 32\. Trí về định không gián đoạn
+## 32. Trí về định không gián đoạn
 
 Tuệ về sự đoạn trừ các lậu hoặc do tính chất hoàn toàn trong sạch của sự không tản mạn là trí về định không gián đoạn là (có ý nghĩa) thế nào?
 
@@ -1456,7 +1456,7 @@ Do Đạo A-la-hán, toàn thể hữu lậu được cạn kiệt, toàn thể 
 
 Phần giải thích ‘Trí về định không gián đoạn.’
 
-## 33\. Trí về sự an trú không uế nhiễm
+## 33. Trí về sự an trú không uế nhiễm
 
 Là pháp chủ đạo trong việc nhận thức và có sự an trú đắc chứng thanh tịnh, tuệ có khuynh hướng cao quý là trí về sự an trú không uế nhiễm là (có ý nghĩa) thế nào?
 
@@ -1474,7 +1474,7 @@ Là pháp chủ đạo trong việc nhận thức và có sự an trú đắc ch
 
 Phần giải thích ‘Trí về sự an trú không uế nhiễm.’
 
-## 34\. Trí về sự chứng đạt thiền diệt
+## 34. Trí về sự chứng đạt thiền diệt
 
 Tuệ có tính chất hội đủ với hai lực và có ưu thế với sự tịnh lặng của ba hành, với mười sáu hành vi của trí, và với chín hành vi của định là trí về sự chứng đạt thiền diệt là (có ý nghĩa) thế nào?
 
@@ -1504,7 +1504,7 @@ Lực của minh sát là gì? Quán xét về vô thường là lực của min
 
 Phần giải thích ‘Trí về sự chứng đạt thiền diệt.’
 
-## 35\. Trí về sự viên tịch Niết Bàn
+## 35. Trí về sự viên tịch Niết Bàn
 
 Tuệ về sự chấm dứt vận hành của vị có sự nhận biết rõ rệt\* là trí về sự viên tịch Niết Bàn là (có ý nghĩa) thế nào?
 
@@ -1516,7 +1516,7 @@ Vả lại, đối với vị có sự nhận biết rõ rệt đang viên tịc
 
 Phần giải thích ‘Trí về sự viên tịch Niết Bàn.’
 
-## 36\. Trí về ý nghĩa
+## 36. Trí về ý nghĩa
 
 ### của các pháp đứng đầu được tịnh lặng
 
@@ -1538,7 +1538,7 @@ Tuệ có tính chất không thiết lập ở sự đoạn trừ hoàn toàn v
 
 **‘Trí về ý nghĩa của các pháp đứng đầu được tịnh lặng.’**
 
-## 37\. Trí về ý nghĩa của việc dứt trừ
+## 37. Trí về ý nghĩa của việc dứt trừ
 
 Tuệ về sự chấm dứt các quyền lực riêng biệt có bản chất khác nhau hoặc giống nhau là trí về ý nghĩa của việc dứt trừ là (có ý nghĩa) thế nào?
 
@@ -1554,7 +1554,7 @@ Tuệ về sự chấm dứt các quyền lực riêng biệt có bản chất k
 
 Phần giải thích ‘Trí về ý nghĩa của việc dứt trừ.’
 
-## 38\. Trí về việc khởi sự tinh tấn
+## 38. Trí về việc khởi sự tinh tấn
 
 Tuệ về ý nghĩa của việc ra sức có trạng thái không thối giảm và có tính năng động là trí về việc khởi sự tinh tấn là (có ý nghĩa) thế nào?
 
@@ -1566,7 +1566,7 @@ Tuệ về ý nghĩa của việc ra sức có trạng thái không thối giả
 
 Phần giải thích ‘Trí về việc khởi sự tinh tấn.’
 
-## 39\. Trí về sự trực nhận ý nghĩa
+## 39. Trí về sự trực nhận ý nghĩa
 
 Tuệ làm sáng tỏ các pháp khác biệt là trí về sự trực nhận ý nghĩa là (có ý nghĩa) thế nào?
 
@@ -1580,7 +1580,7 @@ Các pháp khác biệt: là năm uẩn, mười hai xứ, mười tám giới, 
 
 Phần giải thích ‘Trí về sự trực nhận ý nghĩa.’
 
-## 40\. Trí về sự thanh tịnh trong việc nhận thức
+## 40. Trí về sự thanh tịnh trong việc nhận thức
 
 Tuệ về sự thấu triệt tính tổng hợp chung và về bản chất khác nhau hoặc giống nhau của tất cả các pháp là trí về sự thanh tịnh trong việc nhận thức là (có ý nghĩa) thế nào?
 
@@ -1601,7 +1601,7 @@ Tuệ về sự thấu triệt tính tổng hợp chung và về bản chất kh
 
 Phần giải thích ‘Trí về sự thanh tịnh trong việc nhận thức.’
 
-## 41\. Trí về việc chấp nhận
+## 41. Trí về việc chấp nhận
 
 Tuệ với trạng thái đã được biết là trí về việc chấp nhận là (có ý nghĩa) thế nào?
 
@@ -1611,7 +1611,7 @@ Sắc là vô thường là điều đã được biết, sắc là khổ não l
 
 Phần giải thích ‘Trí về việc chấp nhận.’
 
-## 42\. Trí về sự thâm nhập
+## 42. Trí về sự thâm nhập
 
 Tuệ với trạng thái đã được chạm đến là trí về sự thâm nhập là (có ý nghĩa) thế nào?
 
@@ -1621,7 +1621,7 @@ Tuệ với trạng thái đã được chạm đến là trí về sự thâm n
 
 Phần giải thích ‘Trí về sự thâm nhập.’
 
-## 43\. Trí về sự an trú vào các lãnh vực
+## 43. Trí về sự an trú vào các lãnh vực
 
 Tuệ về sự phối hợp lại là trí về sự an trú vào các lãnh vực là (có ý nghĩa) thế nào?
 
@@ -1687,7 +1687,7 @@ Nơi nào có sự ly khai do tưởng, nơi ấy có sự ly khai do suy nghĩ.
 
 Phần giải thích ‘Nhóm sáu của Trí về sự ly khai.’
 
-## 50\. Trí về các sự thành tựu
+## 50. Trí về các sự thành tựu
 
 Với sự xác định cả thân lẫn tâm là một, tuệ về ý nghĩa của sự thành tựu do năng lực của sự chú nguyện lạc tưởng và khinh tưởng là trí về thể loại của thần thông là (có ý nghĩa) thế nào?
 
@@ -1697,7 +1697,7 @@ Vị tỳ khưu trong Giáo Pháp này tu tập về nền tảng của thần t
 
 Phần giải thích ‘Trí về các sự thành tựu.’
 
-## 51\. Trí thanh tịnh của nhĩ giới
+## 51. Trí thanh tịnh của nhĩ giới
 
 Tuệ về sự thâm nhập các hiện tướng âm thanh có bản chất khác nhau hoặc giống nhau bằng cách triển khai tầm là trí thanh tịnh của nhĩ giới là (có ý nghĩa) thế nào?
 
@@ -1709,7 +1709,7 @@ Với tâm được phát triển, hoàn toàn trong sạch, tinh khiết như t
 
 Phần giải thích ‘Trí thanh tịnh của nhĩ giới.’
 
-## 52\. Trí biết được tâm
+## 52. Trí biết được tâm
 
 Với tính chất triển khai của ba loại tâm, tuệ về sự thâm nhập các hành vi của thức có bản chất khác nhau hoặc giống nhau bằng năng lực tự tin của các quyền là trí biết được tâm là (có ý nghĩa) thế nào?
 
@@ -1721,7 +1721,7 @@ Với tâm được phát triển, hoàn toàn trong sạch, tinh khiết như t
 
 Phần giải thích ‘Trí biết được tâm.’
 
-## 53\. Trí nhớ về các kiếp sống trước
+## 53. Trí nhớ về các kiếp sống trước
 
 Tuệ về sự thâm nhập bằng năng lực triển khai các nghiệp có bản chất khác nhau hoặc giống nhau đối với các pháp có sự vận hành do duyên là trí nhớ về các kiếp sống trước là (có ý nghĩa) thế nào?
 
@@ -1733,7 +1733,7 @@ Với tâm được phát triển, hoàn toàn trong sạch, tinh khiết như t
 
 Phần giải thích ‘Trí nhớ về các kiếp sống trước.’
 
-## 54\. Trí về thiên nhãn
+## 54. Trí về thiên nhãn
 
 Tuệ về ý nghĩa của việc nhìn thấy các hiện tướng của sắc có bản chất khác nhau hoặc giống nhau nhờ vào năng lực của ánh sáng là trí về thiên nhãn là (có ý nghĩa) thế nào?
 
@@ -1745,7 +1745,7 @@ Với tâm được phát triển, hoàn toàn trong sạch, tinh khiết như t
 
 Phần giải thích ‘Trí về thiên nhãn.’
 
-## 55\. Trí về sự đoạn tận của các lậu hoặc
+## 55. Trí về sự đoạn tận của các lậu hoặc
 
 Tuệ về chủ thể đối với ba quyền theo sáu mươi bốn biểu hiện là trí về sự đoạn tận của các lậu hoặc là (có ý nghĩa) thế nào?
 
@@ -1829,7 +1829,7 @@ Tuệ về sự công bố ý nghĩa là trí về sự phân tích ý nghĩa, t
 
 Phần giải thích ‘Trí về các sự phân tích thuần túy.’
 
-## 68\. Trí biết được khả năng của người khác
+## 68. Trí biết được khả năng của người khác
 
 Trí biết được khả năng của người khác của đức Như Lai là (có ý nghĩa) thế nào?
 
@@ -1857,7 +1857,7 @@ Như thế, tưởng đến sự kinh hãi sắc bén về thế giới này và
 
 Phần giải thích ‘Trí biết được khả năng của người khác.’
 
-## 69\. Trí về thiên kiến và xu hướng ngủ ngầm
+## 69. Trí về thiên kiến và xu hướng ngủ ngầm
 
 Trí của đức Như Lai về thiên kiến và xu hướng ngủ ngầm của chúng sanh là (có ý nghĩa) thế nào?
 
@@ -1889,7 +1889,7 @@ Chúng sanh nào có khả năng? Những chúng sanh nào không có sự chư�
 
 **‘Trí về thiên kiến và xu hướng ngủ ngầm.’**
 
-## 70\. Trí về song thông
+## 70. Trí về song thông
 
 Trí về song thông của đức Như Lai là (có ý nghĩa) thế nào?
 
@@ -1901,7 +1901,7 @@ Trí về song thông của đức Như Lai là (có ý nghĩa) thế nào?
 
 Phần giải thích ‘Trí về song thông.’
 
-## 71\. Trí thể nhập đại bi
+## 71. Trí thể nhập đại bi
 
 Trí về sự thể nhập đại bi của đức Như Lai là (có ý nghĩa) thế nào?
 
@@ -1965,7 +1965,7 @@ Trí Toàn Giác của đức Như Lai là (có ý nghĩa) thế nào?
 
 ‘Cho đến điều đã được thấy, đã được nghe, đã được cảm giác, đã được nhận thức, đã đạt đến, đã được tầm cầu, đã được đeo đuổi bởi tâm trí của thế gian tính luôn cõi chư thiên, cõi Ma Vương, cõi Phạm thiên, cho đến dòng dõi Sa-môn, Bà-la-môn, chư thiên và loài người, biết tất cả điều ấy’ là trí Toàn Giác, ‘không có sự ngăn che về điều ấy’ là trí không bị ngăn che.
 
-1\. _Không gì ở nơi đây_ → _không được thấy bởi Ngài,_
+1. _Không gì ở nơi đây_ → _không được thấy bởi Ngài,_
 
 hoặc không nhận thức được, hoặc không thể biết đến.
 
@@ -1995,9 +1995,3 @@ vì thế đức Như Lai là vị có Toàn Nhãn.
 Phần giải thích ‘Trí Toàn Giác.’
 
 Phần giảng về Trí được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

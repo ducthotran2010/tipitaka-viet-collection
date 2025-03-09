@@ -19,9 +19,3 @@ Sự nhận biết về việc đoạn trừ hoàn toàn đối với tất cả
 **Pháp đứng đầu:** Có mười ba pháp đứng đầu: Đứng đầu các sự vướng bận là ái, đứng đầu các sự trói buộc là ngã mạn, đứng đầu các pháp tiêm nhiễm là tà kiến, đứng đầu các sự tản mạn là phóng dật, đứng đầu các phiền não là vô minh, đứng đầu các sự cương quyết là tín, Đứng đầu các sự ra sức là tấn, đứng đầu các sự thiết lập là niệm, đứng đầu các sự không tản mạn là định, đứng đầu các sự nhận thức là tuệ, đứng đầu các sự vận hành là mạng quyền, đứng đầu các hành xứ là giải thoát, đứng đầu các hành là sự diệt tận.
 
 Các Pháp Đứng Đầu Được Tịnh Lặng được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

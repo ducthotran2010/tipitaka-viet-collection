@@ -119,9 +119,3 @@ Có hai hạng người đạt được phân tích, cả hai đều đã thực
 Tính luôn vị Độc Giác Phật và thế gian có cả chư thiên, đức Như Lai, bậc A-la-hán, đấng Chánh Đẳng Giác là tối thắng, đã đạt đến sự phân tích, là thiện xảo về các loại tuệ, có trí đã được phân hạng, có sự phân tích đã được đắc chứng, đã đạt đến bốn sự tự tín, là vị rành rẽ về mười lực, là bậc Nhân Ngưu, là bậc Nhân Sư …(như trên)… Ngay cả các vị thông thái dòng Sát-đế-lỵ, các vị thông thái dòng Bà-la-môn, các vị gia chủ thông thái, các vị Sa-môn thông thái, khôn ngoan, biết đến các giáo thuyết của những người khác như là (mũi tên) xuyên qua sợi tóc, nghĩ rằng họ là những người đi đến đập đổ những khuynh hướng tà kiến nhờ vào tuệ đã đạt được. Những người ấy liên tục chuẩn bị câu hỏi rồi đi đến gặp đức Như Lai và chất vấn. Những câu hỏi khó hiểu và che đậy ấy, khi được giảng giải được trả lời bởi đức Thế Tôn, trở thành những sự việc rõ ràng. Và những người ấy trở thành những người hỗ trợ đối với đức Thế Tôn. Khi ấy, đức Thế Tôn vô cùng rạng rỡ ở tại nơi ấy, tức là về ‘Tuệ.’ Ngài đã đạt đến sự phân tích và là vị tối thắng.
 
 Phần Giảng về Tuệ được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

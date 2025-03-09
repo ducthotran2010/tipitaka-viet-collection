@@ -77,9 +77,3 @@ lại ở nền tảng của thần thông, được hệ thuộc vào nền t�
 **Pháp luân:** Pháp Luân với ý nghĩa gì? ‘Chuyển vận Pháp và bánh xe’ là Pháp luân. ‘Chuyển vận bánh xe và Pháp’ là Pháp luân. ‘Chuyển vận với Pháp’ là Pháp luân. ‘Chuyển vận với hành vi của Pháp’ là Pháp luân. ‘Chuyển vận khi tồn tại ở Pháp’ là Pháp Luân. ‘Chuyển vận khi được thiết lập ở Pháp’ là Pháp Luân. …(như trên)… ‘Niết Bàn liên quan đến bất tử theo ý nghĩa kết thúc là pháp, chuyển vận pháp ấy’ là Pháp luân.
 
 Phần Giảng về Pháp Luân được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

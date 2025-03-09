@@ -83,9 +83,3 @@ Thần thông do chú thuật là gì? Sau khi nói lẩm nhẩm về chú thu�
 Thần thông với ý nghĩa thành tựu do duyên nỗ lực đúng đắn tùy theo trường hợp là (có ý nghĩa) thế nào? ‘Do thoát ly, ý nghĩa dứt bỏ ước muốn trong các dục được thành tựu’ là thần thông với ý nghĩa thành tựu do duyên ứng dụng đúng đắn tùy theo trường hợp. ‘Do không sân độc, ý nghĩa dứt bỏ sân độc được thành tựu’ là thần thông với ý nghĩa thành tựu do duyên ứng dụng đúng đắn tùy theo trường hợp. …(như trên)… ‘Do Đạo A-la-hán, ý nghĩa dứt bỏ toàn bộ phiền não được thành tựu’ là thần thông với ý nghĩa thành tựu do duyên ứng dụng đúng đắn tùy theo trường hợp. Thần thông với ý nghĩa thành tựu do duyên ứng dụng đúng đắn tùy theo trường hợp là (có ý nghĩa) như thế. Đây là mười loại thần thông.
 
 Phần Giảng về Thần Thông được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

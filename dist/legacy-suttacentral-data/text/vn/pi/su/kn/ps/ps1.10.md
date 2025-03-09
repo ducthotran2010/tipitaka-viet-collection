@@ -56,9 +56,3 @@ cõi, nghiệp, lầm lạc, Đạo,
 tịnh thủy, thảy là mười.
 
 Phẩm thứ nhất, cao quý, tuyệt vời, không gì sánh được này đã được xác lập do các vị chuyên trì tụng về các Bộ Kinh.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

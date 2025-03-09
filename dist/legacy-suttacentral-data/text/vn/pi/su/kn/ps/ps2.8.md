@@ -31,9 +31,3 @@ Các pháp tối thượng ở thế gian là gì? Bốn sự thiết lập ni�
 ‘Chúng chối từ thế gian’ là tối thượng ở thế gian. ‘Chúng không tiếp nhận lại thế gian (sau khi chối từ)’ là tối thượng ở thế gian. ‘Chúng từ bỏ thế gian’ là tối thượng ở thế gian. ‘Chúng không chấp thủ thế gian’ là tối thượng ở thế gian. ‘Chúng lìa khỏi sự quyến luyến thế gian’ là tối thượng ở thế gian. ‘Chúng không quyến luyến thế gian’ là tối thượng ở thế gian. ‘Chúng nhàm chán thế gian’ là tối thượng ở thế gian. ‘Chúng không hứng thú thế gian’ là tối thượng ở thế gian. ‘Sau khi vượt qua hẳn và chế ngự thế gian, chúng an trụ’ là tối thượng ở thế gian.
 
 Phần Giảng về Tối Thượng ở Thế Gian được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

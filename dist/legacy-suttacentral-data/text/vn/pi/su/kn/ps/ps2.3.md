@@ -4,7 +4,7 @@ B. PHẨM KẾT HỢP CHUNG
 
 # 2.3. GIẢNG VỀ GIÁC CHI
 
-\[Duyên khởi ở Sāvatthī\]
+[Duyên khởi ở Sāvatthī]
 
 Này các tỳ khưu, có bảy giác chi. Bảy là gì? Niệm giác chi, trạch pháp giác chi, cần giác chi, hỷ giác chi, tịnh giác chi, định giác chi, xả giác chi. Này các tỳ khưu, đây là bảy giác chi.
 
@@ -92,11 +92,11 @@ Với ý nghĩa của sự xả ly là các giác chi. Với ý nghĩa hành vi 
 
 ‘Được giác ngộ về sự ước muốn theo ý nghĩa nguồn cội’ là các giác chi. ‘Được giác ngộ về sự tác ý theo ý nghĩa nguồn sanh khởi’ là các giác chi. ‘Được giác ngộ về xúc theo ý nghĩa liên kết’ là các giác chi. ‘Được giác ngộ về thọ theo ý nghĩa hội tụ’ là các giác chi. ‘Được giác ngộ về định theo ý nghĩa dẫn đầu’ là các giác chi. ‘Được giác ngộ về niệm theo ý nghĩa pháp chủ đạo’ là các giác chi. ‘Được giác ngộ về tuệ theo ý nghĩa của sự cao thượng trong các pháp thiện’ là các giác chi. ‘Được giác ngộ về giải thoát theo ý nghĩa cốt lỏi’ là các giác chi. ‘Được giác ngộ về Niết Bàn liên quan đến bất tử theo ý nghĩa kết thúc’ là các giác chi.
 
-\[Duyên khởi ở Sāvatthī\]
+[Duyên khởi ở Sāvatthī]
 
 Tại nơi ấy, đại đức Sārīputta đã bảo các vị tỳ khưu rằng: “Này các đại đức tỳ khưu.” “Thưa đại đức.” Các vị tỳ khưu ấy đã trả lời đại đức Sārīputta. Đại đức Sārīputta đã nói điều này:
 
-\- Này các đại đức, đây là bảy giác chi. Bảy là gì? Niệm giác chi, trạch pháp giác chi …(như trên)… xả giác chi. Này các đại đức, đây là bảy giác chi.
+- Này các đại đức, đây là bảy giác chi. Bảy là gì? Niệm giác chi, trạch pháp giác chi …(như trên)… xả giác chi. Này các đại đức, đây là bảy giác chi.
 
 Này các đại đức, trong số bảy giác chi này, (nếu) tôi đây mong muốn an trú vào buổi sáng với bất cứ giác chi nào thì tôi an trú vào buổi sáng với chính giác chi ấy. (Nếu) tôi đây mong muốn an trú vào giữa trưa …(như trên)… vào buổi chiều với bất cứ giác chi nào thì tôi an trú vào buổi chiều với chính giác chi ấy. Này các đại đức, nếu (điều gọi là) ‘niệm giác chi’ hiện hữu ở tôi, là ‘vô lượng’ ở tôi, là ‘khởi đầu thật tĩnh lặng’ ở tôi, và tôi nhận biết về điều ấy đang tồn tại là ‘Nó tồn tại.’ Nếu điều ấy biến mất ở tôi, tôi nhận biết rằng: ‘Nó biến mất ở tôi do duyên ấy.’ Nếu (điều gọi là) ‘trạch pháp giác chi’ …(như trên)… ‘xả giác chi’ hiện hữu ở tôi, là ‘vô lượng’ ở tôi, là ‘khởi đầu thật tĩnh lặng’ ở tôi, và tôi nhận biết về điều ấy đang tồn tại là ‘Nó tồn tại.’ Nếu điều ấy biến mất ở tôi, tôi nhận biết rằng: ‘Nó biến mất ở tôi do duyên ấy.’
 
@@ -137,9 +137,3 @@ Xả giác chi biến mất với tám biểu hiện gì? Do hướng tâm đế
 “Và tôi nhận biết về điều ấy đang tồn tại là ‘Nó tồn tại.’ Nếu điều ấy biến mất, tôi nhận biết rằng: ‘Nó biến mất ở tôi do duyên ấy’” là (có ý nghĩa) như thế.
 
 Phần Giảng về Giác Chi được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

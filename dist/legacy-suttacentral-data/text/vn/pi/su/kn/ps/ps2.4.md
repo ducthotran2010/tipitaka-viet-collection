@@ -4,7 +4,7 @@ B. PHẨM KẾT HỢP CHUNG
 
 # 2.4. GIẢNG VỀ TỪ ÁI
 
-\[Duyên khởi ở Sāvatthī\]
+[Duyên khởi ở Sāvatthī]
 
 “Này các tỳ khưu, khi từ tâm giải thoát\* là được rèn luyện, được tu tập, được làm cho sung mãn, được tạo thành phương tiện, được tạo thành nền tảng, được thiết lập, được tích lũy, được khởi đầu tốt đẹp và tĩnh lặng, mười một điều lợi ích là có thể mong mỏi. Mười một là gì? (Vị ấy) ngủ an lạc, thức dậy an lạc, không nhìn thấy mộng mị xấu xa, được loài người thương mến, được phi nhân thương mến, chư Thiên hộ trì, lửa hoặc thuốc độc hoặc dao gươm không hại được vị ấy, tâm được định nhanh chóng, sắc mặt trầm tỉnh, từ trần không mê mờ, (nếu) chưa thấu triệt pháp tối thượng thì được sanh về thế giới Phạm thiên. Này các tỳ khưu, khi từ tâm giải thoát là được rèn luyện, được tu tập, được làm cho sung mãn, được tạo thành phương tiện, được tạo thành nền tảng, được thiết lập, được tích lũy, được khởi đầu tốt đẹp và tĩnh lặng, mười một điều lợi ích này là có thể mong mỏi.
 
@@ -127,9 +127,3 @@ Tám chi đạo này là sự rèn luyện của từ tâm giải thoát, từ t
 Đối với từ tâm giải thoát, tám chi đạo này là sự rèn luyện, là sự tu tập, đã được làm cho sung mãn, là sự tô điểm, là sự bảo trì, là sự phụ trợ, có sự toàn vẹn, là đồng hành, là đồng sanh, là đã được nối liền, là đã được liên kết, là sự tiến vào, là sự tạo niềm tin, là sự an trụ, là sự giải thoát, là sự chạm đến ‘Điều này là an tịnh,’ là đã được tạo thành phương tiện, là đã được tạo thành nền tảng, là đã được thiết lập, là đã được tích lũy, là đã được khởi đầu tốt đẹp và tĩnh lặng, là đã được tu tập tốt đẹp, là đã được khẳng định tốt đẹp, là đã được hiện khởi tốt đẹp, là đã được giải thoát tốt đẹp; chúng làm cho sanh trưởng, làm cho sáng tỏ, làm cho rạng rỡ.
 
 Phần Giảng về Từ Ái được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

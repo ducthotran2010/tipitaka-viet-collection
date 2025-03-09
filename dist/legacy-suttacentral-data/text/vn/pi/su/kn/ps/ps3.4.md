@@ -4,7 +4,7 @@ C. PHẨM TUỆ
 
 # 3.4. GIẢNG VỀ SỰ VIỄN LY
 
-\[Duyên khởi ở Sāvatthī\]
+[Duyên khởi ở Sāvatthī]
 
 Này các tỳ khưu, cũng giống như bất cứ các hành động gì được thực hiện bằng sức lực tất cả các hành động ấy được thực hiện sau khi đã nương tựa vào trái đất, sau khi đã thiết lập ở trên trái đất; các hành động được thực hiện bằng sức lực này được thực hiện như vậy. Này các tỳ khưu, tương tợ y như thế, sau khi nương tựa vào giới sau khi thiết lập ở giới, vị tỳ khưu tu tập Thánh Đạo tám chi phần, làm sung mãn Thánh Đạo tám chi phần.
 
@@ -47,9 +47,3 @@ Này các tỳ khưu, sau khi nương tựa vào giới, sau khi thiết lập �
 Đối với tấn quyền … Đối với niệm quyền … Đối với định quyền … Đối với tuệ quyền, có năm sự viễn ly gì? Sự viễn ly do áp chế, sự viễn ly do thay thế, sự viễn ly do đoạn trừ, sự viễn ly do tịnh lặng, sự viễn ly do xuất ly. …(nt)… Đối với tuệ quyền, có năm sự viễn ly, năm sự ly tham ái, năm sự diệt tận, năm sự xả ly, mười hai sự liên hệ này.
 
 Phần Giảng về sự Viễn Ly được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

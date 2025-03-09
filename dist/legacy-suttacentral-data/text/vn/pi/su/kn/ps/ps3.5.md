@@ -29,9 +29,3 @@ Có tám hành vi khác nữa: Trong khi cương quyết là hành xử với t�
 Có tám hành vi khác nữa: Hành vi nhận thấy của chánh kiến, hành vi gắn chặt (tâm vào cảnh) của chánh tư duy, hành vi gìn giữ của chánh ngữ, hành vi nguồn sanh khởi của chánh nghiệp, hành vi trong sạch của chánh mạng, hành vi ra sức của chánh tinh tấn, hành vi thiết lập của chánh niệm, hành vi không tản mạn của chánh định. Đây là tám hành vi.
 
 Phần Giảng về Hành Vi được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

@@ -6,17 +6,17 @@ A. PHẨM CHÍNH YẾU
 
 Kiến là gì? Có bao nhiêu cơ sở của kiến? Có bao nhiêu cơ sở xâm nhập của kiến? Có bao nhiêu loại kiến? Có bao nhiêu sự cố chấp của kiến? Điều gì là sự tiêu diệt cơ sở của kiến?
 
-1\. Kiến là gì? Sự cố chấp và bám víu là kiến.
+1. Kiến là gì? Sự cố chấp và bám víu là kiến.
 
-2\. Có bao nhiêu cơ sở của kiến? Có tám cơ sở của kiến.
+2. Có bao nhiêu cơ sở của kiến? Có tám cơ sở của kiến.
 
-3\. Có bao nhiêu cơ sở xâm nhập của kiến? Có mười tám cơ sở xâm nhập của kiến.
+3. Có bao nhiêu cơ sở xâm nhập của kiến? Có mười tám cơ sở xâm nhập của kiến.
 
-4\. Có bao nhiêu loại kiến? Có mười sáu loại kiến.
+4. Có bao nhiêu loại kiến? Có mười sáu loại kiến.
 
-5\. Có bao nhiêu sự cố chấp của kiến? Có ba trăm sự cố chấp của kiến.
+5. Có bao nhiêu sự cố chấp của kiến? Có ba trăm sự cố chấp của kiến.
 
-6\. Điều gì là sự tiêu diệt cơ sở của kiến? Đạo Nhập Lưu là sự tiêu diệt cơ sở của kiến.
+6. Điều gì là sự tiêu diệt cơ sở của kiến? Đạo Nhập Lưu là sự tiêu diệt cơ sở của kiến.
 
 Sự cố chấp và bám víu là kiến là (có ý nghĩa) thế nào?
 
@@ -164,7 +164,7 @@ Do hữu kiến, có sự cố chấp với 1 biểu hiện.
 
 Do phi hữu kiến, có sự cố chấp với 1 biểu hiện.
 
-## 1\. Khoái Lạc Kiến
+## 1. Khoái Lạc Kiến
 
 Do khoái lạc kiến, có sự cố chấp với 35 biểu hiện gì?
 
@@ -194,7 +194,7 @@ Những ràng buộc nào không phải là kiến? Sự ràng buộc với ái 
 
 Do khoái lạc kiến, có sự cố chấp với 35 biểu hiện này.
 
-## 2\. Tùy Ngã Kiến
+## 2. Tùy Ngã Kiến
 
 Do tùy ngã kiến, có sự cố chấp với 20 biểu hiện gì?
 
@@ -244,7 +244,7 @@ Nhận thấy tự ngã ở trong thức là (có ý nghĩa) thế nào? Ở đ�
 
 Do tùy ngã kiến, có sự cố chấp với 20 biểu hiện này.
 
-## 3\. Tà Kiến
+## 3. Tà Kiến
 
 Do tà kiến, có sự cố chấp với 10 biểu hiện gì?
 
@@ -252,7 +252,7 @@ Nói rằng: “Không có bố thí,” luận thuyết như thế có sự c�
 
 Nói rằng: “Không có cúng dường” …(như trên)… Nói rằng: “Không có tế lễ,” …(nt)… Nói rằng: “Không có quả thành tựu của các hành động được làm tốt hoặc được làm xấu,” …(nt)… Nói rằng: “Không có đời này,” …(nt)… Nói rằng: “Không có đời sau,” …(nt)… Nói rằng: “Không có mẹ,” …(nt)… Nói rằng: “Không có cha,” …(nt)… Nói rằng: “Không có sự sanh ra từ nhân của nghiệp,” …(nt)… Nói rằng: “Ở đời, không có các Sa-môn, Bà-la-môn sống chân chánh, thực hành chân chánh, sau khi tác chứng nhờ vào thắng trí của bản thân, sẽ công bố về đời này và đời sau,” luận thuyết như thế có sự cố chấp và bám víu vào sai trái là kiến. Kiến không phải là nền tảng, nền tảng không phải là kiến; kiến là điều khác, nền tảng là điều khác; (cả hai) kiến và nền tảng là—tà kiến có nền tảng sai trái—thứ mười. Tà kiến là sự hư hỏng về kiến. …(nt)… Đối với người có tà kiến, có hai cảnh giới (tái sanh) …(nt)…; những điều này là sự ràng buộc, không phải là kiến. Do tà kiến, có sự cố chấp với 10 biểu hiện này.
 
-## 4\. Thân Kiến
+## 4. Thân Kiến
 
 Do thân kiến, có sự cố chấp với 20 biểu hiện gì?
 
@@ -260,7 +260,7 @@ Do thân kiến, có sự cố chấp với 20 biểu hiện gì?
 
 Nhận thấy sắc là tự ngã là (có ý nghĩa) thế nào? Ở đây, có người nhận thấy đề mục đất …(như trên)… đề mục trắng là tự ngã rằng: “Cái gì là đề mục trắng, cái ấy là tôi; cái gì là tôi, cái ấy là đề mục trắng,” (vị ấy) nhận thấy đề mục trắng và tự ngã chỉ là một. Cũng giống như đối với ngọn đèn dầu đang cháy sáng …(như trên)… Tương tợ như thế, có người nhận thấy đề mục trắng là tự ngã. Sự cố chấp và bám víu là kiến. …(nt)… Đây là—thân kiến có sắc là nền tảng—thứ nhất. Thân kiến là tà kiến, …(nt)…; những điều này là sự ràng buộc, không phải là kiến. Nhận thấy sắc là tự ngã là (có ý nghĩa) như thế. …(nt)… Do thân kiến, có sự cố chấp với 20 biểu hiện này.
 
-## 5\. Thường Kiến lấy Thân làm Nền Tảng
+## 5. Thường Kiến lấy Thân làm Nền Tảng
 
 Do thường kiến lấy thân làm nền tảng, có sự cố chấp với 15 biểu hiện gì?
 
@@ -268,7 +268,7 @@ Do thường kiến lấy thân làm nền tảng, có sự cố chấp với 15
 
 Nhận thấy tự ngã có sắc là (có ý nghĩa) thế nào? Ở đây, có người nhận thấy thọ, tưởng, các hành, thức là tự ngã. Vị ấy khởi ý như vầy: “Cái này quả thật là tự ngã của ta. Hơn nữa, tự ngã này đây của ta quả thật có sắc bởi vì sắc này;” (vị ấy) nhận thấy tự ngã có sắc. Cũng giống như cội cây là có bóng cây, vị này có thể nói về điều ấy như vầy: “Cái này là cội cây, cái này là bóng cây; cội cây là cái khác, bóng cây là cái khác. Hơn nữa, cội cây này đây quả thật là có bóng cây bởi vì bóng cây này;” (vị ấy) nhận thấy cội cây là có bóng cây. Tương tợ như thế, ở đây có người nhận thấy thọ …(như trên)… Đây là—thường kiến lấy thân làm nền tảng—thứ nhất. Thường kiến là tà kiến, …(như trên)… những điều này là sự ràng buộc, không phải là kiến. Nhận thấy tự ngã có sắc là (có ý nghĩa) như thế. …(như trên)… Do thường kiến lấy thân làm nền tảng, có sự cố chấp với 15 biểu hiện này.
 
-## 6\. Đoạn Kiến lấy Thân làm Nền Tảng
+## 6. Đoạn Kiến lấy Thân làm Nền Tảng
 
 Do đoạn kiến lấy thân làm nền tảng, có sự cố chấp với 5 biểu hiện gì?
 
@@ -276,7 +276,7 @@ Do đoạn kiến lấy thân làm nền tảng, có sự cố chấp với 5 bi
 
 Nhận thấy sắc là tự ngã là (có ý nghĩa) thế nào? Ở đây, có người nhận thấy đề mục đất …(như trên)… đề mục trắng là tự ngã rằng: “Cái gì là đề mục trắng, cái ấy là tôi; cái gì là tôi, cái ấy là đề mục trắng,” (vị ấy) nhận thấy đề mục trắng và tự ngã chỉ là một. Cũng giống như đối với ngọn đèn dầu đang cháy sáng …(nt)… Đây là—đoạn kiến lấy thân làm nền tảng—thứ nhất. Đoạn kiến là tà kiến, …(như trên)…; những điều này là sự ràng buộc, không phải là kiến. Nhận thấy sắc là tự ngã là (có ý nghĩa) như thế. …(như trên)… Do đoạn kiến lấy thân làm nền tảng, có sự cố chấp với 5 biểu hiện này.
 
-## 7\. Hữu Biên Kiến
+## 7. Hữu Biên Kiến
 
 Do hữu biên kiến, có sự cố chấp với 50 biểu hiện gì?
 
@@ -326,7 +326,7 @@ Sự cố chấp và bám víu rằng: ‘Chính ở đây, thọ là pháp tử
 
 Do hữu biên kiến, có sự cố chấp với 50 biểu hiện này.
 
-## 8\. Quá Khứ Hữu Biên Kiến
+## 8. Quá Khứ Hữu Biên Kiến
 
 Do quá khứ hữu biên kiến, có sự cố chấp với 18 biểu hiện gì?
 
@@ -334,7 +334,7 @@ Có bốn luận thuyết về thường còn, bốn liên quan đến thường
 
 Do quá khứ hữu biên kiến, có sự cố chấp với 18 biểu hiện này.
 
-## 9\. Vị Lai Hữu Biên Kiến
+## 9. Vị Lai Hữu Biên Kiến
 
 Do vị lai hữu biên kiến, có sự cố chấp với 44 biểu hiện gì?
 
@@ -342,7 +342,7 @@ Có mười sáu luận thuyết về tưởng, tám luận thuyết về phi t�
 
 Do vị lai hữu biên kiến, có sự cố chấp với 44 biểu hiện này.
 
-## 10\. Kiến có sự Ràng Buộc
+## 10. Kiến có sự Ràng Buộc
 
 Do kiến có sự ràng buộc, có sự cố chấp với 18 biểu hiện gì?
 
@@ -350,7 +350,7 @@ Loại kiến nào là kiến (tạo nên) thiên lệch, kiến (tạo nên) n�
 
 Do kiến có sự ràng buộc, có sự cố chấp với 18 biểu hiện này.
 
-## 11\. Kiến có sự Tự Hào và Gắn Bó về ‘Tôi’
+## 11. Kiến có sự Tự Hào và Gắn Bó về ‘Tôi’
 
 Do kiến có sự tự hào và gắn bó về ‘tôi,’ có sự cố chấp với 18 biểu hiện gì?
 
@@ -360,7 +360,7 @@ Sự cố chấp và bám víu rằng: ‘Tai là tôi.’ …(như trên)… �
 
 Do kiến có sự tự hào và gắn bó về ‘tôi,’ có sự cố chấp với 18 biểu hiện này.
 
-## 12\. Kiến có sự Tự Hào và Gắn Bó về ‘Của Tôi’
+## 12. Kiến có sự Tự Hào và Gắn Bó về ‘Của Tôi’
 
 Do kiến có sự tự hào và gắn bó về ‘của tôi,’ có sự cố chấp với 18 biểu hiện gì?
 
@@ -370,7 +370,7 @@ Sự cố chấp và bám víu rằng: ‘Tai là của tôi.’ …(như trên)
 
 Do kiến có sự tự hào và gắn bó về ‘của tôi,’ có sự cố chấp với 18 biểu hiện này.
 
-## 13\. Kiến có liên hệ đến Luận Thuyết về Tự Ngã
+## 13. Kiến có liên hệ đến Luận Thuyết về Tự Ngã
 
 Do kiến có liên hệ đến luận thuyết về tự ngã, có sự cố chấp với 20 biểu hiện gì?
 
@@ -380,7 +380,7 @@ Nhận thấy sắc là tự ngã là (có ý nghĩa) thế nào? Ở đây, có
 
 Do kiến có liên hệ đến luận thuyết về tự ngã, có sự cố chấp với 20 biểu hiện này.
 
-## 14\. Kiến có liên hệ đến Luận Thuyết về Thế Giới
+## 14. Kiến có liên hệ đến Luận Thuyết về Thế Giới
 
 Do kiến có liên hệ đến luận thuyết về thế giới, có sự cố chấp với 8 biểu hiện gì?
 
@@ -477,9 +477,3 @@ Có sự thành toàn sau khi rời bỏ nơi đây đối với năm hạng nà
 Này các tỳ khưu, những người nào đặt niềm tin hoàn toàn ở nơi Ta những người ấy là các vị Nhập Lưu. Đối với các vị Nhập Lưu ấy, có sự thành toàn ở nơi đây đối với năm hạng này, có sự thành toàn sau khi rời bỏ nơi đây đối với năm hạng này.
 
 Phần giảng về Kiến được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

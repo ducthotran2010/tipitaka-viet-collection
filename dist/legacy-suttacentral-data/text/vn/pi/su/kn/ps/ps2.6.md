@@ -6,7 +6,7 @@ B. PHẨM KẾT HỢP CHUNG
 
 Tôi đã được nghe như vầy: Một thời đức Thế Tôn ngự tại Bārāṇasī, Isipatana, nơi vườn nai. Tại đó, đức Thế Tôn đã nói với các vị tỳ khưu nhóm năm vị rằng:
 
-\- Này các tỳ khưu, đây là hai cực đoan mà bậc xuất gia không nên thực hành. Hai là gì? Đây là sự say đắm về dục lạc trong các dục, kém cỏi, thô thiển, tầm thường, không cao thượng, không đem lại lợi ích, và đây là sự gắn bó với việc hành hạ bản thân, đau khổ, không cao thượng, không đem lại lợi ích. Này các tỳ khưu, sau khi không tiếp cận cả hai cực đoan ấy, lối thực hành trung hòa đã được đức Như lai tự mình giác ngộ khiến cho mắt được thấy, khiến cho trí được sáng, dẫn đến tịch tịnh, thắng trí, hoàn toàn giác ngộ, Niết Bàn.
+- Này các tỳ khưu, đây là hai cực đoan mà bậc xuất gia không nên thực hành. Hai là gì? Đây là sự say đắm về dục lạc trong các dục, kém cỏi, thô thiển, tầm thường, không cao thượng, không đem lại lợi ích, và đây là sự gắn bó với việc hành hạ bản thân, đau khổ, không cao thượng, không đem lại lợi ích. Này các tỳ khưu, sau khi không tiếp cận cả hai cực đoan ấy, lối thực hành trung hòa đã được đức Như lai tự mình giác ngộ khiến cho mắt được thấy, khiến cho trí được sáng, dẫn đến tịch tịnh, thắng trí, hoàn toàn giác ngộ, Niết Bàn.
 
 Và này các tỳ khưu, lối thực hành trung hòa đã được đức Như lai tự mình giác ngộ khiến cho mắt được thấy, khiến cho trí được sáng, dẫn đến tịch tịnh, thắng trí, hoàn toàn giác ngộ, Niết Bàn, (lối thực hành trung hòa) ấy là gì? Đó chính là Thánh Đạo tám chi phần tức là chánh kiến, chánh tư duy, chánh ngữ, chánh nghiệp, chánh mạng, chánh cần, chánh niệm, chánh định. Này các tỳ khưu, lối thực hành trung hòa ấy đã được đức Như lai tự mình giác ngộ khiến cho mắt được thấy, khiến cho trí được sáng, dẫn đến tịch tịnh, thắng trí, hoàn toàn giác ngộ, Niết Bàn.
 
@@ -163,9 +163,3 @@ Này các tỳ khưu, Bồ Tát Gotama có được (Pháp) nhãn đã sanh kh�
 Ở trường hợp về phân tích có 850 pháp, 850 ý nghĩa, 1700 ngôn từ, và 3400 trí.
 
 Phần Giảng về sự Phân Tích được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

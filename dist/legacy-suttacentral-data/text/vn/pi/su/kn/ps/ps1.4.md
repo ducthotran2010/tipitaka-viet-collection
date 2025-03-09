@@ -4,11 +4,11 @@ A. PHẨM CHÍNH YẾU
 
 # 1.4. GIẢNG VỀ QUYỀN
 
-## 1\. Bài Kinh thứ nhất
+## 1. Bài Kinh thứ nhất
 
 Tôi đã được nghe như vầy: Một thời đức Thế Tôn ngự tại tu viện của ông Anāthapiṇḍika, trong khu rừng (của thái tử) Jeta, ở thành Sāvatthī. Chính ở tại nơi ấy, đức Thế Tôn đã bảo các vị tỳ khưu rằng: “Này các tỳ khưu.” “Thưa ngài,” các vị tỳ khưu ấy đã đáp lại đức Thế Tôn. Đức Thế Tôn đã nói điều này:
 
-\- Này các tỳ khưu, đây là năm quyền. Những gì là năm? Tín quyền, tấn quyền, niệm quyền, định quyền, tuệ quyền. Này các tỳ khưu, đây là năm quyền.
+- Này các tỳ khưu, đây là năm quyền. Những gì là năm? Tín quyền, tấn quyền, niệm quyền, định quyền, tuệ quyền. Này các tỳ khưu, đây là năm quyền.
 
 Năm quyền này được thanh tịnh theo bao nhiêu cách? Năm quyền này được thanh tịnh theo 15 cách: Đối với vị đang xa lánh các kẻ không có đức tin, đang xu hướng theo tiếp cận gần gũi những người có đức tin, đang quán xét lại các bài kinh khơi dậy đức tin; tín quyền được thanh tịnh bằng ba cách này.
 
@@ -38,7 +38,7 @@ Năm quyền được phát triển bằng bao nhiêu cách? Năm quyền không
 
 Ở sát-na Đạo Nhập Lưu, năm quyền được phát triển; ở sát-na Quả Nhập Lưu, năm quyền không những (là) được phát triển, mà (là) còn được phát triển tốt đẹp, được tịnh lặng, và được tịnh lặng tốt đẹp. Ở sát-na Đạo Nhất Lai, … ở sát-na Quả Nhất Lai, … Ở sát-na Đạo Bất Lai, … ở sát-na Quả Bất Lai, … Ở sát-na Đạo A-la-hán, năm quyền được phát triển; ở sát-na Quả A-la-hán, năm quyền không những (là) được phát triển, mà (là) còn được phát triển tốt đẹp, được tịnh lặng, và được tịnh lặng tốt đẹp.
 
-## 2\. Dutiyasuttaṃ
+## 2. Dutiyasuttaṃ
 
 Như thế, có bốn sự thanh tịnh của Đạo, có bốn sự thanh tịnh của Quả, có bốn sự thanh tịnh của đoạn trừ, có bốn sự thanh tịnh của tịnh lặng. Bằng bốn cách này, năm quyền được phát triển; bằng bốn cách này, năm quyền không những (là) được phát triển, mà (là) còn được phát triển tốt đẹp, được tịnh lặng, và được tịnh lặng tốt đẹp.
 
@@ -50,9 +50,9 @@ Như thế, có sự phát triển quyền ở tám hạng người này; ba h�
 
 Phần giải thích về bài Kinh thứ nhất.
 
-## 2\. Bài Kinh thứ nhì
+## 2. Bài Kinh thứ nhì
 
-\[Duyên khởi ở Sāvatthī\]
+[Duyên khởi ở Sāvatthī]
 
 Này các tỳ khưu, đây là năm quyền. Những gì là năm? Tín quyền, tấn quyền, niệm quyền, định quyền, tuệ quyền.
 
@@ -146,7 +146,7 @@ Năm quyền ở sơ thiền được xuất ly khỏi các pháp ngăn che. Nă
 
 Năm quyền ở sự quán xét về vô thường được xuất ly khỏi sự nghĩ tưởng về thường còn. Năm quyền ở sự quán xét về khổ não được xuất ly khỏi sự nghĩ tưởng về lạc. Năm quyền ở sự quán xét về vô ngã được xuất ly khỏi sự nghĩ tưởng về ngã. Năm quyền ở sự quán xét về sự nhàm chán được xuất ly khỏi sự vui thích. Năm quyền ở sự quán xét về ly tham ái được xuất ly khỏi tham ái. Năm quyền ở sự quán xét về sự diệt tận được xuất ly khỏi nhân sanh khởi. Năm quyền ở sự quán xét về sự từ bỏ được xuất ly khỏi sự tai hại. Năm quyền ở sự quán xét về sự đoạn tận được xuất ly khỏi sự nghĩ tưởng về tiếp diễn. Năm quyền ở sự quán xét về sự biến hoại được xuất ly khỏi (nghiệp) tích lũy. Năm quyền ở sự quán xét về sự chuyển biến được xuất ly khỏi sự nghĩ tưởng về bền vững. Năm quyền ở sự quán xét về vô tướng được xuất ly khỏi hiện tướng. Năm quyền ở sự quán xét về vô nguyện được xuất ly khỏi sự nguyện ước. Năm quyền ở sự quán xét về không tánh được xuất ly khỏi sự cố chấp. Năm quyền ở sự minh sát các pháp bằng thắng tuệ được xuất ly khỏi sự cố chấp về thực chất (của thường còn, của tự ngã). Năm quyền ở sự biết và thấy đúng theo thực thể được xuất ly khỏi cố chấp vào sự lầm lẫn. Năm quyền ở sự quán xét về sự tai hại được xuất ly khỏi sự cố chấp vào sự lệ thuộc. Năm quyền ở sự quán xét về sự phân biệt rõ được xuất ly khỏi sự không phân biệt rõ. Năm quyền ở sự quán xét về sự ly khai được xuất ly khỏi sự cố chấp vào sự ràng buộc.
 
-## 3\. Tatiyasuttaṃ
+## 3. Tatiyasuttaṃ
 
 Năm quyền ở Đạo Nhập Lưu được xuất ly khỏi các phiền não thuần về tà kiến, năm quyền ở Đạo Nhất Lai được xuất ly khỏi các phiền não thô thiển, năm quyền ở Đạo Bất Lai được xuất ly khỏi các phiền não có tính chất vi tế, năm quyền ở Đạo A-la-hán được xuất ly khỏi toàn bộ phiền não; trong mọi trường hợp, năm quyền của chính tất cả các bậc Lậu Tận không những là được xuất ly, mà còn được xuất ly tốt đẹp, được tịnh lặng, và được tịnh lặng tốt đẹp.
 
@@ -156,9 +156,9 @@ Phần giải thích về bài Kinh thứ nhì.
 
 Tụng Phẩm thứ nhất.
 
-## 3\. Bài Kinh thứ ba
+## 3. Bài Kinh thứ ba
 
-\[Duyên khởi ở Sāvatthī\]
+[Duyên khởi ở Sāvatthī]
 
 Này các tỳ khưu, đây là năm quyền. Những gì là năm? Tín quyền, tấn quyền, niệm quyền, định quyền, tuệ quyền.
 
@@ -262,7 +262,7 @@ Có tám hành vi khác nữa: Hành vi nhận thức của chánh kiến, hành
 
 **Được thấu triệt:** Ý nghĩa cương quyết của tín quyền là được thấu triệt, ý nghĩa ra sức của tấn quyền là được thấu triệt, ý nghĩa thiết lập của niệm quyền là được thấu triệt, ý nghĩa không tản mạn của định quyền là được thấu triệt, ý nghĩa nhận thức của tuệ quyền là được thấu triệt.
 
-## 4\. Catutthasuttaṃ
+## 4. Catutthasuttaṃ
 
 **Đang hành động như thế ấy:** đang hành động với tín như thế, đang hành động với tấn như thế, đang hành động với niệm như thế, đang hành động với định như thế, đang hành động với tuệ như thế.
 
@@ -284,9 +284,9 @@ Có tám hành vi khác nữa: Hành vi nhận thức của chánh kiến, hành
 
 Phần giải thích về bài Kinh thứ ba.
 
-## 4\. Bài Kinh thứ tư
+## 4. Bài Kinh thứ tư
 
-\[Duyên khởi ở Sāvatthī\]
+[Duyên khởi ở Sāvatthī]
 
 Này các tỳ khưu, đây là năm quyền. Năm (quyền) là gì? Tín quyền, tấn quyền, niệm quyền, định quyền, tuệ quyền. Này các tỳ khưu, đây là năm quyền.
 
@@ -453,9 +453,3 @@ Một thế giới là tất cả chúng sanh được tồn tại nhờ vật t
 Tụng Phẩm thứ ba.
 
 Phần Giảng về Quyền được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

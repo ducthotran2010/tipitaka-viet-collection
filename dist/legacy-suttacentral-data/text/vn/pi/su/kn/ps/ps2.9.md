@@ -4,7 +4,7 @@ B. PHẨM KẾT HỢP CHUNG
 
 # 2.9. GIẢNG VỀ LỰC
 
-\[Duyên khởi ở Sāvatthī\]
+[Duyên khởi ở Sāvatthī]
 
 Này các tỳ khưu, đây là năm lực. Năm là gì? Tín lực, tấn lực, niệm lực, định lực, tuệ lực. Này các tỳ khưu, đây là năm lực.
 
@@ -91,9 +91,3 @@ Tín lực với ý nghĩa gì? Tấn lực với ý nghĩa gì? Niệm lực v�
 Với ý nghĩa của sự không dao động ở sự không có đức tin là tín lực. Với ý nghĩa của sự không dao động ở sự biếng nhác là tấn lực. Với ý nghĩa của sự không dao động ở sự buông lung là niệm lực. Với ý nghĩa của sự không dao động ở sự phóng dật là định lực. Với ý nghĩa của sự không dao động ở vô minh. là tuệ lực. ‘Hổ thẹn về các ác bất thiện pháp’ là lực của sự hổ thẹn (tội lỗi). ‘Ghê sợ về các ác bất thiện pháp’ là lực của sự ghê sợ (tội lỗi). ‘Phân biệt rõ các phiền não bằng trí’ là lực của sự phân biệt rõ. ‘Các pháp sanh lên trong trường hợp ấy là có nhất vị’ là lực của sự tu tập. ‘Không có gì sai trái ở điều ấy’ là lực của sự không sai trái. ‘Do điều ấy, (hành giả) củng cố lại tâm’ là lực của sự củng cố. ‘(Hành giả) chấp nhận điều ấy’ là lực của sự nhẫn nại. ‘Do điều ấy, (hành giả) chuẩn bị tâm’ là lực của sự chuẩn bị. ‘Do điều ấy, (hành giả) khiến tâm được thuyết phục’ là lực của sự thuyết phục. ‘Do điều ấy, (hành giả) chuyển tâm thành ưu thế’ là lực của sự thống lãnh. ‘Do điều ấy, (hành giả) khẳng định tâm’ là lực của sự khẳng định. ‘Do điều ấy, tâm được chuyên nhất’ là lực của chỉ tịnh. ‘(Hành giả) quán xét các pháp sanh lên trong trường hợp ấy’ là lực của minh sát. ‘(Hành giả) học tập ở điều ấy’ là lực của bậc Hữu Học. ‘Do trạng thái đã học tập xong ở điều ấy’ là lực của bậc Vô Học. ‘Do điều ấy, các lậu hoặc được cạn kiệt’ là lực của bậc Lậu Tận. ‘Được thành công cho vị ấy’ là lực của thần thông. Với ý nghĩa vô lượng là lực của đức Như Lai.
 
 Phần Giảng về Lực được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

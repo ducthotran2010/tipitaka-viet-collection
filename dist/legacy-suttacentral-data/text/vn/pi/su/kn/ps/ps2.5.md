@@ -69,9 +69,3 @@ Các quyền, theo ý nghĩa chủ đạo, là sự giải thoát. Các lực, t
 Ly tham ái là Đạo, sự giải thoát là Quả là (có ý nghĩa) như thế.
 
 Phần Giảng về Ly Tham Ái được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

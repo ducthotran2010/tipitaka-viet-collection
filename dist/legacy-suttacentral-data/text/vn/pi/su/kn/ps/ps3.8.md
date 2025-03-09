@@ -4,7 +4,7 @@ C. PHẨM TUỆ
 
 # 3.8. GIẢNG VỀ SỰ THIẾT LẬP NIỆM
 
-\[Duyên khởi ở Sāvatthī\]
+[Duyên khởi ở Sāvatthī]
 
 Này các tỳ khưu, đây là bốn sự thiết lập niệm. Bốn là gì? Này các tỳ khưu, vị tỳ khưu trong giáo pháp này an trú có sự quán xét thân trên thân, có nhiệt tâm, có sự nhận biết rõ rệt, có niệm, có thể chế ngự tham và ưu phiền ở trên đời. …(như trên)… thọ trên các thọ …(như trên)… tâm trên tâm …(như trên)… pháp trên các pháp, có nhiệt tâm, có sự nhận biết rõ rệt, có niệm, có thể chế ngự tham và ưu phiền ở trên đời. Này các tỳ khưu, đây là bốn sự thiết lập niệm.
 
@@ -37,9 +37,3 @@ An trú có sự quán xét pháp trên các pháp là (có ý nghĩa) thế nà
 **Sự tu tập:** Có bốn sự tu tập: là sự tu tập theo ý nghĩa không vượt trội đối với các pháp đã được sanh lên trong trường hợp ấy, là sự tu tập theo ý nghĩa nhất vị đối với các quyền, là sự tu tập theo ý nghĩa khởi động tinh tấn (thích hợp) nhằm đạt đến giải thoát Niết Bàn, là sự tu tập theo ý nghĩa rèn luyện. An trú có sự quán xét pháp trên các pháp là (có ý nghĩa) như thế.
 
 Phần Giảng về sự Thiết Lập Niệm được đầy đủ.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.

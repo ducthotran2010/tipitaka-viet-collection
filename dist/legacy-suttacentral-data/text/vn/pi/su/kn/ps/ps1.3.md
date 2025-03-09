@@ -6,13 +6,13 @@ A. PHẨM CHÍNH YẾU
 
 ## HƠI THỞ VÀO HƠI THỞ RA
 
-## 1\. Liệt Kê Số Lượng
+## 1. Liệt Kê Số Lượng
 
 Đối với vị đang tu tập định của niệm hơi thở vào hơi thở ra theo 16 nền tảng, có hơn 200 pháp sanh lên (ở vị ấy): 8 trí về ngăn trở và 8 trí về hỗ trợ, 18 trí về tùy phiền não, 13 trí trong việc thanh lọc, 32 trí về việc thực hành niệm, 24 trí do năng lực của định, 72 trí do năng lực của minh sát, 8 trí về nhàm chán, 8 trí thuận theo nhàm chán, 8 trí về sự tịnh lặng của nhàm chán, 21 trí về sự an lạc của giải thoát.
 
 Phần Liệt Kê Số Lượng được đầy đủ.
 
-## 2\. Mười Sáu Trí Ngăn Trở & Trí Hỗ Trợ
+## 2. Mười Sáu Trí Ngăn Trở & Trí Hỗ Trợ
 
 8 trí về ngăn trở và 8 trí về hỗ trợ là gì?
 
@@ -30,7 +30,7 @@ Các lối ra ấy là gì? Sự thoát ly là lối ra của các bậc Thánh,
 
 Phần giải thích 16 trí được đầy đủ.
 
-## 3\. Các Trí về Tùy Phiền Não
+## 3. Các Trí về Tùy Phiền Não
 
 Hơn nữa, đối với vị đang tu tập định của niệm hơi thở vào hơi thở ra theo 16 nền tảng có tâm đã được thanh lọc khỏi các pháp ngăn che này, do sự tập trung ngắn hạn có 18 tùy phiền não gì sanh lên (ở vị ấy)?
 
@@ -104,7 +104,7 @@ Hơn nữa, đối với vị đang tu tập định của niệm hơi thở và
 
 Phần giải thích trí về tùy phiền não.
 
-## 4\. Các Trí trong việc Thanh Lọc
+## 4. Các Trí trong việc Thanh Lọc
 
 13 trí gì trong việc thanh lọc? Tâm có sự chạy theo quá khứ bị rơi vào tản mạn. Sau khi ngăn ngừa việc ấy, hành giả tập trung (tâm) vào một chỗ; như vậy tâm không đi đến tản mạn. Tâm có sự mong mỏi ở vị lai bị chao động. Sau khi ngăn ngừa việc ấy, ngay tại đấy hành giả khẳng định lại; như thế tâm không đi đến tản mạn. Tâm trì trệ bị rơi vào biếng nhác. Sau khi nắm giữ điều ấy, hành giả dứt bỏ sự biếng nhác; như vậy tâm không đi đến tản mạn. Tâm ra sức quá mức bị rơi vào phóng dật. Sau khi hạn chế điều ấy, hành giả dứt bỏ phóng dật; như vậy tâm không đi đến tản mạn. Tâm quá chuyên chú bị rơi vào tham. Sau khi có sự nhận biết rõ rệt điều ấy, hành giả dứt bỏ tham; như vậy tâm không đi đến tản mạn. Tâm lơi là bị rơi vào sân. Sau khi có sự nhận biết rõ rệt điều ấy, hành giả dứt bỏ sân; như vậy tâm không đi đến tản mạn. Được hoàn toàn trong sạch với 6 trường hợp này, tâm được tinh khiết đi đến nhất thể.
 
@@ -201,7 +201,7 @@ _tỏa sáng thế giới này, tợ trăng thoát mây che_. (3)
 
 Phần giải thích về trí trong việc thanh lọc.
 
-## 5\. Các Trí về việc Thực Hành Niệm
+## 5. Các Trí về việc Thực Hành Niệm
 
 32 trí gì về việc thực hành niệm?
 
@@ -536,9 +536,3 @@ Do Đạo Nhập Lưu, trạng thái dứt bỏ, trạng thái đoạn trừ ho�
 Đối với vị đang tu tập định của niệm hơi thở vào hơi thở ra theo 16 nền tảng, có hơn 200 pháp sanh lên (ở vị ấy).
 
 Niệm Hơi Thở Vào Hơi Thở Ra được hoàn tất.
-
-Translated by Bhikkhu Indacanda, 2007. Based on the Buddha Jayanthi edition of the Pali canon, as corrected by Bhikkhu Indacanda. Full text, translation, and notes are available at the translator’s website: http://tamtangpaliviet.net/.
-
-Used by kind permission of the translator.
-
-Prepared for SuttaCentral by Blake Walsh.
